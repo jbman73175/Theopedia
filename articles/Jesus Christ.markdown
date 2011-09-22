@@ -11,4 +11,6 @@ The title 'Christ', from the Greek _Christos_, is the equivalent of the Hebrew _
 
 [^1]: [Christ](http://eastonsbibledictionary.com/c/christ.htm), Easton Bible Dictionary
 
-
+##External links
+* [Christology: Jesus Christ](http://www.bible.org/page.asp?page_id=726), by Greg Herrick (bible.org)
+* [The Person and Work of Christ](http://www.mtio.com/articles/bissar49.htm), Augustus to Tiberius, by Dr. Paul L. Maier
