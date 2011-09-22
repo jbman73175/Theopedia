@@ -36,5 +36,7 @@ God, and the faith of this constitutes a Christian (1 Corinthians 12:3; 1 John
 Dictionary
 
 ##External links
-* [Christology: Jesus Christ](http://www.bible.org/page.asp?page_id=726), by Greg Herrick (bible.org)
-* [The Person and Work of Christ](http://www.mtio.com/articles/bissar49.htm), Augustus to Tiberius, by Dr. Paul L. Maier
+* [Christology: Jesus Christ](http://www.bible.org/page.asp?page_id=726), by
+Greg Herrick (bible.org)
+* [The Person and Work of Christ](http://www.mtio.com/articles/bissar49.htm),
+Augustus to Tiberius, by Dr. Paul L. Maier
