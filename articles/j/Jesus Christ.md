@@ -9,7 +9,7 @@ the Holy Spirit and now sits at the right hand of God the Father, according to
 the Scriptures.
 
 His incarnation, earthly ministry, death, and resurrection are specifically
-recorded in the four Gospels of the New Testament. The study of Jesus Christ is
+recorded in the four Gospels of the New Testament (Mathew, Mark, Luke, and John). The study of Jesus Christ is
 called Christology.
 
 ## Jesus the Christ
