@@ -1,18 +1,18 @@
 To **God the Father** "is attributed the beginning of activity, and
-the fountain and wellspring of all things".[^1](#note-0) In
+the fountain and wellspring of all things".[^1] In
 relation to [Jesus Christ](Jesus_Christ "Jesus Christ"), the
 [Son of God](Son_of_God "Son of God"), and in relation to us united
 with his Son, "*Father* is the proper name for God, and does not
-merely describe what he is like".[^2](#note-1) As
+merely describe what he is like".[^2] As
 [John the Apostle](John_the_Apostle "John the Apostle") records, in
 the words of the Lord, it is
 [eternal life](Eternal_life "Eternal life") to know the Father,
 "the only true God", and Jesus Christ whom he has
-sent.[^3](#note-2) To see how this confession of faith in "the
-God and Father of our Lord, Jesus Christ" [^4](#note-3)
+sent.[^3] To see how this confession of faith in "the
+God and Father of our Lord, Jesus Christ" [^4]
 necessarily implies [Trinitarianism](Trinity "Trinity") requires
 fuller explanation from Scripture, and the wisdom which is given by
-the Holy Spirit.[^5](#note-4)
+the Holy Spirit.[^5]
 
 ## Father as beginning
 
@@ -21,14 +21,14 @@ Him that His Son Jesus Christ came "for us and for our salvation"
 (as the [Nicene Creed](Nicene_Creed "Nicene Creed") puts it) in the
 power of the Holy Spirit; and, it is from Him that the Spirit of
 His Son is sent into our hearts, crying out to God, "Abba! Father!"
-[^6](#note-5) Therefore, "in respect to order and degree, the
+[^6] Therefore, "in respect to order and degree, the
 beginning *[principium or origo]* of divinity is in the
-Father"[^7](#note-6) It is the Father, in love and for our
+Father"[^7] It is the Father, in love and for our
 salvation, who exalted Jesus Christ "far above all rule and
 authority and power and dominion, and above every name that is
 named, not only in this age but also in the one to come". It is the
 Father who subjects all things to His Son, and "gave him as head
-over all things to the church".[^8](#note-7) It is in this sense
+over all things to the church".[^8] It is in this sense
 that the Father is sometimes referred to as the "first person" of
 the [Holy Trinity](Holy_Trinity "Holy Trinity") — but this
 terminology of "first" (and "second", and "third") is for
@@ -52,10 +52,10 @@ exclusive and intimate familiarity that is of their very nature:
 Father except the Son and any one to whom the Son chooses to reveal
 him." (Matthew 11:27). In Christian theology, this is the
 [revelation](Revelation_of_God "Revelation of God") that Fatherhood
-is inherent to God's very [being](Being "Being").[^9](#note-8)
+is inherent to God's very [being](Being "Being").[^9]
 Thus, in Christianity, God is not called Father by comparison to
 mankind; rather family and fatherhood among men is called such by
-comparison to God.[^10](#note-9)
+comparison to God.[^10]
 
 ## An eternal life: sons to the Father
 
@@ -91,17 +91,17 @@ the Son, and produced by the Holy Spirit. Therefore, Christian
 worship is a communion with the Father which consists "in his
 communication of himself unto us, *with our returnal unto him*" and
 it flows "from that *union* which in Jesus Christ we have with
-him".[^11](#note-10) The Father is both, the origin and the
+him".[^11] The Father is both, the origin and the
 object of our worship of God through Jesus Christ and in the Holy
 Spirit. When the Father is in this way the object of worship, the
 Son and Spirit are not diminished, but properly glorified together
 with the Father as one God; for the fullness of the Father and of
 the Son dwells in the one Spirit given to
-us.[^12](#note-11)[^13](#note-12) Therefore, when we by
+us.[^12] Therefore, when we by
 humbling ourselves in the Holy Spirit glorify the name of Jesus
 Christ, whom the Father has "highly exalted and bestowed on him the
 name that is above every name", it is to the infinite glory of God
-the Father through the Son in the Spirit.[^14](#note-13)
+the Father through the Son in the Spirit.[^14]
 
 ## Notes
 
