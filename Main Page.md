@@ -154,22 +154,22 @@ God and his people.
 [Transmission](Transmission_of_the_Bible "Transmission of the Bible")
 – [Archaeology](Biblical_archaeology "Biblical archaeology") –
 [Authority](Authority_of_the_Bible "Authority of the Bible") –
-[Inspiration](Inspiration_of_the_Bible "Inspiration of the Bible")
-- [Inerrancy](Inerrancy_of_the_Bible "Inerrancy of the Bible") —
-[Translation](Translation_of_the_Bible "Translation of the Bible")
--
-[Interpretation](Interpretation_of_the_Bible "Interpretation of the Bible")
--
-[Divine accommodation](Divine_accommodation "Divine accommodation")
-- [Clarity](Clarity_of_Scripture "Clarity of Scripture") —
+[Inspiration](Inspiration_of_the_Bible "Inspiration of the Bible") –
+[Inerrancy](Inerrancy_of_the_Bible "Inerrancy of the Bible") —
+[Translation](Translation_of_the_Bible "Translation of the Bible") –
+[Interpretation](Interpretation_of_the_Bible "Interpretation of the Bible") –
+[Divine accommodation](Divine_accommodation "Divine accommodation") –
+[Clarity](Clarity_of_Scripture "Clarity of Scripture") —
 [Scripture alone](Scripture_alone "Scripture alone") —
-[Biblical criticism](Biblical_criticism "Biblical criticism")—(**[More](http://www.theopedia.com/Category:Bible "Category:Bible")**)
+[Biblical criticism](Biblical_criticism "Biblical criticism") — 
+(**[More](http://www.theopedia.com/Category:Bible "Category:Bible")**)
 
 ### [Creation](Creation "Creation")
 
-[Genesis creation account](Genesis_creation_account "Genesis creation account")
-- [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
-[Intelligent design](Intelligent_design "Intelligent design")—(**[More](http://www.theopedia.com/index.php?title=Category:Creation&action=edit&redlink=1 "Category:Creation (page does not exist)")**)
+[Genesis creation account](Genesis_creation_account "Genesis creation account") –
+[Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
+[Intelligent design](Intelligent_design "Intelligent design") — 
+(**[More](http://www.theopedia.com/index.php?title=Category:Creation&action=edit&redlink=1 "Category:Creation (page does not exist)")**)
 
 ### [Church](Church "Church")
 
@@ -183,13 +183,13 @@ God and his people.
 ### [Church history](Church_history "Church history")
 
 [Early church](Early_church "Early church") —
-[Protestant Reformation](Protestant_Reformation "Protestant Reformation")
--
-[Creeds and confessions](Creeds_and_confessions "Creeds and confessions")
-- [Great awakenings](Great_awakenings "Great awakenings") —
+[Protestant Reformation](Protestant_Reformation "Protestant Reformation") –
+[Creeds and confessions](Creeds_and_confessions "Creeds and confessions") –
+[Great awakenings](Great_awakenings "Great awakenings") —
 [Liberalism](Liberalism "Liberalism") —
 [The Fundamentals](The_Fundamentals "The Fundamentals") —
-[Evangelicalism](Evangelicalism "Evangelicalism")—(**[More](http://www.theopedia.com/Category:Church_history "Category:Church history")**)
+[Evangelicalism](Evangelicalism "Evangelicalism") — 
+(**[More](http://www.theopedia.com/Category:Church_history "Category:Church history")**)
 
 ### [Salvation](Salvation "Salvation")
 
@@ -204,28 +204,27 @@ God and his people.
 [Union with Christ](Union_with_Christ "Union with Christ") —
 [Adoption](Adoption "Adoption") —
 [Sanctification](Sanctification "Sanctification") —
-[Assurance of salvation](Assurance_of_salvation "Assurance of salvation")
-- [Means of grace](Means_of_grace "Means of grace") —
+[Assurance of salvation](Assurance_of_salvation "Assurance of salvation") –
+[Means of grace](Means_of_grace "Means of grace") —
 [Gifts of the Spirit](Gifts_of_the_Spirit "Gifts of the Spirit") —
 [Lordship salvation](Lordship_salvation "Lordship salvation") —
-[Non-lordship salvation](Non-lordship_salvation "Non-lordship salvation")
-- [Predestination](Predestination "Predestination") —
+[Non-lordship salvation](Non-lordship_salvation "Non-lordship salvation") –
+[Predestination](Predestination "Predestination") —
 [Calvinism](Calvinism "Calvinism") —
 [Total depravity](Total_depravity "Total depravity") —
-[Unconditional election](Unconditional_election "Unconditional election")
-- [Limited atonement](Limited_atonement "Limited atonement") —
+[Unconditional election](Unconditional_election "Unconditional election") –
+[Limited atonement](Limited_atonement "Limited atonement") —
 [Irresistible grace](Irresistible_grace "Irresistible grace") —
-[Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints")
-- [Arminianism](Arminianism "Arminianism") —
+[Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints") –
+[Arminianism](Arminianism "Arminianism") —
 [Covenant theology](Covenant_theology "Covenant theology") —
-[Dispensationalism](Dispensationalism "Dispensationalism")—(**[More](http://www.theopedia.com/Category:Salvation "Category:Salvation")**)
-
-
+[Dispensationalism](Dispensationalism "Dispensationalism") —
+(**[More](http://www.theopedia.com/Category:Salvation "Category:Salvation")**)
 
 ### [God](God "God")
 
-[Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God")
-- [Revelation](Revelation "Revelation") —
+[Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God") –
+[Revelation](Revelation "Revelation") —
 [Redemptive history](Redemptive_history "Redemptive history") —
 [Knowability](Knowability_of_God "Knowability of God") —
 [Attributes](Attributes_of_God "Attributes of God") —
@@ -249,10 +248,10 @@ God and his people.
 [Temptation](Temptation_of_Jesus "Temptation of Jesus") —
 [Resurrection](Resurrection_of_Christ "Resurrection of Christ") —
 [Ascension](Ascension_of_Jesus "Ascension of Jesus") —
-[Pre-existence](Pre-existence_of_Christ "Pre-existence of Christ")
-- [Eternal Sonship](Eternal_Sonship "Eternal Sonship") —
-[Eternal generation](Eternal_generation_of_the_Son "Eternal generation of the Son")
-- [Deity](Deity_of_Christ "Deity of Christ") —
+[Pre-existence](Pre-existence_of_Christ "Pre-existence of Christ") –
+[Eternal Sonship](Eternal_Sonship "Eternal Sonship") —
+[Eternal generation](Eternal_generation_of_the_Son "Eternal generation of the Son") –
+[Deity](Deity_of_Christ "Deity of Christ") —
 [Two natures](Two_natures_of_Christ "Two natures of Christ") —
 [Incarnation](Incarnation_of_Christ "Incarnation of Christ") —
 [Humanity](Humanity_of_Jesus "Humanity of Jesus") —
@@ -260,10 +259,10 @@ God and his people.
 [Jewishness](Jewishness_of_Christ "Jewishness of Christ") —
 [Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant")
 -
-[Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam")
-- [Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
-[Impeccability](Impeccability_of_Christ "Impeccability of Christ")
-- [Emotions](Emotions_of_Jesus "Emotions of Jesus") —
+[Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam") –
+[Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
+[Impeccability](Impeccability_of_Christ "Impeccability of Christ") –
+[Emotions](Emotions_of_Jesus "Emotions of Jesus") —
 [Atonement](Atonement_of_Jesus "Atonement of Jesus") —
 [Historicity](Historicity_of_Jesus "Historicity of Jesus") —
 [Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
@@ -272,19 +271,16 @@ God and his people.
 
 ### [Holy Spirit](Holy_Spirit "Holy Spirit")
 
-[Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit")
-- [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
+[Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit") –
+[Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
 [Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit") —
 [Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") —
-[Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit")
--
-[Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit")
--
-[Filling](index.php?title=Filling_of_the_Holy_Spirit&action=edit&redlink=1 "Filling of the Holy Spirit (page does not exist)")
--
-[Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
--
-[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") — (**[More](http://www.theopedia.com/Category:Holy_Spirit "Category:Holy Spirit")**)
+[Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit") –
+[Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit") –
+[Filling](index.php?title=Filling_of_the_Holy_Spirit&action=edit&redlink=1 "Filling of the Holy Spirit (page does not exist)") –
+[Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit") –
+[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
+(**[More](http://www.theopedia.com/Category:Holy_Spirit "Category:Holy Spirit")**)
 
 ### [Humanity](Humanity "Humanity")
 
@@ -292,8 +288,8 @@ God and his people.
 [The Fall](The_Fall "The Fall") —
 [Original sin](Original_sin "Original sin") —
 [Total depravity](Total_depravity "Total depravity") —
-[Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin")
-- [Death](Death "Death") —
+[Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin") –
+[Death](Death "Death") —
 [Common grace](Common_grace "Common grace")—(**[More](http://www.theopedia.com/index.php?title=Category:Humanity&action=edit&redlink=1 "Category:Humanity (page does not exist)")**)
 
 ### [Biographies](http://www.theopedia.com/Category:Biographies "Category:Biographies")
@@ -340,8 +336,8 @@ God and his people.
 
 ### [End times](End_times "End times")
 
-[Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
-- [Second Coming](Second_Coming "Second Coming") —
+[Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology") –
+[Second Coming](Second_Coming "Second Coming") —
 [Millennial kingdom](Millennial_kingdom "Millennial kingdom") —
 [Rapture](Rapture "Rapture") — [Heaven](Heaven "Heaven") —
 [Hell](Hell "Hell") —
