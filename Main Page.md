@@ -257,8 +257,7 @@ God and his people.
 [Humanity](Humanity_of_Jesus "Humanity of Jesus") —
 [Offices](Offices_of_Christ "Offices of Christ") —
 [Jewishness](Jewishness_of_Christ "Jewishness of Christ") —
-[Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant")
--
+[Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant") –
 [Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam") –
 [Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
 [Impeccability](Impeccability_of_Christ "Impeccability of Christ") –
