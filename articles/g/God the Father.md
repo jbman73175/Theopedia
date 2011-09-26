@@ -80,6 +80,7 @@ because you are sons, God has sent forth the Spirit of His Son into
 your hearts crying out, 'Abba, Father!' Therefore you are no longer
 a slave but a son, and if a son, then an heir of God through
 Christ." (Galatians 4:4-7)
+
 ## Worship: to the glory of God the Father
 
 In his *Commentary on John*,
