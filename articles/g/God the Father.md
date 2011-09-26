@@ -9,7 +9,7 @@ the words of the Lord, it is
 [eternal life](Eternal_life "Eternal life") to know the Father,
 "the only true God", and Jesus Christ whom he has
 sent.[^3] To see how this confession of faith in "the
-God and Father of our Lord, Jesus Christ" [^4]
+God and Father of our Lord, Jesus Christ"[^4]
 necessarily implies [Trinitarianism](Trinity "Trinity") requires
 fuller explanation from Scripture, and the wisdom which is given by
 the Holy Spirit.[^5]
