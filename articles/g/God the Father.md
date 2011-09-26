@@ -103,9 +103,6 @@ Christ, whom the Father has "highly exalted and bestowed on him the
 name that is above every name", it is to the infinite glory of God
 the Father through the Son in the Spirit.[^14]
 
-## Notes
-
-
 [^1]: [John Calvin](John_Calvin "John Calvin")
     *Institutes of the Christian Religion*, Book 1, Chapter 13, Section
     18
