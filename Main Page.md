@@ -29,11 +29,11 @@ corresponding phrases are: *Sola Fide*, faith alone;
 
 ### Recommended multimedia
 
--   Sola Scriptura: The Scripture Alone -
+-   Sola Scriptura: The Scripture Alone —
     [Part 1](http://www.reformedsermons.org/mp3-16/Ross_2Pet1to3a.mp3),
     [Part 2](http://www.reformedsermons.org/mp3-16/Ross_2Pet1to3b.mp3),
     by Michael Ross
--   Sola Fide: Faith Alone -
+-   Sola Fide: Faith Alone —
     [Part 1](http://www.reformedsermons.org/mp3-16/Ross_Rom4_1to25.mp3),
     [Part 2](http://www.reformedsermons.org/mp3-16/Ross_Rom4.mp3), by
     Michael Ross
@@ -45,7 +45,7 @@ corresponding phrases are: *Sola Fide*, faith alone;
 -   [The Five Solas of the Reformation](http://www.fivesolas.com/5solas.htm),
     by Gregg Strawbridge
 
--   [Reformation Essentials - Five Pillars of the Reformation](http://www.monergism.com/thethreshold/articles/onsite/essentials.html),
+-   [Reformation Essentials — Five Pillars of the Reformation](http://www.monergism.com/thethreshold/articles/onsite/essentials.html),
     by Michael Horton
 
 ## What is Christianity?
@@ -145,81 +145,79 @@ God and his people.
 
 ### [Bible](Bible "Bible")
 
-[Old Testament](Old_Testament "Old Testament") -
-[New Testament](New_Testament "New Testament") -
-[Historicity of Old Testament](Historicity_of_the_Old_Testament "Historicity of the Old Testament")
--
+[Old Testament](Old_Testament "Old Testament") –
+[New Testament](New_Testament "New Testament") –
+[Historicity of Old Testament](Historicity_of_the_Old_Testament "Historicity of the Old Testament") –
 [Historicity of New Testament](Historicity_of_the_New_Testament "Historicity of the New Testament")
--
-[Development of the canon](Development_of_the_canon "Development of the canon")
--
+–
+[Development of the canon](Development_of_the_canon "Development of the canon") –
 [Transmission](Transmission_of_the_Bible "Transmission of the Bible")
-- [Archaeology](Biblical_archaeology "Biblical archaeology") -
-[Authority](Authority_of_the_Bible "Authority of the Bible") -
+– [Archaeology](Biblical_archaeology "Biblical archaeology") –
+[Authority](Authority_of_the_Bible "Authority of the Bible") –
 [Inspiration](Inspiration_of_the_Bible "Inspiration of the Bible")
-- [Inerrancy](Inerrancy_of_the_Bible "Inerrancy of the Bible") -
+- [Inerrancy](Inerrancy_of_the_Bible "Inerrancy of the Bible") —
 [Translation](Translation_of_the_Bible "Translation of the Bible")
 -
 [Interpretation](Interpretation_of_the_Bible "Interpretation of the Bible")
 -
 [Divine accommodation](Divine_accommodation "Divine accommodation")
-- [Clarity](Clarity_of_Scripture "Clarity of Scripture") -
-[Scripture alone](Scripture_alone "Scripture alone") -
+- [Clarity](Clarity_of_Scripture "Clarity of Scripture") —
+[Scripture alone](Scripture_alone "Scripture alone") —
 [Biblical criticism](Biblical_criticism "Biblical criticism")—(**[More](http://www.theopedia.com/Category:Bible "Category:Bible")**)
 
 ### [Creation](Creation "Creation")
 
 [Genesis creation account](Genesis_creation_account "Genesis creation account")
-- [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") -
+- [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
 [Intelligent design](Intelligent_design "Intelligent design")—(**[More](http://www.theopedia.com/index.php?title=Category:Creation&action=edit&redlink=1 "Category:Creation (page does not exist)")**)
 
 ### [Church](Church "Church")
 
-[Church government](Church_government "Church government") -
-[Elder](Elder "Elder") -
-[Church membership](Church_membership "Church membership") -
-[Church discipline](Church_discipline "Church discipline") -
-[Baptism](Baptism "Baptism") -
+[Church government](Church_government "Church government") —
+[Elder](Elder "Elder") —
+[Church membership](Church_membership "Church membership") —
+[Church discipline](Church_discipline "Church discipline") —
+[Baptism](Baptism "Baptism") —
 [Communion](Communion "Communion")—(**[More](http://www.theopedia.com/index.php?title=Category:Ecclesiology&action=edit&redlink=1 "Category:Ecclesiology (page does not exist)")**)
 
 ### [Church history](Church_history "Church history")
 
-[Early church](Early_church "Early church") -
+[Early church](Early_church "Early church") —
 [Protestant Reformation](Protestant_Reformation "Protestant Reformation")
 -
 [Creeds and confessions](Creeds_and_confessions "Creeds and confessions")
-- [Great awakenings](Great_awakenings "Great awakenings") -
-[Liberalism](Liberalism "Liberalism") -
-[The Fundamentals](The_Fundamentals "The Fundamentals") -
+- [Great awakenings](Great_awakenings "Great awakenings") —
+[Liberalism](Liberalism "Liberalism") —
+[The Fundamentals](The_Fundamentals "The Fundamentals") —
 [Evangelicalism](Evangelicalism "Evangelicalism")—(**[More](http://www.theopedia.com/Category:Church_history "Category:Church history")**)
 
 ### [Salvation](Salvation "Salvation")
 
-[Sin](Sin "Sin") -
-[Justice of God](Justice_of_God "Justice of God") -
-[Grace](Grace "Grace") -
-[Kingdom of God](Kingdom_of_God "Kingdom of God") -
-[Prevenient grace](Prevenient_grace "Prevenient grace") -
-[Regeneration](Regeneration "Regeneration") -
-[Faith](Faith "Faith") -
-[Justification](Justification "Justification") -
-[Union with Christ](Union_with_Christ "Union with Christ") -
-[Adoption](Adoption "Adoption") -
-[Sanctification](Sanctification "Sanctification") -
+[Sin](Sin "Sin") —
+[Justice of God](Justice_of_God "Justice of God") —
+[Grace](Grace "Grace") —
+[Kingdom of God](Kingdom_of_God "Kingdom of God") —
+[Prevenient grace](Prevenient_grace "Prevenient grace") —
+[Regeneration](Regeneration "Regeneration") —
+[Faith](Faith "Faith") —
+[Justification](Justification "Justification") —
+[Union with Christ](Union_with_Christ "Union with Christ") —
+[Adoption](Adoption "Adoption") —
+[Sanctification](Sanctification "Sanctification") —
 [Assurance of salvation](Assurance_of_salvation "Assurance of salvation")
-- [Means of grace](Means_of_grace "Means of grace") -
-[Gifts of the Spirit](Gifts_of_the_Spirit "Gifts of the Spirit") -
-[Lordship salvation](Lordship_salvation "Lordship salvation") -
+- [Means of grace](Means_of_grace "Means of grace") —
+[Gifts of the Spirit](Gifts_of_the_Spirit "Gifts of the Spirit") —
+[Lordship salvation](Lordship_salvation "Lordship salvation") —
 [Non-lordship salvation](Non-lordship_salvation "Non-lordship salvation")
-- [Predestination](Predestination "Predestination") -
-[Calvinism](Calvinism "Calvinism") -
-[Total depravity](Total_depravity "Total depravity") -
+- [Predestination](Predestination "Predestination") —
+[Calvinism](Calvinism "Calvinism") —
+[Total depravity](Total_depravity "Total depravity") —
 [Unconditional election](Unconditional_election "Unconditional election")
-- [Limited atonement](Limited_atonement "Limited atonement") -
-[Irresistible grace](Irresistible_grace "Irresistible grace") -
+- [Limited atonement](Limited_atonement "Limited atonement") —
+[Irresistible grace](Irresistible_grace "Irresistible grace") —
 [Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints")
-- [Arminianism](Arminianism "Arminianism") -
-[Covenant theology](Covenant_theology "Covenant theology") -
+- [Arminianism](Arminianism "Arminianism") —
+[Covenant theology](Covenant_theology "Covenant theology") —
 [Dispensationalism](Dispensationalism "Dispensationalism")—(**[More](http://www.theopedia.com/Category:Salvation "Category:Salvation")**)
 
 
@@ -227,57 +225,57 @@ God and his people.
 ### [God](God "God")
 
 [Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God")
-- [Revelation](Revelation "Revelation") -
-[Redemptive history](Redemptive_history "Redemptive history") -
-[Knowability](Knowability_of_God "Knowability of God") -
-[Attributes](Attributes_of_God "Attributes of God") -
-[Names](Names_of_God "Names of God") -
-[Immanence](Immanence_of_God "Immanence of God") -
-[Transcendence](Transcendence_of_God "Transcendence of God") -
-[God the Father](God_the_Father "God the Father") -
-[Trinity](Trinity "Trinity") -
+- [Revelation](Revelation "Revelation") —
+[Redemptive history](Redemptive_history "Redemptive history") —
+[Knowability](Knowability_of_God "Knowability of God") —
+[Attributes](Attributes_of_God "Attributes of God") —
+[Names](Names_of_God "Names of God") —
+[Immanence](Immanence_of_God "Immanence of God") —
+[Transcendence](Transcendence_of_God "Transcendence of God") —
+[God the Father](God_the_Father "God the Father") —
+[Trinity](Trinity "Trinity") —
 [Perichoresis](Perichoresis "Perichoresis")—(**[More](http://www.theopedia.com/Category:God "Category:God")**)
 
 ### [Jesus Christ](Jesus_Christ "Jesus Christ")
 
-[Life](Life_of_Jesus "Life of Jesus") -
-[Virgin birth](Virgin_birth "Virgin birth") -
-[Baptism](Baptism_of_Jesus "Baptism of Jesus") -
-[Messianic Secret](Messianic_Secret "Messianic Secret") -
-[Miracles](Miracles_of_Jesus "Miracles of Jesus") -
-[Teachings](Teachings_of_Jesus "Teachings of Jesus") -
-[Parables](Parables_of_Jesus "Parables of Jesus") -
-[Ipsissima vox](Ipsissima_vox "Ipsissima vox") -
-[Temptation](Temptation_of_Jesus "Temptation of Jesus") -
-[Resurrection](Resurrection_of_Christ "Resurrection of Christ") -
-[Ascension](Ascension_of_Jesus "Ascension of Jesus") -
+[Life](Life_of_Jesus "Life of Jesus") —
+[Virgin birth](Virgin_birth "Virgin birth") —
+[Baptism](Baptism_of_Jesus "Baptism of Jesus") —
+[Messianic Secret](Messianic_Secret "Messianic Secret") —
+[Miracles](Miracles_of_Jesus "Miracles of Jesus") —
+[Teachings](Teachings_of_Jesus "Teachings of Jesus") —
+[Parables](Parables_of_Jesus "Parables of Jesus") —
+[Ipsissima vox](Ipsissima_vox "Ipsissima vox") —
+[Temptation](Temptation_of_Jesus "Temptation of Jesus") —
+[Resurrection](Resurrection_of_Christ "Resurrection of Christ") —
+[Ascension](Ascension_of_Jesus "Ascension of Jesus") —
 [Pre-existence](Pre-existence_of_Christ "Pre-existence of Christ")
-- [Eternal Sonship](Eternal_Sonship "Eternal Sonship") -
+- [Eternal Sonship](Eternal_Sonship "Eternal Sonship") —
 [Eternal generation](Eternal_generation_of_the_Son "Eternal generation of the Son")
-- [Deity](Deity_of_Christ "Deity of Christ") -
-[Two natures](Two_natures_of_Christ "Two natures of Christ") -
-[Incarnation](Incarnation_of_Christ "Incarnation of Christ") -
-[Humanity](Humanity_of_Jesus "Humanity of Jesus") -
-[Offices](Offices_of_Christ "Offices of Christ") -
-[Jewishness](Jewishness_of_Christ "Jewishness of Christ") -
+- [Deity](Deity_of_Christ "Deity of Christ") —
+[Two natures](Two_natures_of_Christ "Two natures of Christ") —
+[Incarnation](Incarnation_of_Christ "Incarnation of Christ") —
+[Humanity](Humanity_of_Jesus "Humanity of Jesus") —
+[Offices](Offices_of_Christ "Offices of Christ") —
+[Jewishness](Jewishness_of_Christ "Jewishness of Christ") —
 [Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant")
 -
 [Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam")
-- [Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") -
+- [Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
 [Impeccability](Impeccability_of_Christ "Impeccability of Christ")
-- [Emotions](Emotions_of_Jesus "Emotions of Jesus") -
-[Atonement](Atonement_of_Jesus "Atonement of Jesus") -
-[Historicity](Historicity_of_Jesus "Historicity of Jesus") -
-[Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") -
-[Messianic prophecy](Messianic_prophecy "Messianic prophecy") -
+- [Emotions](Emotions_of_Jesus "Emotions of Jesus") —
+[Atonement](Atonement_of_Jesus "Atonement of Jesus") —
+[Historicity](Historicity_of_Jesus "Historicity of Jesus") —
+[Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
+[Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
 [Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—(**[More](http://www.theopedia.com/Category:Jesus_Christ "Category:Jesus Christ")**)
 
 ### [Holy Spirit](Holy_Spirit "Holy Spirit")
 
 [Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit")
-- [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") -
-[Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit") -
-[Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") -
+- [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
+[Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit") —
+[Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") —
 [Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit")
 -
 [Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit")
@@ -286,81 +284,67 @@ God and his people.
 -
 [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
 -
-[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit")—(**[More](http://www.theopedia.com/Category:Holy_Spirit "Category:Holy Spirit")**)
+[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") — (**[More](http://www.theopedia.com/Category:Holy_Spirit "Category:Holy Spirit")**)
 
 ### [Humanity](Humanity "Humanity")
 
-[Image of God](Image_of_God "Image of God") -
-[The Fall](The_Fall "The Fall") -
-[Original sin](Original_sin "Original sin") -
-[Total depravity](Total_depravity "Total depravity") -
+[Image of God](Image_of_God "Image of God") —
+[The Fall](The_Fall "The Fall") —
+[Original sin](Original_sin "Original sin") —
+[Total depravity](Total_depravity "Total depravity") —
 [Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin")
-- [Death](Death "Death") -
+- [Death](Death "Death") —
 [Common grace](Common_grace "Common grace")—(**[More](http://www.theopedia.com/index.php?title=Category:Humanity&action=edit&redlink=1 "Category:Humanity (page does not exist)")**)
 
 ### [Biographies](http://www.theopedia.com/Category:Biographies "Category:Biographies")
 
-[Apostolic Fathers](Apostolic_Fathers "Apostolic Fathers") -
-[Apologists](http://www.theopedia.com/Category:Apologists "Category:Apologists")
--
-[Authors](http://www.theopedia.com/Category:Authors "Category:Authors")
--
-[Christian philosophers](http://www.theopedia.com/Category:Christian_philosophers "Category:Christian philosophers")
--
-[Early church fathers](http://www.theopedia.com/Category:Early_church_fathers "Category:Early church fathers")
--
-[Evangelists](http://www.theopedia.com/Category:Evangelists "Category:Evangelists")
--
-[New Testament scholars](http://www.theopedia.com/Category:New_Testament_scholars "Category:New Testament scholars")
--
-[Old Testament scholars](http://www.theopedia.com/Category:Old_Testament_scholars "Category:Old Testament scholars")
--
-[Pastors](http://www.theopedia.com/Category:Pastors "Category:Pastors")
--
-[People in the Bible](http://www.theopedia.com/Category:People_in_the_Bible "Category:People in the Bible")
--
+[Apostolic Fathers](Apostolic_Fathers "Apostolic Fathers") —
+[Apologists](http://www.theopedia.com/Category:Apologists "Category:Apologists") —
+[Authors](http://www.theopedia.com/Category:Authors "Category:Authors") —
+[Christian philosophers](http://www.theopedia.com/Category:Christian_philosophers "Category:Christian philosophers") —
+[Early church fathers](http://www.theopedia.com/Category:Early_church_fathers "Category:Early church fathers") —
+[Evangelists](http://www.theopedia.com/Category:Evangelists "Category:Evangelists") —
+[New Testament scholars](http://www.theopedia.com/Category:New_Testament_scholars "Category:New Testament scholars") —
+[Old Testament scholars](http://www.theopedia.com/Category:Old_Testament_scholars "Category:Old Testament scholars") —
+[Pastors](http://www.theopedia.com/Category:Pastors "Category:Pastors") —
+[People in the Bible](http://www.theopedia.com/Category:People_in_the_Bible "Category:People in the Bible") —
 [Theologians](http://www.theopedia.com/Category:Theologians "Category:Theologians")—(**[More](http://www.theopedia.com/Category:Biographies "Category:Biographies")**)
 
 ### [Notable Theologians](http://www.theopedia.com/Category:Theologians "Category:Theologians")
 
-[J. I. Packer](J._I._Packer "J. I. Packer") -
-[Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") -
-[John Frame](John_Frame "John Frame") -
-[Tertullian](Tertullian "Tertullian") -
-[John Piper](John_Piper "John Piper") -
-[R.C. Sproul](R.C._Sproul "R.C. Sproul") -
+[J. I. Packer](J._I._Packer "J. I. Packer") —
+[Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") —
+[John Frame](John_Frame "John Frame") —
+[Tertullian](Tertullian "Tertullian") —
+[John Piper](John_Piper "John Piper") —
+[R.C. Sproul](R.C._Sproul "R.C. Sproul") —
 [John Webster](John_Webster "John Webster")—(**[More](http://www.theopedia.com/Category:Theologians "Category:Theologians")**)
-
-
 
 ### [Christian living](Christian_living "Christian living")
 
-[Fruit of the Spirit](Fruit_of_the_Spirit "Fruit of the Spirit") -
-[Bible study](Bible_study "Bible study") -
-[Legalism](Legalism "Legalism") - [Prayer](Prayer "Prayer") -
-[Suffering](Suffering "Suffering") - [Worship](Worship "Worship") -
-[Money](Money "Money") - [Abortion](Abortion "Abortion") -
-[Child bearing](Child_bearing "Child bearing") -
-[Child training](Child_training "Child training") -
-[Marriage](Marriage "Marriage") -
+[Fruit of the Spirit](Fruit_of_the_Spirit "Fruit of the Spirit") —
+[Bible study](Bible_study "Bible study") —
+[Legalism](Legalism "Legalism") — [Prayer](Prayer "Prayer") —
+[Suffering](Suffering "Suffering") — [Worship](Worship "Worship") —
+[Money](Money "Money") — [Abortion](Abortion "Abortion") —
+[Child bearing](Child_bearing "Child bearing") —
+[Child training](Child_training "Child training") —
+[Marriage](Marriage "Marriage") —
 [Divorce and remarriage](Divorce_and_remarriage "Divorce and remarriage")
-- [Contraceptives](Contraceptives "Contraceptives") -
-[Alcohol](Alcohol "Alcohol") -
+- [Contraceptives](Contraceptives "Contraceptives") —
+[Alcohol](Alcohol "Alcohol") —
 [Manhood and womanhood](Manhood_and_womanhood "Manhood and womanhood")
-- [Dating](Dating "Dating") - [Sex](Sex "Sex") -
-[Homosexuality](Homosexuality "Homosexuality") -
+- [Dating](Dating "Dating") — [Sex](Sex "Sex") —
+[Homosexuality](Homosexuality "Homosexuality") —
 [Christian hedonism](Christian_hedonism "Christian hedonism")—(**[More](http://www.theopedia.com/Category:Christian_living "Category:Christian living")**)
 
 ### [End times](End_times "End times")
 
 [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
-- [Second Coming](Second_Coming "Second Coming") -
-[Millennial kingdom](Millennial_kingdom "Millennial kingdom") -
-[Rapture](Rapture "Rapture") - [Heaven](Heaven "Heaven") -
-[Hell](Hell "Hell") -
-[Final judgment](Final_judgment "Final judgment") -
-[Resurrection](Resurrection "Resurrection") -
-[Glorification](Glorification "Glorification")—(**[More](http://www.theopedia.com/index.php?title=Category:Eschatology&action=edit&redlink=1 "Category:Eschatology (page does not exist)")**)
-
-
-
+- [Second Coming](Second_Coming "Second Coming") —
+[Millennial kingdom](Millennial_kingdom "Millennial kingdom") —
+[Rapture](Rapture "Rapture") — [Heaven](Heaven "Heaven") —
+[Hell](Hell "Hell") —
+[Final judgment](Final_judgment "Final judgment") —
+[Resurrection](Resurrection "Resurrection") —
+[Glorification](Glorification "Glorification") — (**[More](http://www.theopedia.com/index.php?title=Category:Eschatology&action=edit&redlink=1 "Category:Eschatology (page does not exist)")**)
