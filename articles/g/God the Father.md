@@ -107,30 +107,42 @@ the Father through the Son in the Spirit.[^14]
 [^1]: [John Calvin](John_Calvin "John Calvin")
     *Institutes of the Christian Religion*, Book 1, Chapter 13, Section
     18
+
 [^2]: Robert Letham,
     *The Holy Trinity: in Scripture, History, Theology and Worship*, p
     36
+
 [^3]: [Gospel of John](Gospel_of_John "Gospel of John")
     [17:3](http://www.biblegateway.com/passage/?search=John%2017:3;&version=47;)
+
 [^4]: [Ephesians](Ephesians "Ephesians")
     [1:17](http://www.biblegateway.com/passage/?book_id=56&chapter=1&verse=17&version=47&context=verse)
+
 [^5]: [1 Corinthians](1_Corinthians "1 Corinthians")
     [2:6-13](http://www.biblegateway.com/passage/?search=1%20Corinthians%202:6-13;&version=47;)
     " ... But we impart a secret and hidden wisdom of God, which God
     decreed before the ages for our glory. ... "
+
 [^6]: [Romans 8:15](http://www.biblegateway.com/passage/?book_id=52&chapter=8&verse=15&version=47&context=verse)
+
 [^7]: *Institutes*, Book 1, Chapter 13, Section 24 (Latin
     added).
+
 [^8]:
     [Ephesians](Ephesians "Ephesians")[1:20,21](http://www.biblegateway.com/passage/?search=Ephesians%201:20,21&version=47)
+
 [^9]:
     *See [Eternal generation of the Son](Eternal_generation_of_the_Son "Eternal generation of the Son")*
+
 [^10]: [Ephesians](Ephesians "Ephesians")
     [3:15](http://www.biblegateway.com/passage/?search=Ephesians%203:15;&version=47;)
+
 [^11]: John Owen, *Of Communion with God*, in *Works*,ed.
     Goold, 2:8-9
+
 [^12]: [Colossians](Colossians "Colossians")
     [1:27](http://www.biblegateway.com/passage/?book_id=58&chapter=1&verse=27&version=47&context=verse)
+    
 [^13]: Basil of Caesarea, *On the Holy Spirit* 26:62 (as
     quoted in Robert Letham, *The Holy Trinity*, pg 416): "It is an
     extraordinary statement, but it is nonetheless true, that the
@@ -140,6 +152,7 @@ the Father through the Son in the Spirit.[^14]
     It follows that the Spirit is truly the place of the saints and the
     saint is the proper place for the Spirit, offering himself as he
     does for the indwelling of God, and called God's temple."
+
 [^14]: [Philippians](Philippians "Philippians")
     [2:9-11](http://www.biblegateway.com/passage/?search=Philippians%202:9-11&version=47)
 
