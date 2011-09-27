@@ -5,7 +5,7 @@ Christian faith. As
 [Christoph Schwöbel](Christoph_Schwöbel "Christoph Schwöbel") has
 stated, "it is difficult to point to any one area of theological
 reflection that is not potentially affected by being viewed from a
-trinitarian perspective." ^[[1]](#note-0)^
+trinitarian perspective." [^1]
 
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Contents
@@ -14,13 +14,6 @@ trinitarian perspective." ^[[1]](#note-0)^
 -   [2 See also](#See_also)
 -   [3 Further reading](#Further_reading)
 -   [4 External links](#External_links)
-
-## Notes
-
-1.  [↑](#ref-0) Christoph Schwöbel, "Introduction: The Renaissance
-    of Trinitarian Theology: Reasons, Problems and Tasks", pp. 1-2 in
-    *Trinitarian Theology Today*, ed. Christoph Schwöbel. T&T Clark,
-    1995.
 
 ## See also
 
@@ -51,9 +44,7 @@ trinitarian perspective." ^[[1]](#note-0)^
     *[Nicaea and its Legacy: An Approach to Fourth-Century Trinitarian Theology](http://books.google.com/books?id=CYbDjXRz5-0C&printsec=frontcover)*.
     Oxford University Press, 2004. (esp. chs 11-16)
 
-## External links
-
--   TBD
-
-
-
+[^1]: Christoph Schwöbel, "Introduction: The Renaissance
+    of Trinitarian Theology: Reasons, Problems and Tasks", pp. 1-2 in
+    *Trinitarian Theology Today*, ed. Christoph Schwöbel. T&T Clark,
+    1995.
