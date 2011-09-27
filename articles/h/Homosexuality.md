@@ -12,7 +12,7 @@ Homosexuality specifically concerns yielding one's imagination,
 speech, or will to erotic and romantic passions toward people of
 the same sex.
 
-**Multimedia**
+##Multimedia
 
 -   [God's Word on Homosexuality: 4 parts](http://thegospelcoalition.org/blogs/justintaylor/2008/12/11/schreiner-gods-word-on-homosexuality/),
     by [Thomas Schreiner](Thomas_Schreiner "Thomas Schreiner")
@@ -29,27 +29,6 @@ the same sex.
     (YouTube video), by [John Piper](John_Piper "John Piper")
 -   [How Do I Balance Disagreeing Yet Still Loving Those Of My Friends Who Are Homosexuals?](http://www.youtube.com/watch?v=b1gMwQT2NsA),
     by Rob Turner
-
-## Contents
-
--   [1 Passages related to Homosexuality](#Passages_related_to_Homosexuality)
-    -   [1.1 Genesis 19 (cf. 2 Peter 2:7 and Jude 7)](#Genesis_19_.28cf._2_Peter_2:7_and_Jude_7.29)
-    -   [1.2 Leviticus 18:22](#Leviticus_18:22)
-    -   [1.3 Leviticus 20:13](#Leviticus_20:13)
-    -   [1.4 Romans 1:26-27](#Romans_1:26-27)
-    -   [1.5 1 Corinthians 6:9-10](#1_Corinthians_6:9-10)
-    -   [1.6 1 Timothy 1:10](#1_Timothy_1:10)
-
--   [2 Al Mohler on homosexuality](#Al_Mohler_on_homosexuality)
--   [3 John Frame on Innateness](#John_Frame_on_Innateness)
--   [4 Jonathan Edwards on humility](#Jonathan_Edwards_on_humility)
--   [5 Books](#Books)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Critical](#Critical)
-    -   [7.2 Favorable](#Favorable)
-    -   [7.3 Other](#Other)
-
 
 ## Passages related to Homosexuality
 
