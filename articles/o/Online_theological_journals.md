@@ -1,16 +1,3 @@
-## Contents
-
--   [1 Reformed](#Reformed)
--   [2 Anglican](#Anglican)
--   [3 Lutheran](#Lutheran)
--   [4 Evangelical](#Evangelical)
--   [5 Baptist](#Baptist)
--   [6 Arminian / Wesleyan](#Arminian_.2F_Wesleyan)
--   [7 Catholic](#Catholic)
--   [8 Unsorted / Other](#Unsorted_.2F_Other)
--   [9 Other collections](#Other_collections)
--   [10 Search engines](#Search_engines)
-
 ## Reformed
 
 -   [Western Reformed Seminary Journal](http://wrs.edu/category/wrsjournal/)
