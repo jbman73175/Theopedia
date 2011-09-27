@@ -27,8 +27,6 @@
     2008"
 -   [Bibliotheca Sacra](http://www.dts.edu/bibsac/) maintained by
     Dallas Theological Seminary (requires paid subscription)
--   [[1]](http://Bibleandtheology.org/) Bible And Theology, An
-    Online Journal
 
 ## Baptist
 
