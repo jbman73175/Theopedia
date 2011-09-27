@@ -37,18 +37,12 @@
 -   [Leadership: The Message of 1 Timothy](http://dl.salemweb.net/?mg=6A9BAFB3-D83B-4BE8-A5AF-F5CBF0720088)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
+## External links
 
--   [1 Chapters](#Chapters)
-
-## Chapters
-
-[1](index.php?title=1_Timothy_1&action=edit&redlink=1 "1 Timothy 1 (page does not exist)"),
-[2](1_Timothy_2 "1 Timothy 2"),
-[3](index.php?title=1_Timothy_3&action=edit&redlink=1 "1 Timothy 3 (page does not exist)"),
-[4](index.php?title=1_Timothy_4&action=edit&redlink=1 "1 Timothy 4 (page does not exist)"),
-[5](index.php?title=1_Timothy_5&action=edit&redlink=1 "1 Timothy 5 (page does not exist)"),
-[6](index.php?title=1_Timothy_6&action=edit&redlink=1 "1 Timothy 6 (page does not exist)")
-
-
+-   [Faithful Women in Christian Ministry: A Reading of 1 Timothy 2:12](http://www.spu.edu/depts/theology/lectures/WallPresentation.pdf)
+    (PDF), by Robert W. Wall (non-complementarian view)
+-   [What Does It Mean Not to Teach or Have Authority Over Men: 1 Timothy 2:11-15](http://www.bible.org/page.asp?page_id=2829),
+    by [Douglas Moo](Douglas_Moo "Douglas Moo")
+-   [Literal Renderings of Texts of Contention-- 1 Tim. 2.8-15](http://benwitherington.blogspot.com/2006/02/literal-renderings-of-texts-of.html),
+    by [Ben Witherington](Ben_Witherington "Ben Witherington")
 
