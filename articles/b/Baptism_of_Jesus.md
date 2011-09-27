@@ -47,27 +47,6 @@ baptism of Jesus Christ.
 *Note: The bulk of the content for this article was extracted from [The Baptism of Jesus](http://www.stilltruth.com/webfm_send/1161) (PDF) by Thomas Black, with the author's permission.*
 
 
-## Contents
-
--   [1 Biblical accounts](#Biblical_accounts)
--   [2 Textual Analysis](#Textual_Analysis)
-    -   [2.1 Translation](#Translation)
-    -   [2.2 Context](#Context)
-    -   [2.3 Textual Variation](#Textual_Variation)
-
--   [3 Syntax and Exegesis](#Syntax_and_Exegesis)
-    -   [3.1 Matthew 3:13](#Matthew_3:13)
-    -   [3.2 Matthew 3:14](#Matthew_3:14)
-    -   [3.3 Matthew 3:15](#Matthew_3:15)
-    -   [3.4 Matthew 3:16](#Matthew_3:16)
-    -   [3.5 Matthew 3:17](#Matthew_3:17)
-
--   [4 Explanation](#Explanation)
--   [5 Application](#Application)
--   [6 Conclusion](#Conclusion)
--   [7 Footnotes](#Footnotes)
--   [8 External links](#External_links)
-
 ## Biblical accounts
 
 And this was his
