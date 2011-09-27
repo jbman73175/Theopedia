@@ -4,14 +4,6 @@ combating ([heresies](Heresy "Heresy")) during the troubled era in
 the Christian Church following the
 [Council of Nicaea](Ecumenical_councils "Ecumenical councils").
 
-## Contents
-
--   [1 Ecclesiastical life](#Ecclesiastical_life)
--   [2 Writings](#Writings)
--   [3 Works](#Works)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Ecclesiastical life
 
 His reputation for learning prompted his nomination and

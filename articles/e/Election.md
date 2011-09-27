@@ -49,23 +49,6 @@ predestination; however, there are a variety of views as to *who*,
     [Part 5 - Its Practical Values](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/042_SLJ_69_32K.mp3)
     (MP3s), by [S. Lewis Johnson](S._Lewis_Johnson "S. Lewis Johnson")
 
-## Contents
-
--   [1 Conditional election](#Conditional_election)
--   [2 Corporate election](#Corporate_election)
-    -   [2.1 Calvinist argument](#Calvinist_argument)
-
--   [3 John Calvin](#John_Calvin)
--   [4 Westminster Confession of Faith](#Westminster_Confession_of_Faith)
--   [5 Notes](#Notes)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Unconditional election](#Unconditional_election)
-        -   [7.1.1 DesiringGod.org](#DesiringGod.org)
-        -   [7.1.2 Corporate Election According to Arminians](#Corporate_Election_According_to_Arminians)
-
-
-
 ## Conditional election
 
 [Jacobus Arminius](Jacobus_Arminius "Jacobus Arminius") disagreed
