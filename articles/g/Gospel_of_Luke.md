@@ -1,29 +1,3 @@
-**Gospel of Luke**
--   [Luke 1](Luke_1 "Luke 1")
--   [Luke 2](Luke_2 "Luke 2")
--   [Luke 3](Luke_3 "Luke 3")
--   [Luke 4](Luke_4 "Luke 4")
--   [Luke 5](Luke_5 "Luke 5")
--   [Luke 6](Luke_6 "Luke 6")
--   [Luke 7](Luke_7 "Luke 7")
--   [Luke 8](Luke_8 "Luke 8")
--   [Luke 9](Luke_9 "Luke 9")
--   [Luke 10](Luke_10 "Luke 10")
--   [Luke 11](Luke_11 "Luke 11")
--   [Luke 12](Luke_12 "Luke 12")
--   [Luke 13](Luke_13 "Luke 13")
--   [Luke 14](Luke_14 "Luke 14")
--   [Luke 15](Luke_15 "Luke 15")
--   [Luke 16](Luke_16 "Luke 16")
--   [Luke 17](Luke_17 "Luke 17")
--   [Luke 18](Luke_18 "Luke 18")
--   [Luke 19](Luke_19 "Luke 19")
--   [Luke 20](Luke_20 "Luke 20")
--   [Luke 21](Luke_21 "Luke 21")
--   [Luke 22](Luke_22 "Luke 22")
--   [Luke 23](Luke_23 "Luke 23")
--   [Luke 24](Luke_24 "Luke 24")
-
 [Old Testament](Old_Testament "Old Testament")
 [New Testament](New_Testament "New Testament")
 -   [Matthew](Gospel_of_Matthew "Gospel of Matthew")
@@ -81,21 +55,6 @@ first of a two volume account by Luke; the second is the
 
 -   [5 Acts](#Acts)
     -   [5.1 External links](#External_links)
-
-
-## Chapters
-
-[1](Luke_1 "Luke 1"), [2](Luke_2 "Luke 2"), [3](Luke_3 "Luke 3"),
-[4](Luke_4 "Luke 4"), [5](Luke_5 "Luke 5"), [6](Luke_6 "Luke 6"),
-[7](Luke_7 "Luke 7"), [8](Luke_8 "Luke 8"), [9](Luke_9 "Luke 9"),
-[10](Luke_10 "Luke 10"), [11](Luke_11 "Luke 11"),
-[12](Luke_12 "Luke 12"), [13](Luke_13 "Luke 13"),
-[14](Luke_14 "Luke 14"), [15](Luke_15 "Luke 15"),
-[16](Luke_16 "Luke 16"), [17](Luke_17 "Luke 17"),
-[18](Luke_18 "Luke 18"), [19](Luke_19 "Luke 19"),
-[20](Luke_20 "Luke 20"), [21](Luke_21 "Luke 21"),
-[22](Luke_22 "Luke 22"), [23](Luke_23 "Luke 23"),
-[24](Luke_24 "Luke 24")
 
 ## Authorship
 
@@ -168,5 +127,18 @@ narrative structures.
 -   [IVP Commentary on Luke](http://www.biblegateway.com/resources/commentaries/index.php?action=getBookSections&cid=3&source=),
     by [Darrell Bock](Darrell_Bock "Darrell Bock")
 
+### Online commentaries
 
-
+-   [Matthew Henry](http://eword.gospelcom.net/comments/luke/mh/luke1.htm)
+-   [Matthew Henry](http://eword.gospelcom.net/comments/luke/mhc/luke1.htm)
+    (concise)
+-   [John Darby](http://eword.gospelcom.net/comments/luke/darby/luke1.htm)
+-   [Geneva Study Bible](http://eword.gospelcom.net/comments/luke/geneva/luke1.htm)
+-   [John Gill](http://eword.gospelcom.net/comments/luke/gill/luke1.htm)
+-   [Jamieson, Faussett, and Brown](http://www.ewordtoday.com/comments/luke/jfb/luke1.htm)
+-   [B. W. Johnson](http://eword.gospelcom.net/comments/luke/johnson/luke1.htm)
+-   [McGarvey and Pendleton](http://eword.gospelcom.net/comments/luke/four/luke1.htm)
+-   [John Wesley](http://eword.gospelcom.net/comments/luke/wesley/luke1.htm)
+-   [John S. C. Abbott and Jacob Abbott](http://www.studylight.org/com/ain/view.cgi?book=lu&chapter=001)
+-   [Adam Clarke](http://www.studylight.org/com/acc/view.cgi?book=lu&chapter=001)
+-   [Albert Barnes](http://www.studylight.org/com/bnn/view.cgi?book=lu&chapter=001)
