@@ -121,5 +121,18 @@
 -   [Homilies on the Epistle of St. Paul to the Ephesians](http://www.biblestudytools.com/history/early-church-fathers/nicene/vol-13-saint-john-chrysostom/homilies-on-ephesians/homilies-epistle-of-st-paul-ephesians.html)
     Writings of Saint John Chrysostom
 
+### Chapter 1
 
+-   [Ephesians 1:3-4 and the Nature of Election](http://www.tms.edu/tmsj/tmsj11e.pdf)
+    (PDF), by Leslie James Crawford
 
+### Chapter 2
+
+-   [What is "The Dividing Wall" in Ephesians 2:14?](http://basictheology.com/articles/The_Dividing_Wall_of_Hostility/)
+    (basictheology.com)
+
+### Chapter 5
+
+-   [Bridging the Ephesians 5 Divide](http://www.christianitytoday.com/global/printer.html?/ct/2005/011/30.59.html),
+    by Sarah Sumner - "A fresh look at what this controversial marriage
+    passage says—and doesn't say."
