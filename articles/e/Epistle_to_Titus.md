@@ -40,10 +40,6 @@
 -   [Beginnings: The Message of Titus](http://dl.salemweb.net/?mg=F2F36360-FB17-4883-860F-36297C828273)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
-
--   [1 Chapters](#Chapters)
-
 ## Chapters
 
 [1](index.php?title=Titus_1&action=edit&redlink=1 "Titus 1 (page does not exist)"),

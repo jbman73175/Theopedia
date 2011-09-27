@@ -47,26 +47,6 @@
     -   [Galatians: Context](http://covenantseminary.inmotionhosting.com/NT230_Lecture_13.mp3)
     -   [Galatians & Law(s)](http://covenantseminary.inmotionhosting.com/NT230_Lecture_14.mp3)
 
-
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Purpose](#Purpose)
--   [3 Theology](#Theology)
--   [4 References](#References)
--   [5 External links](#External_links)
-
-
-
-## Chapters
-
-[1](index.php?title=Galatians_1&action=edit&redlink=1 "Galatians 1 (page does not exist)"),
-[2](index.php?title=Galatians_2&action=edit&redlink=1 "Galatians 2 (page does not exist)"),
-[3](Galatians_3 "Galatians 3"),
-[4](index.php?title=Galatians_4&action=edit&redlink=1 "Galatians 4 (page does not exist)"),
-[5](index.php?title=Galatians_5&action=edit&redlink=1 "Galatians 5 (page does not exist)"),
-[6](index.php?title=Galatians_6&action=edit&redlink=1 "Galatians 6 (page does not exist)")
-
 ## Purpose
 
 After Paul's successful evangelism work in

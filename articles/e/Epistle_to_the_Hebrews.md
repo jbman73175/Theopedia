@@ -28,21 +28,6 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-## Chapters
-
-[1](index.php?title=Hebrews_1&action=edit&redlink=1 "Hebrews 1 (page does not exist)"),
-[2](index.php?title=Hebrews_2&action=edit&redlink=1 "Hebrews 2 (page does not exist)"),
-[3](index.php?title=Hebrews_3&action=edit&redlink=1 "Hebrews 3 (page does not exist)"),
-[4](index.php?title=Hebrews_4&action=edit&redlink=1 "Hebrews 4 (page does not exist)"),
-[5](index.php?title=Hebrews_5&action=edit&redlink=1 "Hebrews 5 (page does not exist)"),
-[6](Hebrews_6 "Hebrews 6"),
-[7](index.php?title=Hebrews_7&action=edit&redlink=1 "Hebrews 7 (page does not exist)"),
-[8](index.php?title=Hebrews_8&action=edit&redlink=1 "Hebrews 8 (page does not exist)"),
-[9](index.php?title=Hebrews_9&action=edit&redlink=1 "Hebrews 9 (page does not exist)"),
-[10](Hebrews_10 "Hebrews 10"),
-[11](index.php?title=Hebrews_11&action=edit&redlink=1 "Hebrews 11 (page does not exist)"),
-[12](Hebrews_12 "Hebrews 12"), [13](Hebrews_13 "Hebrews 13")
-
 **Multimedia**
 
 -   [Hebrews Narrated in the ESV](http://www.gnpcb.org/esv/search/?q=hebrews)
@@ -71,21 +56,6 @@ by D. A. Carson
     [Part 1](http://www.sbts.edu/MP3/JBGay/2005Carson01.mp3),
     [Part 2](http://www.sbts.edu/MP3/JBGay/2005Carson02.mp3),
     [Part 3](http://www.sbts.edu/MP3/JBGay/2005Carson03.mp3) (MP3s)
-
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Authorship](#Authorship)
--   [3 Place of Writing](#Place_of_Writing)
--   [4 Date of Composition](#Date_of_Composition)
--   [5 Original Recipients](#Original_Recipients)
--   [6 Canonicity](#Canonicity)
--   [7 References](#References)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 Articles](#Articles)
-    -   [9.2 Online commentaries](#Online_commentaries)
-
 
 ## Authorship
 

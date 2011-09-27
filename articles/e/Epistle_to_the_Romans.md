@@ -1,21 +1,3 @@
-**Epistle to the Romans**
--   [Romans 1](Romans_1 "Romans 1")
--   [Romans 2](Romans_2 "Romans 2")
--   [Romans 3](Romans_3 "Romans 3")
--   [Romans 4](Romans_4 "Romans 4")
--   [Romans 5](Romans_5 "Romans 5")
--   [Romans 6](Romans_6 "Romans 6")
--   [Romans 7](Romans_7 "Romans 7")
--   [Romans 8](Romans_8 "Romans 8")
--   [Romans 9](Romans_9 "Romans 9")
--   [Romans 10](Romans_10 "Romans 10")
--   [Romans 11](Romans_11 "Romans 11")
--   [Romans 12](Romans_12 "Romans 12")
--   [Romans 13](Romans_13 "Romans 13")
--   [Romans 14](Romans_14 "Romans 14")
--   [Romans 15](Romans_15 "Romans 15")
--   [Romans 16](Romans_16 "Romans 16")
-
 [Old Testament](Old_Testament "Old Testament")
 [New Testament](New_Testament "New Testament")
 -   [Matthew](Gospel_of_Matthew "Gospel of Matthew")
@@ -75,30 +57,6 @@ faith in the [Bible](Bible "Bible").
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 -   [Lessons on Romans by Tom Browning](http://monergism.com/thethreshold/articles/onsite/mp3/romans_browning.html)
     (MP3s)
-
-## Contents
-
--   [1 Authorship](#Authorship)
--   [2 Structure](#Structure)
--   [3 Christology](#Christology)
-    -   [3.1 Titles of Jesus](#Titles_of_Jesus)
-        -   [3.1.1 Son of God](#Son_of_God)
-        -   [3.1.2 Son of David](#Son_of_David)
-        -   [3.1.3 Christ](#Christ)
-
-    -   [3.2 Lord](#Lord)
-    -   [3.3 Humanity](#Humanity)
-    -   [3.4 Divinity](#Divinity)
-
--   [4 Spirit](#Spirit)
-    -   [4.1 The sign of the New Covenant](#The_sign_of_the_New_Covenant)
-    -   [4.2 Assurance in the New Covenant](#Assurance_in_the_New_Covenant)
-    -   [4.3 Power of the New Covenant](#Power_of_the_New_Covenant)
-    -   [4.4 Ethics of the New Covenant](#Ethics_of_the_New_Covenant)
-
--   [5 Notes](#Notes)
--   [6 Resources](#Resources)
--   [7 External links](#External_links)
 
 ## Authorship
 

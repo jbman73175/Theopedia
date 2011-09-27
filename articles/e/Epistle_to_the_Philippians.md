@@ -51,23 +51,6 @@
     [Thought Flow](http://covenantseminary.inmotionhosting.com/NT230_Lecture_29.mp3)
     (MP3s), by Hans Bayer
 
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Overview](#Overview)
--   [3 Author](#Author)
--   [4 Date of Writing](#Date_of_Writing)
--   [5 Principle Characters](#Principle_Characters)
--   [6 Major Themes](#Major_Themes)
--   [7 External links](#External_links)
-
-## Chapters
-
-[1](Philippians_1 "Philippians 1"),
-[2](Philippians_2 "Philippians 2"),
-[3](Philippians_3 "Philippians 3"),
-[4](Philippians_4 "Philippians 4")
-
 ## Overview
 
 The book of Philippians was written by the

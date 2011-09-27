@@ -51,20 +51,6 @@
     [Thought Flow](http://covenantseminary.inmotionhosting.com/NT230_Lecture_26.mp3)
     (MP3s), by Hans Bayer
 
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Content](#Content)
--   [3 External links](#External_links)
-
-## Chapters
-
-[1](Ephesians_1 "Ephesians 1"), [2](Ephesians_2 "Ephesians 2"),
-[3](Ephesians_3 "Ephesians 3"),
-[4](index.php?title=Ephesians_4&action=edit&redlink=1 "Ephesians 4 (page does not exist)"),
-[5](Ephesians_5 "Ephesians 5"),
-[6](index.php?title=Ephesians_6&action=edit&redlink=1 "Ephesians 6 (page does not exist)")
-
 ## Content
 
 1.  The greeting (1:1, 2).
