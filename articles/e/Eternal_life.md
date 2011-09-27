@@ -79,7 +79,7 @@ receive it will never perish (Jn 3:16; 6:27; 10:28).
 
 ## Quotes
 
--   “The ‘race set before us’ is an uncommon foot race, for the
+    “The ‘race set before us’ is an uncommon foot race, for the
     victor’s wreath of life that we pursue is the life that already
     courses through our mortal bodies by God’s Spirit (Romans 8:11).
     This is not the rhetoric of a sports commentator reporting on the
