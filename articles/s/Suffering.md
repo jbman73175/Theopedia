@@ -7,7 +7,7 @@
     [Lesson 2](http://biblicaltraining.org/audio/TH520/Suffering_2.mp3),
     [Lesson 3](http://biblicaltraining.org/audio/TH520/Suffering_3.mp3),
     [Lesson 4](http://biblicaltraining.org/audio/TH520/Suffering_4.mp3)
-    (MP3s), by [John Piper](John_Piper "John Piper")
+    (MP3s), by [John Piper](John_Piper "John Piper") 
 
 ## Gracious purposes in planned suffering
 
