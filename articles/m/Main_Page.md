@@ -192,7 +192,7 @@
 [Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant") –
 [Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam") –
 [Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
-[Impeccability](Impeccability_of_Christ "Impeccability of Christ") –
+[Impeccability](Impeccability_of_Jesus) –
 [Emotions](Emotions_of_Jesus "Emotions of Jesus") —
 [Atonement](Atonement_of_Jesus "Atonement of Jesus") —
 [Historicity](Historicity_of_Jesus "Historicity of Jesus") —
