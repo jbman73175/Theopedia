@@ -7,31 +7,11 @@ philosophies of Nietzsche, Heidegger, Marx and Freud. On some
 points, particularly its attitude to truth, it is similar to New
 Age thinking.
 
-**Multimedia**
+##Multimedia
 
 -   [Understanding Postmodernism from a Confessional Stance](http://www.bethinking.org/resource.php?ID=121&Media=Audio&MediaType=Download)
     (MP3, 2-part series), by
     [D. A. Carson](D._A._Carson "D. A. Carson")
-
-## Contents
-
--   [1 Terminology](#Terminology)
-    -   [1.1 Postmodern Era](#Postmodern_Era)
-    -   [1.2 Postmodernism](#Postmodernism)
-    -   [1.3 Postmodernity](#Postmodernity)
-
--   [2 Reactions to the Postmodern Era](#Reactions_to_the_Postmodern_Era)
-    -   [2.1 Evangelical reactions](#Evangelical_reactions)
-        -   [2.1.1 The Emerging Church](#The_Emerging_Church)
-        -   [2.1.2 A Desire to Return to the Premodern or Modern Eras](#A_Desire_to_Return_to_the_Premodern_or_Modern_Eras)
-
-    -   [2.2 Other reactions](#Other_reactions)
-
--   [3 Criticisms](#Criticisms)
--   [4 Notes](#Notes)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
 
 ## Terminology
 
