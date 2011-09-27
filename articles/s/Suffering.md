@@ -1,6 +1,4 @@
-**Multimedia**
-
-## Critical
+## Multimedia
 
 -   [Suffering and the Sovereignty of God Conference Messages](http://www.desiringgod.org/ResourceLibrary/ConferenceMessages/ByConference/1/)
     (MP3s) - Desiring God Conference (scroll down for MP3 links)
