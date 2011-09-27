@@ -1,6 +1,4 @@
-**Multimedia**
-
-#### Critical
+## Multimedia
 
 -   [Suffering and the Sovereignty of God Conference Messages](http://www.desiringgod.org/ResourceLibrary/ConferenceMessages/ByConference/1/)
     (MP3s) - Desiring God Conference (scroll down for MP3 links)
@@ -11,9 +9,6 @@
     [Lesson 4](http://biblicaltraining.org/audio/TH520/Suffering_4.mp3)
     (MP3s), by [John Piper](John_Piper "John Piper") 
 
-
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Gracious purposes in planned suffering
 
 [God](God "God") works "all things according to the counsel of his
