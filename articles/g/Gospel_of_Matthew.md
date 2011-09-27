@@ -1,33 +1,3 @@
-**Gospel of Matthew**
--   [Matthew 1](Matthew_1 "Matthew 1")
--   [Matthew 2](Matthew_2 "Matthew 2")
--   [Matthew 3](Matthew_3 "Matthew 3")
--   [Matthew 4](Matthew_4 "Matthew 4")
--   [Matthew 5](Matthew_5 "Matthew 5")
--   [Matthew 6](Matthew_6 "Matthew 6")
--   [Matthew 7](Matthew_7 "Matthew 7")
--   [Matthew 8](Matthew_8 "Matthew 8")
--   [Matthew 9](Matthew_9 "Matthew 9")
--   [Matthew 10](Matthew_10 "Matthew 10")
--   [Matthew 11](Matthew_11 "Matthew 11")
--   [Matthew 12](Matthew_12 "Matthew 12")
--   [Matthew 13](Matthew_13 "Matthew 13")
--   [Matthew 14](Matthew_14 "Matthew 14")
--   [Matthew 15](Matthew_15 "Matthew 15")
--   [Matthew 16](Matthew_16 "Matthew 16")
--   [Matthew 17](Matthew_17 "Matthew 17")
--   [Matthew 18](Matthew_18 "Matthew 18")
--   [Matthew 19](Matthew_19 "Matthew 19")
--   [Matthew 20](Matthew_20 "Matthew 20")
--   [Matthew 21](Matthew_21 "Matthew 21")
--   [Matthew 22](Matthew_22 "Matthew 22")
--   [Matthew 23](Matthew_23 "Matthew 23")
--   [Matthew 24](Matthew_24 "Matthew 24")
--   [Matthew 25](Matthew_25 "Matthew 25")
--   [Matthew 26](Matthew_26 "Matthew 26")
--   [Matthew 27](Matthew_27 "Matthew 27")
--   [Matthew 28](Matthew_28 "Matthew 28")
-
 [Old Testament](Old_Testament "Old Testament")
 [New Testament](New_Testament "New Testament")
 -   **Matthew**
@@ -180,6 +150,3 @@ a real person born of the Royal Line of David.
     (PDF), by Peter Leithart
 -   [Apologetics Bible Study: Matthew](http://www.tektonics.org/lp/mattstudy.html),
     by James Patrick Holding
-
-
-
