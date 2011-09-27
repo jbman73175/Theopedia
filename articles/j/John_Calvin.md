@@ -12,7 +12,7 @@ Luther sounded the trumpet for reform, Calvin orchestrated the
 score by which the Reformation became a part of Western
 civilization."^[[1]](#note-0)^
 
-**Multimedia**
+##Multimedia
 
 -   [John Calvin: What's the Big Idea?](http://www.htc.uhi.ac.uk/audlist/jnmurray2007.mp3)
     (MP3), by [Paul Helm](Paul_Helm "Paul Helm")
@@ -37,45 +37,6 @@ civilization."^[[1]](#note-0)^
     by Robert Godfrey
 -   [John Calvin and the Pentateuch](http://www.sermonaudio.com/sermoninfo.asp?SID=12903142322),
     by Robert Godfrey
-
-## Contents
-
--   [1 Biographical summary](#Biographical_summary)
--   [2 Calvin's writings](#Calvin.27s_writings)
-    -   [2.1 The Institutes](#The_Institutes)
-    -   [2.2 Commentaries](#Commentaries)
-    -   [2.3 Sermons](#Sermons)
-
--   [3 Calvin's theology](#Calvin.27s_theology)
-    -   [3.1 God](#God)
-    -   [3.2 Man](#Man)
-    -   [3.3 Jesus Christ](#Jesus_Christ)
-    -   [3.4 The Holy Spirit](#The_Holy_Spirit)
-    -   [3.5 Justification by faith](#Justification_by_faith)
-    -   [3.6 Sacraments](#Sacraments)
-    -   [3.7 Church government](#Church_government)
-    -   [3.8 Calvin and Calvinism](#Calvin_and_Calvinism)
-
--   [4 Calvin's influence](#Calvin.27s_influence)
-    -   [4.1 Separation of church and state](#Separation_of_church_and_state)
-    -   [4.2 Missiology](#Missiology)
-    -   [4.3 The Protestant work ethic](#The_Protestant_work_ethic)
-
--   [5 Notes](#Notes)
--   [6 References](#References)
--   [7 Further reading](#Further_reading)
-    -   [7.1 General](#General)
-    -   [7.2 Biographies](#Biographies)
-    -   [7.3 Theology](#Theology)
-    -   [7.4 Writings](#Writings)
-    -   [7.5 Preaching](#Preaching)
-    -   [7.6 Other works](#Other_works)
-
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 Online writings by Calvin](#Online_writings_by_Calvin)
-    -   [9.2 Online writings on Calvin](#Online_writings_on_Calvin)
-
 
 ## Biographical summary
 
