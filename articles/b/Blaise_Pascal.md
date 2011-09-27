@@ -22,15 +22,6 @@ period: the Lettres provinciales and the Pensées. However, he had
 suffered from ill-health throughout his life and his new interests
 were ended by his early death two months after his 39th birthday.
 
-## Contents
-
--   [1 The Pensees](#The_Pensees)
--   [2 Pascal's Wager](#Pascal.27s_Wager)
-    -   [2.1 Explanation](#Explanation)
-
--   [3 Mystical Experience](#Mystical_Experience)
--   [4 Online works](#Online_works)
-
 ## The Pensees
 
 Unfortunately, Pascal couldn't finish his most influential
@@ -170,6 +161,3 @@ Westminster Press, 1948.
 
 -   [Pensees](http://www.leaderu.com/cyber/books/pensees/pensees.html)
     (translated by W. F. Trotter)
-
-
-
