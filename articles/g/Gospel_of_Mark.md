@@ -326,5 +326,19 @@ D. Death, Burial & Resurrection (15:33 - 16:8)
 -   [Introduction to Mark](http://www.biblestudytools.com/bible-study/11554870.html)
     on BibleStudyTools.com
 
+### Online commentaries
 
-
+-   [John Calvin](http://www.ccel.org/ccel/calvin/calcom31.ix.xxvii.html)
+-   [Matthew Henry](http://eword.gospelcom.net/comments/mark/mh/mark1.htm)
+-   [Matthew Henry](http://eword.gospelcom.net/comments/mark/mhc/mark1.htm)
+    (concise)
+-   [John Darby](http://eword.gospelcom.net/comments/mark/darby/mark1.htm)
+-   [Geneva Study Bible](http://eword.gospelcom.net/comments/mark/geneva/mark1.htm)
+-   [John Gill](http://eword.gospelcom.net/comments/mark/gill/mark1.htm)
+-   [Jamieson, Faussett, and Brown](http://www.ewordtoday.com/comments/mark/jfb/mark1.htm)
+-   [B. W. Johnson](http://eword.gospelcom.net/comments/mark/johnson/mark1.htm)
+-   [McGarvey and Pendleton](http://eword.gospelcom.net/comments/mark/four/mark1.htm)
+-   [John Wesley](http://eword.gospelcom.net/comments/mark/wesley/mark1.htm)
+-   [John S. C. Abbott and Jacob Abbott](http://www.studylight.org/com/ain/view.cgi?book=mr&chapter=001)
+-   [Adam Clarke](http://www.studylight.org/com/acc/view.cgi?book=mr&chapter=001)
+-   [Albert Barnes](http://www.studylight.org/com/bnn/view.cgi?book=mr&chapter=001)
