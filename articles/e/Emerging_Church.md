@@ -35,55 +35,27 @@ dialogue rather than chilling criticism and censorship offers the
 greatest hope for the future of the church in the world."
 ^[[2]](#note-offresponse)^
 
-**Multimedia**
+##Multimedia
 
-**Video**
+###Video
 
 -   [Emergent vs. Traditional Seeker](http://www.godtube.com/view_video.php?viewkey=e27a7c00e0462fad0873)
     - Desiring God conference - GodTube
 
-**Audio**
+###Audio
 
 -   [What is the real Emerging Church?](http://www.swbts.edu/_audio/class/smith/Dr.%20Donald%20Carson%20-%20What%20is%20the%20Real%20Emerging%20Church¿.mp3)
     (MP3), by [D. A. Carson](D._A._Carson "D. A. Carson")
 -   [The Emerging Church: Past, Present, and a Kairos Moment](http://media.gospelcom.net/cornerstone/grts/chapel/2005-09-12-Brian%20McLaren-Talking%20Points%20Session%201.mp3)
     (MP3), by [Brian McLaren](Brian_McLaren "Brian McLaren")
 
-**Favorable / sympathetic**
+###Favorable / sympathetic
 
 -   [John Franke and the Emerging Movement](http://thereformedbaptistthinker.blogspot.com/2006/03/john-franke-and-emerging-movement.html)
     (MP3s)
 -   [The Emergent Conversation: Present and Future & Challenges and Potential](http://media.gospelcom.net/cornerstone/grts/chapel/2005-09-12-Brian%20McLaren-Talking%20Points%20Session%204.mp3)
     (MP3), by Brian McLaren
 -   **[more audio](Emerging_Church/audio "Emerging Church/audio")**
-
-## Contents
-
--   [1 Critical overview](#Critical_overview)
--   [2 Distinctive beliefs](#Distinctive_beliefs)
-    -   [2.1 Postmodernism over modernism](#Postmodernism_over_modernism)
-    -   [2.2 Narrative over propositional truth](#Narrative_over_propositional_truth)
-    -   [2.3 Contemplation and reverence](#Contemplation_and_reverence)
-
--   [3 Criticisms](#Criticisms)
-    -   [3.1 Relativism](#Relativism)
-    -   [3.2 Reductionistic and critical understanding of modernism](#Reductionistic_and_critical_understanding_of_modernism)
-    -   [3.3 Non-authoritative stance on gospel truths](#Non-authoritative_stance_on_gospel_truths)
-    -   [3.4 Exaltation of community](#Exaltation_of_community)
-
--   [4 Prominent emergent figures](#Prominent_emergent_figures)
--   [5 Some associated with the Emerging Church who seek to distance themselves from it](#Some_associated_with_the_Emerging_Church_who_seek_to_distance_themselves_from_it)
--   [6 Notes](#Notes)
--   [7 Resources](#Resources)
-    -   [7.1 Informational / Favorable](#Informational_.2F_Favorable)
-    -   [7.2 Critical](#Critical)
-
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 From 9Marks](#From_9Marks)
-    -   [9.2 Critical](#Critical_2)
-    -   [9.3 Favorable / Sympathetic](#Favorable_.2F_Sympathetic)
-
 
 ## Critical overview
 
