@@ -7,17 +7,6 @@ stories, jokes and anecdotes. Instead, it seeks to stay focused on
 the text in question." -Tim Challies
 [[1]](http://www.challies.com/archives/001064.php)
 
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 Resources](#Resources)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Informational](#Informational)
-    -   [4.2 Favorable](#Favorable)
-    -   [4.3 Critical](#Critical)
-
-
 ## Quotes
 
 -   "One advantage in preaching through a book of the Bible… is
@@ -95,6 +84,3 @@ the text in question." -Tim Challies
 -   [Don't Preach Like Jesus? Questioning Dr. Albert Mohler's Article](http://www.anthonycoppedge.com/blogs/index.php?title=don_t_preach_like_jesus_lbr_gligquestion&more=1&c=1&tb=1&pb=1)
     - "That Jesus himself *only* taught by telling stories (narrative
     preaching)."
-
-
-

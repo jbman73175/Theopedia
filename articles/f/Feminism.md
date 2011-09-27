@@ -31,9 +31,9 @@ limitation, to argue for
 attempt to do so while remaining faithful to the text of
 Scripture.
 
-**Multimedia**
+##Multimedia
 
--   [The Feminization of the Church: Detecing And Correcting It](http://www.sbts.edu/MP3/faculty/20060329stinson.mp3)
+-   [The Feminization of the Church: Detecting And Correcting It](http://www.sbts.edu/MP3/faculty/20060329stinson.mp3)
     (MP3), by Dr. Randy Stinson
 
 ## See also
@@ -49,6 +49,3 @@ Scripture.
     (pdf), by Paul W. Felix Sr.
 -   [The Modern Face of Feminism](http://www.wrs.edu/journals/volume_10-1.htm)
     (pdf), articles from WRS
-
-
-
