@@ -571,5 +571,16 @@ discern the right way to live in the New Covenant.
 -   *[Preface to the Letter of St. Paul to the Romans](http://www.ccel.org/l/luther/romans/pref_romans.html)*
     by [Martin Luther](Martin_Luther "Martin Luther")
 
+### On Chapter 9
 
+-   [What About Israel?](http://www.leithart.com/archives/001320_print.php),
+    by Peter Leithart
+-   [The Negation Idiom: Part I](http://aomin.org/index.php?itemid=257),
+    by [James White](James_White "James White")
+-   [The Negation Idiom: Part II](http://aomin.org/index.php?itemid=259),
+    by James White
+-   [An Exegetical and Theological Consideration of the Hardening of Pharaoh's Heart in Exodus 4-14 and Romans 9](http://faculty.gordon.edu/hu/bi/Ted_Hildebrandt/OTeSources/02-Exodus/Text/Articles/Beale-Hardening-TJ.pdf)
+    (PDF)
 
+-   [Twelve Reasons Why Romans 9 is About Individual Election, Not Corporate Election](http://www.reclaimingthemind.org/blog/2010/10/eleven-reasons-why-romans-9-is-about-individual-election-not-cooperate-election/comment-page-4/),
+    by C Michael Patton

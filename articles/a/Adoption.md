@@ -44,22 +44,6 @@ inheritance in Christ.
 -   [God Predestined Us unto Sonship Through Jesus Christ](http://www.desiringgod.org/download.php?file=http://www.desiringgod.org/media/audio/1992/19920308.mp3)
     (MP3)
 
-## Contents
-
--   [1 Old Testament background](#Old_Testament_background)
--   [2 New Testament culture](#New_Testament_culture)
--   [3 Key New Testament passages](#Key_New_Testament_passages)
-    -   [3.1 John 1:11-13 - Not of natural birth or the will of man, but of God](#John_1:11-13_-_Not_of_natural_birth_or_the_will_of_man.2C_but_of_God)
-    -   [3.2 Ephesians 1:4b-6 - Believers were individually predestined for adoption](#Ephesians_1:4b-6_-_Believers_were_individually_predestined_for_adoption)
-    -   [3.3 Galatians 4:4-7 - Because we are sons, God has sent the Spirit of his Son into our hearts](#Galatians_4:4-7_-_Because_we_are_sons.2C_God_has_sent_the_Spirit_of_his_Son_into_our_hearts)
-    -   [3.4 Romans 8:14-23 - By the Spirit we cry, 'Abba! Father!'](#Romans_8:14-23_-_By_the_Spirit_we_cry.2C_.27Abba.21_Father.21.27)
-    -   [3.5 Hebrews 12:5-11 - God disciplines every son for their good](#Hebrews_12:5-11_-_God_disciplines_every_son_for_their_good)
-
--   [4 See also](#See_also)
--   [5 Books](#Books)
--   [6 Notes](#Notes)
--   [7 External links](#External_links)
-
 ## Old Testament background
 
 William E. Brown writes in
