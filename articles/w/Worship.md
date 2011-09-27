@@ -11,24 +11,10 @@ and submission; to bow down, to kneel, to prostrate oneself. The
 second is about doing something for God that demonstrates sacrifice
 and obedience; to offer, to serve.
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [Freedom and Framework, Spirit and Truth: Recovering Biblical Worship](http://www.calvin.edu/january/2002/ram/011102.ram),
     by [N.T. Wright](N.T._Wright "N.T. Wright")
-
-## Contents
-
--   [1 Biblical words for worship](#Biblical_words_for_worship)
-    -   [1.1 Hebrew](#Hebrew)
-    -   [1.2 Greek](#Greek)
-
--   [2 Definitions](#Definitions)
--   [3 Notes](#Notes)
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
 
 ## Biblical words for worship
 
