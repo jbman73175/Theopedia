@@ -8,32 +8,6 @@ image of His Father's person, and eternally continues, not from the
 Father, but in the Father, and the Father in the Son."
 ^[[1]](#note-0)^
 
-## Contents
-
--   [1 Brief explanation](#Brief_explanation)
--   [2 "Eternally begotten" compared to "born of"](#.22Eternally_begotten.22_compared_to_.22born_of.22)
--   [3 Historical development](#Historical_development)
-    -   [3.1 Nicene Creed](#Nicene_Creed)
-    -   [3.2 Augustine](#Augustine)
-    -   [3.3 Jonathan Edwards](#Jonathan_Edwards)
-    -   [3.4 Robert L. Dabney](#Robert_L._Dabney)
-    -   [3.5 Westminster Confession of Faith](#Westminster_Confession_of_Faith)
-    -   [3.6 Common arguments for the doctrine](#Common_arguments_for_the_doctrine)
-
--   [4 Opposition](#Opposition)
-    -   [4.1 Loraine Boettner](#Loraine_Boettner)
-    -   [4.2 Robert Reymond](#Robert_Reymond)
-        -   [4.2.1 Reymond on Calvin](#Reymond_on_Calvin)
-
-    -   [4.3 Common objections](#Common_objections)
-
--   [5 Notes](#Notes)
--   [6 See also](#See_also)
--   [7 External links for Eternal generation of the Son](#External_links_for_Eternal_generation_of_the_Son)
-    -   [7.1 Favorable](#Favorable)
-    -   [7.2 Critical](#Critical)
-
-
 ## Brief explanation
 
 The name "Creator" or "Savior" refer to acts of God's will, but in
@@ -503,6 +477,3 @@ John Calvin," *Calvin Theological Journal* 35 (2000): 262-281.
 
 -   [The Generation of the Son and the Procession of the Holy Spirit](http://www.caledonianfire.org/caledonianfire/Boettner/trinity/t8.htm),
     by [Loraine Boettner](Loraine_Boettner "Loraine Boettner")
-
-
-
