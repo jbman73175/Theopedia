@@ -14,7 +14,7 @@ Generally this includes such topics as the personality of the
 Spirit, the deity of the Spirit, and the work of the Spirit as
 presented in the [Bible](Bible "Bible").
 
-**Multimedia**
+## Multimedia
 
 -   [The Doctrine of the Holy Spirit](http://www.desiringgod.org/resource-library/theology-refresh/the-doctrine-of-the-holy-spirit/download/audio/full)
     (MP3), by Kevin DeYoung
@@ -38,24 +38,6 @@ presented in the [Bible](Bible "Bible").
     - For now, copy and paste the MP3 link into your address bar
 -   [The Holy Spirit Series](http://www.sermonaudio.com/search.asp?seriesOnly=true&currSection=sermonstopic&sourceid=misc&keyword=The+Holy+Spirit+Series&keyworddesc=The+Holy+Spirit+Series)
     (MP3), by [A. W. Tozer](A._W._Tozer "A. W. Tozer")
-
-## Contents
-
--   [1 The personhood of the Holy Spirit](#The_personhood_of_the_Holy_Spirit)
--   [2 The deity of the Holy Spirit](#The_deity_of_the_Holy_Spirit)
--   [3 The roles of the Holy Spirit](#The_roles_of_the_Holy_Spirit)
--   [4 Titles of the Holy Spirit](#Titles_of_the_Holy_Spirit)
--   [5 Other topics](#Other_topics)
-    -   [5.1 Gifts of the Spirit](#Gifts_of_the_Spirit)
-    -   [5.2 Baptism and the Spirit](#Baptism_and_the_Spirit)
-    -   [5.3 Indwelling of the Holy Spirit](#Indwelling_of_the_Holy_Spirit)
-    -   [5.4 Illumination of the Holy Spirit](#Illumination_of_the_Holy_Spirit)
-    -   [5.5 Internal testimony of the Holy Spirit](#Internal_testimony_of_the_Holy_Spirit)
-
--   [6 See also](#See_also)
--   [7 References](#References)
--   [8 Resources](#Resources)
--   [9 External links](#External_links)
 
 ## The personhood of the Holy Spirit
 
