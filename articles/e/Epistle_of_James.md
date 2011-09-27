@@ -212,6 +212,10 @@ Major themes contained with James include:
     [Craig Blomberg](Craig_Blomberg "Craig Blomberg") (Zondervan blog)
 -   [So Much for Straw](http://www.patrickwoods.com/blog) A blog
     dedicated to research on the Epistle of James.
-
-
-
+-   [Does James Contradict Paul?](http://www.biblicalpreaching.info/bpaudio/piper/080899.mp3)
+    (MP3), by John Piper - James 2:14-26 and Romans 3:27-4:5
+-   [James and Justification by Faith](http://www.opc.org/new_horizons/NH05/02a.html),
+    by James S. Gidley - "Does James 2:24 require us to modify the
+    Reformation doctrine of justification by faith alone?"
+-   ["Saved by Faith (Alone)" in Paul Versus "Not Saved by Faith Alone" in James](http://www.sbts.edu/resources/publications/sbjt/2000/2000Fall2.pdf)
+    (PDF), by Robert Stein
