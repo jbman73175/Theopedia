@@ -24,31 +24,6 @@ Seminary, and its professors are still required to sign it before
 assuming their duties in the classroom."
 [[1]](http://www.founders.org/FJ01/abstract.html)
 
-## Contents
-
--   [1 The Abstract Of Principles](#The_Abstract_Of_Principles)
-    -   [1.1 I. The Scriptures.](#I._The_Scriptures.)
-    -   [1.2 II. God.](#II._God.)
-    -   [1.3 III. The Trinity.](#III._The_Trinity.)
-    -   [1.4 IV. Providence.](#IV._Providence.)
-    -   [1.5 V. Election.](#V._Election.)
-    -   [1.6 VI. The Fall of Man.](#VI._The_Fall_of_Man.)
-    -   [1.7 VII. The Mediator.](#VII._The_Mediator.)
-    -   [1.8 VIII. Regeneration.](#VIII._Regeneration.)
-    -   [1.9 IX. Repentance.](#IX._Repentance.)
-    -   [1.10 X. Faith.](#X._Faith.)
-    -   [1.11 XI. Justification.](#XI._Justification.)
-    -   [1.12 XII. Sanctification.](#XII._Sanctification.)
-    -   [1.13 XIII. Perseverance of the Saints.](#XIII._Perseverance_of_the_Saints.)
-    -   [1.14 XIV. The Church.](#XIV._The_Church.)
-    -   [1.15 XV. Baptism.](#XV._Baptism.)
-    -   [1.16 XVI. The Lord's Supper.](#XVI._The_Lord.27s_Supper.)
-    -   [1.17 XVII. The Lord's Day.](#XVII._The_Lord.27s_Day.)
-    -   [1.18 XVIII. Liberty of Conscience.](#XVIII._Liberty_of_Conscience.)
-    -   [1.19 XIX. The Resurrection.](#XIX._The_Resurrection.)
-    -   [1.20 XX. The Judgment.](#XX._The_Judgment.)
-
-
 ## The Abstract Of Principles
 
 #### I. The Scriptures.
