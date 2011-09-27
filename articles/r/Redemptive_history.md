@@ -5,15 +5,6 @@ history can be said to climax and culminate in the Cross,
 encompassing [Jesus](Jesus "Jesus")' death, burial, and
 [resurrection](Resurrection_of_Jesus "Resurrection of Jesus").
 
-## Contents
-
--   [1 Jesus the central focus](#Jesus_the_central_focus)
-    -   [1.1 The church](#The_church)
-
--   [2 Redemptive historians](#Redemptive_historians)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Jesus the central focus
 
 Ephesians 3:11 speaks of God's "eternal purpose that he has
