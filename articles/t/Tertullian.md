@@ -12,18 +12,10 @@ practiced law in Rome before his return to Carthage and conversion.
 His writings indicate that he did not become a Christian until he
 was in his thirties or forties.
 
-**Multimedia**
+##Multimedia
 
 -   [Tertullian and the Early Church](http://www.theologian.org.uk/churchhistory/TertullianandtheEarlyChurch.mp3),
     by [Gerald Bray](Gerald_Bray "Gerald Bray")
-
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 Relation of Jerusalem with Athens](#Relation_of_Jerusalem_with_Athens)
--   [3 Notes](#Notes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
 
 ## Biographical sketch
 
