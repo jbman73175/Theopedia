@@ -5,7 +5,7 @@ served as a distinguished professor of Old Testament studies at
 and 2010 president of the
 [Evangelical Theological Society](Evangelical_Theological_Society "Evangelical Theological Society").
 
-**Multimedia**
+##Multimedia
 
 -   [True Servanthood](http://www.dts.edu/download/media/20100707.mp4),
     DTS Chapel on July 7, 2010
@@ -13,14 +13,6 @@ and 2010 president of the
     DTS Chapel on October 30, 2009
 -   [The Wisdom That Is From Above](http://www.dts.edu/download/media/20050401.mp4),
     DTS Chapel on August 1, 2007
-
-## Contents
-
--   [1 Early life, family, and education](#Early_life.2C_family.2C_and_education)
--   [2 Academic career](#Academic_career)
--   [3 Selected publications](#Selected_publications)
--   [4 References](#References)
--   [5 External links](#External_links)
 
 ## Early life, family, and education
 
