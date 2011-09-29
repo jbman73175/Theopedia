@@ -26,8 +26,6 @@ we are comforted, it is for your comfort, which you experience when
 you patiently endure the same sufferings that we suffer." - 2
 Corinthians 1:6
 
-
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 ## Our salvation is founded on the predestined suffering of the Son
 
 "... for truly in this city there were gathered together against
@@ -96,6 +94,3 @@ and your plan had predestined to take place." - Acts 4:27-28
     by John Piper
 -   [Thanksgiving in Suffering](http://www.desiringgod.org/library/sermons/90/111890.html),
     by John Piper
-
-
-
