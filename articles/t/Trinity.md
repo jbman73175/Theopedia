@@ -11,9 +11,7 @@ the following:
 -   The Father is not the Son, the Son is not the Father, the
     Father is not the Spirit, etc.
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [The Trinity of Persons: Unity and Distinction, Equality and Differentiation](http://www.desiringgod.org/media/mp3/conferences/bcp2005/01_20050131_ware_pt1.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware")
@@ -26,45 +24,6 @@ the following:
 -   [How can Christianity be both monotheistic and Trinitarian?](http://download.redeemer.com/rpcsermons/QandA/How_can_Christianity_be_both_monotheistic_and_Trinitarian.mp3)
     (MP3), by [Tim Keller](Tim_Keller "Tim Keller")
 -   *[More audio links](Trinity_(more_audio) "Trinity (more audio)")*
-
-## Contents
-
--   [1 A brief history](#A_brief_history)
--   [2 Understanding the terms](#Understanding_the_terms)
-    -   [2.1 Essence](#Essence)
-    -   [2.2 Nature](#Nature)
-    -   [2.3 Being](#Being)
-    -   [2.4 Person](#Person)
-    -   [2.5 Homoousios](#Homoousios)
-    -   [2.6 Heteroousios](#Heteroousios)
-    -   [2.7 Homoiousios](#Homoiousios)
-    -   [2.8 Perichoresis](#Perichoresis)
-
--   [3 Monotheism](#Monotheism)
--   [4 Each person of the Trinity is God](#Each_person_of_the_Trinity_is_God)
-    -   [4.1 The Father is God](#The_Father_is_God)
-    -   [4.2 Jesus/the Son is God](#Jesus.2Fthe_Son_is_God)
-    -   [4.3 The Holy Spirit is God](#The_Holy_Spirit_is_God)
-    -   [4.4 Passages equating the Father, the Son, and the Holy Spirit](#Passages_equating_the_Father.2C_the_Son.2C_and_the_Holy_Spirit)
-
--   [5 Diversity](#Diversity)
--   [6 Misconceptions about the Trinity](#Misconceptions_about_the_Trinity)
--   [7 Trinitarian heresies](#Trinitarian_heresies)
-    -   [7.1 Denial of the oneness and uniqueness of God](#Denial_of_the_oneness_and_uniqueness_of_God)
-    -   [7.2 Denial of the eternal deity of each Person](#Denial_of_the_eternal_deity_of_each_Person)
-    -   [7.3 Denial of the three Personalities or Persons](#Denial_of_the_three_Personalities_or_Persons)
-    -   [7.4 Denial of the two, distinct, unmingled natures of Christ](#Denial_of_the_two.2C_distinct.2C_unmingled_natures_of_Christ)
-
--   [8 Implications](#Implications)
--   [9 Resources](#Resources)
--   [10 See also](#See_also)
--   [11 External links](#External_links)
-    -   [11.1 Introductory articles](#Introductory_articles)
-    -   [11.2 Historical figures on the Trinity](#Historical_figures_on_the_Trinity)
-    -   [11.3 Other articles](#Other_articles)
-    -   [11.4 Social trinitarianism](#Social_trinitarianism)
-    -   [11.5 Online books](#Online_books)
-
 
 ## A brief history
 
@@ -95,6 +54,7 @@ was the first one to state this doctrine using the Latin term,
 (W. Fulton in the *Encyclopedia of Religion and Ethics*).
 
 *See main page: [Development of Trinitarian theology](Development_of_Trinitarian_theology "Development of Trinitarian theology")*
+
 ## Understanding the terms
 
 In Trinitarianism, God is said to be three persons in one essence,
@@ -393,6 +353,7 @@ Holy Spirit are distinct, eternal Persons".
 
 ### Introductory articles
 
+-    [The Doctrine of the Trinity: No Christianity Without It](http://thegospelcoalition.org/blogs/kevindeyoung/2011/09/28/the-doctrine-of-the-trinity-no-christianity-without-it/)
 -   [A Brief Definition of the Trinity](http://www.aomin.org/trinitydef.html),
     by James White
 -   [The Modern Doctrine of the Trinity](http://www.scriptoriumdaily.com/2010/04/20/the-modern-doctrine-of-the-trinity/),
@@ -451,6 +412,3 @@ Holy Spirit are distinct, eternal Persons".
 
 -   [Father, Son, and Holy Spirit: Relationships, Roles, and Relevance](http://www.gnpcb.org/product/1581346689/browse),
     by [Bruce Ware](Bruce_Ware "Bruce Ware")
-
-
-
