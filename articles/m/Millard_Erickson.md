@@ -19,21 +19,13 @@ member of Christians for Biblical Equality, he is an
 prominent critic of [open theism](Open_theism "Open theism") and
 [postmodernism](Postmodernism "Postmodernism").
 
-**Multimedia**
+##Multimedia
 
-**Gheens Lectures at Southern Baptist Theological Seminary (2008)**
+###Gheens Lectures at Southern Baptist Theological Seminary (2008)
 
 -   [Can Theology Learn from History?](http://www.sbts.edu/MP3/spring2008/20080304erickson.mp3)
 -   [Can Theology Learn From Physics?](http://www.sbts.edu/MP3/spring2008/20080305erickson.mp3)
 -   [Can Theology Learn From Economics?](http://www.sbts.edu/MP3/spring2008/20080306erickson.mp3)
-
-## Contents
-
--   [1 Selected writings](#Selected_writings)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
 
 ## Selected writings
 
