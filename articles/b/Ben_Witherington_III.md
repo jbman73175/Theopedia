@@ -27,7 +27,7 @@ as top biblical studies works by
 also writes for many church and scholarly publications, and is a
 frequent contributor to the Beliefnet website.^[[1]](#note-BWcom)^
 
-**Multimedia**
+##Multimedia
 
 -   [Background Issues to the Study of the New Testament](http://stream.sbts.edu:9037/ramgen/JBGay/2003Witherington1.rm)
     (Real Audio)
