@@ -15,7 +15,7 @@ and the
 (1609), a [Catholic](Catholicism "Catholicism") translation from
 the Latin [Vulgate](Vulgate "Vulgate") with extensive commentary.
 
-**Multimedia**
+##Multimedia
 
 -   [What is a Good Translation?](http://www.gordonconwell.edu/audio/dimensions/htsb/htsb02.ram)
     (Real Audio), by Douglas Stuart
@@ -37,6 +37,8 @@ the Latin [Vulgate](Vulgate "Vulgate") with extensive commentary.
     [Part 4.a](http://video.google.com/videoplay?docid=-855642323873260795&hl=en),
     [Part 4.b](http://video.google.com/videoplay?docid=586888343925575580&hl=en)
     (Google Video)
+
+##Translations
 
 The following chart represents the most widely distributed and used
 translations of the Bible into modern (20th and 21st century)
