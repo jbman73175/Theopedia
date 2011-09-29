@@ -13,7 +13,7 @@ Christians use it to describe the basic
 teaching of the [Bible](Bible "Bible"). In this sense it represents
 the content of the Christian faith.
 
-##Multimedia
+**Multimedia**
 
 -   [Introduction to Christian Doctrine](http://www.rfmedia.org/RF_audio_video/Defender_podcast/IntroductiontoChristianDoctrine.mp3)
     (MP3), by
@@ -39,6 +39,13 @@ example,
 -   "He must hold firm to the trustworthy word as taught, so that
     he may be able to give instruction in *sound doctrine* and also to
     rebuke those who contradict it" (Titus 1:9).
+
+## Contents
+
+-   [1 Resources](#Resources)
+-   [2 References](#References)
+-   [3 See also](#See_also)
+-   [4 External links](#External_links)
 
 ## Resources
 

@@ -27,7 +27,7 @@ Hebrew and Aramaic, while the Christian canon was written in
 Greek."
 [[1]](http://bible.crosswalk.com/Dictionaries/BakersEvangelicalDictionary/bed.cgi)
 
-##Multimedia
+**Multimedia**
 
 -   [Illumination; Canonicity](http://biblicaltraining.org/audio/TH503/theology_1_10001.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware") (MP3)
@@ -37,6 +37,13 @@ Greek."
     [R.C. Sproul](R.C._Sproul "R.C. Sproul")
 -   [the Canon Reliable?](http://www.youtube.com/watch?v=pVNNQ976dnYIs)
     (YouTube video), by Greg Koukl
+
+## Contents
+
+-   [1 Development of the OT canon](#Development_of_the_OT_canon)
+-   [2 Development of the NT canon](#Development_of_the_NT_canon)
+-   [3 Resources](#Resources)
+-   [4 External links](#External_links)
 
 ## Development of the OT canon
 

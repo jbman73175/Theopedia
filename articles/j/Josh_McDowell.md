@@ -7,6 +7,14 @@ evangelist, and author. Of his numerous books, his best known
 titles are *More Than A Carpenter*,
 *Evidence That Demands A Verdict*, and *Right from Wrong*.
 
+## Contents
+
+-   [1 Biographical sketch](#Biographical_sketch)
+-   [2 Works](#Works)
+    -   [2.1 Biography](#Biography)
+
+-   [3 External links](#External_links)
+
 ## Biographical sketch
 
 He initially intended to pursue legal studies aimed at a political

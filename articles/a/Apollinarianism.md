@@ -5,6 +5,7 @@ human body and a human soul, but his mind was taken over by the
 eternal Logos. The heretical belief is named for Apollinaris of
 Laodicea (ca. 350).
 
+*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## See also
 
 -   [Deity of Jesus](Deity_of_Jesus "Deity of Jesus")

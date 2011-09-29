@@ -5,6 +5,32 @@ punishment that we deserve. This was a full payment for sins, which
 satisfied both the wrath and the righteousness of God, so that He
 could forgive sinners without compromising His own holy standard.
 
+## Contents
+
+-   [1 Background](#Background)
+-   [2 Relevant Scripture](#Relevant_Scripture)
+-   [3 Propitiation language](#Propitiation_language)
+-   [4 Relation to other doctrines](#Relation_to_other_doctrines)
+-   [5 Criticisms](#Criticisms)
+    -   [5.1 Some note that it is not representative of the Early Church](#Some_note_that_it_is_not_representative_of_the_Early_Church)
+    -   [5.2 Some view it as unjust](#Some_view_it_as_unjust)
+    -   [5.3 Some argue that it is based on Natural Theology](#Some_argue_that_it_is_based_on_Natural_Theology)
+    -   [5.4 Some suggest it necessarily implies universalism](#Some_suggest_it_necessarily_implies_universalism)
+    -   [5.5 Some see it as "a form of cosmic Child Abuse"](#Some_see_it_as_.22a_form_of_cosmic_Child_Abuse.22)
+    -   [5.6 Some see it necessarily implying definite atonement](#Some_see_it_necessarily_implying_definite_atonement)
+    -   [5.7 Some argue that He paid the debt of righteousness, not the penalty of death](#Some_argue_that_He_paid_the_debt_of_righteousness.2C_not_the_penalty_of_death)
+
+-   [6 Notes](#Notes)
+-   [7 Resources](#Resources)
+    -   [7.1 Favorable](#Favorable)
+    -   [7.2 Critical](#Critical)
+
+-   [8 See also](#See_also)
+-   [9 External links](#External_links)
+    -   [9.1 Favorable](#Favorable_2)
+    -   [9.2 Critical](#Critical_2)
+
+
 ## Background
 
 The **Penal-Substitution Theory** of the atonement was formulated

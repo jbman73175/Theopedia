@@ -47,7 +47,7 @@ Part of the series on the
 -   [Biblical criticism](Biblical_criticism "Biblical criticism")
 -   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")
 
-##Multimedia
+**Multimedia**
 
 -   [The Reliability of the New Testament](http://www.youtube.com/watch?v=DmognT95eYg),
     by Phil Fernandes
@@ -70,6 +70,25 @@ Part of the series on the
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051015.m3u),
     [Windows Media](http://broadcast.ligonier.org/playlists/rym20051015.asx)),
     by R.C. Sproul
+
+## Contents
+
+-   [1 The Text](#The_Text)
+    -   [1.1 The Gospels](#The_Gospels)
+    -   [1.2 Letters](#Letters)
+        -   [1.2.1 Pauline letters](#Pauline_letters)
+            -   [1.2.1.1 Prison letters](#Prison_letters)
+
+        -   [1.2.2 General letters](#General_letters)
+
+    -   [1.3 Prophecy](#Prophecy)
+    -   [1.4 Historicity of the New Testament](#Historicity_of_the_New_Testament)
+    -   [1.5 New Testament use of the Old Testament](#New_Testament_use_of_the_Old_Testament)
+    -   [1.6 New Testament Textual Criticism](#New_Testament_Textual_Criticism)
+
+-   [2 Resources](#Resources)
+-   [3 See also](#See_also)
+-   [4 External links](#External_links)
 
 ## The Text
 

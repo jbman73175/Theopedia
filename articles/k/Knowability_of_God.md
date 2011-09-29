@@ -10,6 +10,11 @@ to his creatures in a variety of ways we can know him personally,
 meaningfully, and significantly, in a limited but ever-increasing
 way throughout eternity.
 
+**Multimedia**
+
+-   [Barely Know You](http://open.spotify.com/track/3Auh8SiYrk3oZy6aRQ330W)
+    (song), by Enter The Worship Circle
+
 ## Contents
 
 -   [1 God cannot be known exhaustively](#God_cannot_be_known_exhaustively)
@@ -32,7 +37,6 @@ ultimately summed from the very mouth of God,
 
 *For my thoughts are not your thoughts, neither are your ways my ways, declares the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts (Isaiah 55:8-9)*.
 *Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways! (Romans 11:33)*
-
 ## How God *can* be known
 
 Although God cannot be known completely, we can know *true* things

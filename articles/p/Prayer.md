@@ -1,13 +1,16 @@
 "Prayer is the converse of the soul with God." -
 [Charles Hodge](Charles_Hodge "Charles Hodge")
 
-##Multimedia
+**Multimedia**
 
 -   [Does prayer really change things?](http://www.streamload.com/rpcsermons/QandA/Does%20prayer%20really%20change%20things.mp3)
     (MP3), by Tim Keller
 -   [Themes from James - The Prayer of Faith](http://broadcast.ligonier.org/podcast-media/rym20090711.mp3)
     (MP3), by [R. C. Sproul](R._C._Sproul "R. C. Sproul")
 
+
+
+*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## To God alone
 
 [R. C. Sproul](R._C._Sproul "R. C. Sproul") explains that "prayer

@@ -54,6 +54,7 @@ world's poor.
 -   Greece
 -   Guinea
 -   Guinea-Bissau
+
 -   India
 -   Korea, North
 -   Korea, South
@@ -74,6 +75,7 @@ world's poor.
 -   Iran
 -   Iraq
 -   Israel
+
 -   Japan
 -   Jordan
 -   Philippines
@@ -106,3 +108,6 @@ world's poor.
     by Luis Bush
 -   [Window of Opportunity](http://www.1040window.org)
 -   [10/40 Window Statistics](http://home.snu.edu/~hculbert.fs/1040.htm)
+
+
+

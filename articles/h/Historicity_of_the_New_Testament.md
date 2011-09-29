@@ -40,7 +40,7 @@ have no objective way to evaluate the historical sayings, deeds,
 and claims of Jesus and his disciples."
 [John Rosser](http://www.john-lee-ministries.org/Current_Articles/Historicity/historicity.html)
 
-##Multimedia
+**Multimedia**
 
 -   [Peter Williams Debates Bart Ehrman on the Reliability of the New Testament Manuscripts](http://media.premier.org.uk/unbelievable/f884634c-cd93-4002-a5fb-589cab03a90a.mp3)
     (MP3)
@@ -55,6 +55,7 @@ and claims of Jesus and his disciples."
     (MP3s), by [Grant Osborne](Grant_Osborne "Grant Osborne") (note:
     very philosophical)
 
+*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Resources
 
 -   *The New Testament Documents: Are They Reliable?*, by

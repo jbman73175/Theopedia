@@ -36,3 +36,7 @@ It is generally believed that in his later years John mentored
 The Roman Catholic Church also associates
 [Ignatius of Antioch](Ignatius_of_Antioch "Ignatius of Antioch")
 with him.
+
+*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
+

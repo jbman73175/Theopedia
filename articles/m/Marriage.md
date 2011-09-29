@@ -7,11 +7,19 @@ are part of what it means to be made in the image of God (Genesis
 of marriage, it is also expected to fulfill the commandment to have
 children, intended by God as a blessing (Genesis 1:28).
 
-##Multimedia
+*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+**Multimedia**
 
 -   [Is Same-sex Marriage About Equality?](http://www.youtube.com/watch?v=46fWQk21kUQ),
     by Greg Koukl - Is marriage something in particular or is it
     whatever you want it to be? Does it have a natural teleology?
+
+## Contents
+
+-   [1 View](#View)
+-   [2 Nature](#Nature)
+-   [3 See also](#See_also)
+-   [4 External links](#External_links)
 
 ## View
 
