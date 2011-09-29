@@ -11,29 +11,22 @@ assist in Church planting in Peru.^[[1]](#note-0)^
 
 
 
-**Multimedia**
+##Multimedia
 
-**Podcasts:**
+###Podcasts
 
 -   HeartCry Missionary Society,
     [All Software](http://www.heartcrymissionary.com/audio_podcast.php)
 -   SermonAudio (Paul Washer),
     [All Software](http://www.sermonaudio.com/rss_search.asp?speakeronly=true&keyword=Paul+Washer)
 
-**Videos:**
+###Videos
 
 -   SermonAudio (Paul Washer),
     [Latest Videos](http://www.sermonaudio.com/search.asp?mediatype=WMV&keyword=Paul%5EWasher&SpeakerOnly=true&currSection=sermonsspeaker),
     [RSS Feed](http://www.sermonaudio.com/rss_search.asp?speakeronly=true&keyword=Paul+Washer&filter=video)
 -   WVCY-TV30 (Paul Washer - "The True Gospel"),
     [[1]](http://vimeo.com/3502623)
-
-## Contents
-
--   [1 Current ministry](#Current_ministry)
--   [2 Publications](#Publications)
--   [3 References](#References)
--   [4 External link](#External_link)
 
 ## Current ministry
 
