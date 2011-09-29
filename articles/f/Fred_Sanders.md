@@ -13,7 +13,7 @@ He has also published four volumes under
 *Dr. Doctrine’s Christian Comix* (IVP, 1999) which seeks to use
 comics as a way to communicate theology to a younger audience.
 
-**Multimedia**
+##Multimedia
 
 -   [1 Cor 2: The Deep Things of God](http://www.gracefellowshipchurch.org/_sermons/gfc20080106-message.mp3),
     a sermon preached at Grace Fellowship Church in Costa Mesa, CA.
