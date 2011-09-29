@@ -42,12 +42,10 @@ and your plan had predestined to take place." - Acts 4:27-28
     hope. Now hope does not disappoint, because the love of God has
     been poured out in our hearts by the Holy Spirit who was given to
     us." - Romans 5:3-5 (NKJV)
-
 -   "...that I may know Him and the power of His resurrection, and
     the fellowship of His sufferings, being conformed to His death, if,
     by any means, I may attain to the resurrection from the dead." -
     Philippians 3:10
-
 -   "...though He was a Son, yet He learned obedience by the things
     which He suffered." - Hebrews 5:8
 
