@@ -40,8 +40,8 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+
+##Multimedia
 
 **J. B. Gay Lectures at Southern Baptist Theological Seminary (2006)**,
 by Gordon Wenham
