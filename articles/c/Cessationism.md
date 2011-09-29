@@ -8,10 +8,9 @@ passed away before the canon of Scripture was closed (comp. 1 Cor.
 view that the miraculous gifts are normative, have not ceased, and
 are available for the believer today.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
-#### Favorable
+### Favorable
 
 -   [The Hermeneutics of Non-Cessationism](http://audio.tms.edu/tmstrans.asp?id=28&fn=fcsThomas03.mp3&ministry_id=3&url=http://www.tms.edu/audio.asp)
     (MP3), by Robert L. Thomas
@@ -21,8 +20,6 @@ are available for the believer today.
     (MP3), by Donald McDougall
 -   [Scripture and Divine Healing](http://audio.tms.edu/tmstrans.asp?id=31&fn=fcsMayhue03.mp3&ministry_id=3&url=http://www.tms.edu/audio.asp)
     (MP3), by Richard L. Mayhue
-
-
 
 ## Resources
 
