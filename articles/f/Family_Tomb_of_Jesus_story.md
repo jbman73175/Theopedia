@@ -8,7 +8,7 @@ The **Family Tomb of Jesus story** concerns the controversal claim
 of Simcha Jacobovici and Charles R. Pellegrino that the Talpiot
 Tomb is the tomb of Jesus Christ and his family.
 
-**Multimedia**
+##Multimedia
 
 -   [The Jesus Tomb Unmasked](http://www.expeditionbible.com/thejesustombunmasked.html)
     (video)
@@ -23,7 +23,7 @@ Tomb is the tomb of Jesus Christ and his family.
 -   ["Is This Really 'The Lost Tomb of Christ'?" – The Albert Mohler Radio Program](http://www.sbts.edu/MP3/totl/2007/AMP_02_27_2007.mp3)
     (MP3)
 
-**Issues, Etc.**
+###Issues, Etc.
 
 -   [Interview with Paul Maier on a Forthcoming Discovery Channel Documentary Called 'The Lost Tomb of Jesus'](http://www.kfuo.org/mp3/Issues7/Issues_Etc_Feb_26b.mp3)
     (MP3)
@@ -31,26 +31,6 @@ Tomb is the tomb of Jesus Christ and his family.
     (MP3)
 -   [CNN Story on the Lost Tomb of Jesus & CBS Early Show Debate on the Lost Tomb of Jesus](http://www.kfuo.org/mp3/Issues7/Issues_Etc_Feb_28c.mp3)
     (MP3) - starts at 16m 23s
-
-## Contents
-
--   [1 What are the basic history problems?](#What_are_the_basic_history_problems.3F)
--   [2 Is "Mariamne" Mary Magdalene?](#Is_.22Mariamne.22_Mary_Magdalene.3F)
--   [3 What about the statistics?](#What_about_the_statistics.3F)
--   [4 What does the DNA show?](#What_does_the_DNA_show.3F)
--   [5 Does John 19 describe a conversation between Jesus and his wife?](#Does_John_19_describe_a_conversation_between_Jesus_and_his_wife.3F)
--   [6 Was the Gospel of Thomas written by "Jesus' son Judah"?](#Was_the_Gospel_of_Thomas_written_by_.22Jesus.27_son_Judah.22.3F)
--   [7 Tenth ossuary missing?](#Tenth_ossuary_missing.3F)
--   [8 Notes](#Notes)
--   [9 Books](#Books)
--   [10 See also](#See_also)
--   [11 External links](#External_links)
-    -   [11.1 Mainstream media](#Mainstream_media)
-    -   [11.2 Favorable](#Favorable)
-    -   [11.3 Critical](#Critical)
-
-
-
 
 ## What are the basic history problems?
 
