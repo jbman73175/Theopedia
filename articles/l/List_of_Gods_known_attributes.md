@@ -1,30 +1,3 @@
-## Contents
-
--   [1 Eternal](#Eternal)
--   [2 Holiness](#Holiness)
--   [3 Unchanging](#Unchanging)
--   [4 Impassable](#Impassable)
--   [5 Infinite](#Infinite)
--   [6 All-powerful](#All-powerful)
--   [7 Everywhere-present](#Everywhere-present)
--   [8 All-wise](#All-wise)
--   [9 All-knowing](#All-knowing)
--   [10 Simple](#Simple)
--   [11 Self-existent](#Self-existent)
--   [12 Self-sufficient](#Self-sufficient)
--   [13 Immaterial](#Immaterial)
--   [14 Good](#Good)
--   [15 Love](#Love)
--   [16 Gracious](#Gracious)
--   [17 Merciful](#Merciful)
--   [18 Just](#Just)
--   [19 Sovereign](#Sovereign)
--   [20 Freedom](#Freedom)
--   [21 Jealousy](#Jealousy)
--   [22 Resources](#Resources)
--   [23 See also](#See_also)
--   [24 External links](#External_links)
-
 ## Eternal
 
 God exists forever, meaning he has no beginning or end (cf. Psalm
