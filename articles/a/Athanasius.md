@@ -8,7 +8,7 @@ and the [Eastern Orthodox](Eastern_Orthodox "Eastern Orthodox")
 Church, and recognized as a great leader and doctor of the early
 church by [Protestants](Protestantism "Protestantism").
 
-**Multimedia**
+##Multimedia
 
 -   [Contending for Our All: The Life and Ministry of Athanasius](http://www.desiringgod.org/media/mp3/conferences/bcp2005/04_20050201_piper.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional
@@ -17,17 +17,6 @@ church by [Protestants](Protestantism "Protestantism").
     [Part 1](http://www.wicketgate.org/athanasius/athanasius_1.html),
     [Part 2](http://www.wicketgate.org/athanasius/athanasius_2.html),
     by Dr. Nick Needham
-
-## Contents
-
--   [1 Biographical overview](#Biographical_overview)
--   [2 Further reading](#Further_reading)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Online works](#Online_works)
-
-
-
 
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Biographical overview
