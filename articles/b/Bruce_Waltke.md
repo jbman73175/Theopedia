@@ -10,7 +10,7 @@ Old Testament at Dallas Theological Seminary, Westminster
 Theological Seminary, Reformed Theological Seminary (Orlando), and
 Regent College (Vancouver).
 
-**Multimedia**
+##Multimedia
 
 -   [Audio and video](http://www.brucewaltkeonline.com/audio.php)
     (most for pay)
