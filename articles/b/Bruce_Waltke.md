@@ -10,13 +10,6 @@ Old Testament at Dallas Theological Seminary, Westminster
 Theological Seminary, Reformed Theological Seminary (Orlando), and
 Regent College (Vancouver).
 
-##Multimedia
-
--   [Audio and video](http://www.brucewaltkeonline.com/audio.php)
-    (most for pay)
--   [Lectures by Waltke on Psalms, Proverbs, etc.](http://www.believerschapeldallas.org/OnlineMessages/MessagesbyDrBruceWaltke/tabid/175/Default.aspx)
-    (MP3s)
-
 Waltke's writings and publications include,
 *Introduction to Biblical Hebrew Syntax*,
 *Finding the Will of God: A Pagan Notion?* and commentaries on the
@@ -28,7 +21,13 @@ is also a member of the translation committee for
 [TNIV](TNIV "TNIV") and served a term as president of the
 [Evangelical Theological Society](Evangelical_Theological_Society "Evangelical Theological Society").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+##Multimedia
+
+-   [Audio and video](http://www.brucewaltkeonline.com/audio.php)
+    (most for pay)
+-   [Lectures by Waltke on Psalms, Proverbs, etc.](http://www.believerschapeldallas.org/OnlineMessages/MessagesbyDrBruceWaltke/tabid/175/Default.aspx)
+    (MP3s)
+
 ## Selected publications
 
 -   *A Commentary on Micah*. Eerdmans, 2007.
