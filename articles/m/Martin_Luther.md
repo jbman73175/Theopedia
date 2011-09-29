@@ -20,7 +20,7 @@ inspired the development of congregational singing in Christianity.
 His marriage on June 13, 1525, to Katharina von Bora began a
 movement of clerical marriage within many Christian traditions.
 
-**Multimedia**
+##Multimedia
 
 -   [Martin Luther: Lessons from His Life and Labor](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/09_luther.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")
@@ -33,28 +33,6 @@ movement of clerical marriage within many Christian traditions.
     (MP3), by Gordon Isaac
 -   [Introducing... Martin Luther](http://theologynetwork.org/historical-theology/getting-stuck-in/introducing----martin-luther.htm)
     (MP3), four lectures by Mike Reeves
-
-## Contents
-
--   [1 Luther's early life](#Luther.27s_early_life)
--   [2 Luther's struggle to find peace with God](#Luther.27s_struggle_to_find_peace_with_God)
--   [3 Luther's theory of grace](#Luther.27s_theory_of_grace)
--   [4 The indulgence controversy](#The_indulgence_controversy)
--   [5 Response of the Papacy](#Response_of_the_Papacy)
-    -   [5.1 The excommunication of Luther](#The_excommunication_of_Luther)
-
--   [6 Diet of Worms](#Diet_of_Worms)
--   [7 Luther's German Bible](#Luther.27s_German_Bible)
--   [8 Further reading](#Further_reading)
-    -   [8.1 Primary](#Primary)
-    -   [8.2 Secondary](#Secondary)
-
--   [9 Films](#Films)
--   [10 See also](#See_also)
--   [11 External links](#External_links)
-    -   [11.1 Original texts](#Original_texts)
-    -   [11.2 Luther and his work](#Luther_and_his_work)
-
 
 ## Luther's early life
 
