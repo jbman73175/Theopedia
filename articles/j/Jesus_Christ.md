@@ -19,7 +19,7 @@ recorded in the four Gospels of the
 [New Testament](New_Testament "New Testament"). The study of Jesus
 Christ is called **Christology**.
 
-**Multimedia**
+##Multimedia
 
 -   The Person of Jesus Christ -
     [Part 1](http://www.biblicaltraining.org/audio/TH504/theology_2_01_QT-high.mov),
@@ -38,26 +38,6 @@ Christ is called **Christology**.
 -   [Who is Jesus and Why Does it Matter?](http://www.veritas.org/mediafiles/A92HARV03.mp3)
     (MP3), by [Ravi Zacharias](Ravi_Zacharias "Ravi Zacharias")
     ([Q&A](http://www.veritas.org/mediafiles/A92HARV04.mp3))
-
-## Contents
-
--   [1 Jesus the Christ](#Jesus_the_Christ)
--   [2 Jesus' pre-existance](#Jesus.27_pre-existance)
--   [3 The Word became flesh](#The_Word_became_flesh)
--   [4 Jesus' life and ministry](#Jesus.27_life_and_ministry)
--   [5 The person of Jesus](#The_person_of_Jesus)
--   [6 The culmination of Jesus' life](#The_culmination_of_Jesus.27_life)
--   [7 Jesus' return](#Jesus.27_return)
--   [8 Other issues in Christology](#Other_issues_in_Christology)
-    -   [8.1 Methods](#Methods)
-    -   [8.2 What did Jesus actually say and do?](#What_did_Jesus_actually_say_and_do.3F)
-    -   [8.3 Could Jesus have sinned?](#Could_Jesus_have_sinned.3F)
-    -   [8.4 Old Testament Prophecy](#Old_Testament_Prophecy)
-
--   [9 Further reading](#Further_reading)
--   [10 Notes](#Notes)
--   [11 See also](#See_also)
--   [12 External links](#External_links)
 
 ## Jesus the Christ
 
