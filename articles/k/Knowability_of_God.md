@@ -25,6 +25,7 @@ ultimately summed from the very mouth of God,
 
 *For my thoughts are not your thoughts, neither are your ways my ways, declares the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts (Isaiah 55:8-9)*.
 *Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways! (Romans 11:33)*
+
 ## How God *can* be known
 
 Although God cannot be known completely, we can know *true* things
