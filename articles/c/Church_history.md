@@ -10,7 +10,7 @@ to the east and south of the Mediterranean.
 An overview of church history in chronological sections is given
 below, beneath the multimedia section.
 
-**Multimedia**
+##Multimedia
 
 -   [The Value of Church History](http://www.wicketgate.org/autumn2005/value_of_church_history.html)
     (MP3) by Nick Needham
@@ -50,35 +50,6 @@ below, beneath the multimedia section.
         early church to medieval
     -   [History of Christianity II](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155924403.01155924408),
         Reformation to 19th century
-
-
-## Contents
-
--   [1 Apostolic Age (30–100 AD)](#Apostolic_Age_.2830.E2.80.93100_AD.29)
-    -   [1.1 Twelve apostles](#Twelve_apostles)
-    -   [1.2 Earliest martyrs](#Earliest_martyrs)
-
--   [2 From the Apostles to the Council of Nicaea (100–325)](#From_the_Apostles_to_the_Council_of_Nicaea_.28100.E2.80.93325.29)
-    -   [2.1 The Apostolic Fathers](#The_Apostolic_Fathers)
-    -   [2.2 The Apologists](#The_Apologists)
-    -   [2.3 Other Ante-Nicene writers](#Other_Ante-Nicene_writers)
-
--   [3 From the Council of Nicaea to the Fall of the Roman Empire (325–590)](#From_the_Council_of_Nicaea_to_the_Fall_of_the_Roman_Empire_.28325.E2.80.93590.29)
--   [4 The Medieval Church and Scholasticism (590–1517)](#The_Medieval_Church_and_Scholasticism_.28590.E2.80.931517.29)
--   [5 The Reformation (1517–1648)](#The_Reformation_.281517.E2.80.931648.29)
--   [6 The Enlightenment Church (1648–1789)](#The_Enlightenment_Church_.281648.E2.80.931789.29)
--   [7 The Modern Church (1798–1970)](#The_Modern_Church_.281798.E2.80.931970.29)
--   [8 The Post-modern Church (1970 – present)](#The_Post-modern_Church_.281970_.E2.80.93_present.29)
--   [9 References](#References)
--   [10 Further reading](#Further_reading)
-    -   [10.1 General works](#General_works)
-    -   [10.2 Early church](#Early_church)
-    -   [10.3 Medieval](#Medieval)
-    -   [10.4 Reformation and post-Reformation](#Reformation_and_post-Reformation)
-    -   [10.5 Contemporary](#Contemporary)
-
--   [11 See also](#See_also)
--   [12 External links](#External_links)
 
 ## Apostolic Age (30–100 AD)
 
