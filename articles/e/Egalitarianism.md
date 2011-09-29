@@ -20,8 +20,6 @@ presented in Scripture have emerged.
 -   The other view is Christian *Egalitarianism* which is presented
     in this article.
 
-
-
 ## Contents
 
 -   [1 Etymology](#Etymology)
@@ -466,89 +464,7 @@ See also:
 13. [↑](#ref-MenWomen_0)
     [www.cbeinternational.org/?q=content/men-women-and-biblical-equality]
     Men, Women and Biblical Equality
-14. [↑](#ref-10) {{
-    1.  if: {{\#if:
-        [http://www.cbeinternational.org/new/about/who\_we\_are.shtml\#statement](http://www.cbeinternational.org/new/about/who_we_are.shtml#statement)
-        | {{\#if: Statement of Faith |1}}}}
-
-    ||
-    You must specify ***title =*** and ***url =*** when using
-    {{[cite web](http://www.theopedia.com/Template:Cite_web "Template:Cite web")}}.
-    Available parameters:
-    [http://en.wikipedia.org/wiki/Template:Cite\_web](http://en.wikipedia.org/wiki/Template:Cite_web)
-
-    }}{{
-
-    1.  if:
-
-         | {{#if: {{#if: | {{#if:  |1}}}} 
-
-    ||
-    You must specify ***archiveurl=*** and
-    ***archivedate=** when using {{[cite web](http://www.theopedia.com/Template:Cite_web "Template:Cite web")}}. Available parameters:*
-    [http://en.wikipedia.org/wiki/Template:Cite\_web](http://en.wikipedia.org/wiki/Template:Cite_web)
-
-    }} }}{{\#if:
-
-         | {{#if:     | [[{{{authorlink}}}|{{#if:       | {{{last}}}{{#if:  | , {{{first}}} }}      | {{{author}}}    }}]]    | {{#if:       | {{{last}}}{{#if:  | , {{{first}}} }}      | {{{author}}}    }}  }} 
-
-    }}{{\#if:
-
-         | {{#if: | ; {{{coauthors}}} }} 
-
-    }}{{\#if: |
-
-           {{#if:     |  ({{{date}}})    | {{#if:       | {{#if:         |  ({{{month}}} {{{year}}})        |  ({{{year}}})      }}    }}  |}} 
-
-    }}{{\#if:
-
-         | . }}{{  #if:   |  {{{editor}}}:  
-
-    }}{{\#if:
-
-           | {{#if:  | {{#if: Statement of Faith | [{{{archiveurl}}} Statement of Faith] }}}}    | {{#if: http://www.cbeinternational.org/new/about/who_we_are.shtml#statement | {{#if: Statement of Faith | Statement of Faith }}}} 
-
-    }}{{\#if: |  () }}{{\#if: |  ({{{language}}}) }}{{\#if:
-
-         | . {{{work}}} 
-
-    }}{{\#if:
-
-         |  {{{pages}}} 
-
-    }}{{\#if: Christians for Biblical Equality
-
-         | . Christians for Biblical Equality{{#if:     |     | {{#if:  || }}  }} 
-
-    }}{{\#if:
-
-         ||{{#if:     |  ({{{date}}})    | {{#if:       | {{#if:         |  ({{{month}}} {{{year}}})        |  ({{{year}}})      }}    }}  }} 
-
-    }}.{{\#if:
-
-         |  Archived from the original on [[{{{archivedate}}}]]. 
-
-    }}{{\#if:
-
-         |  DOI:{{{doi}}}. 
-
-    }}{{\#if: 2009-11-14
-
-         |  Retrieved on 2009-11-14{{#if:  | , [[{{{accessyear}}}]] }}. 
-
-    }}{{\#if:
-
-         |  Retrieved on {{{accessmonthday}}}, {{{accessyear}}}. 
-
-    }}{{\#if:
-
-         |  Retrieved on {{{accessdaymonth}}} {{{accessyear}}}. 
-
-    }}{{\#if:
-
-         |  “{{{quote}}}” 
-
-    }}
+14. 
 15. [↑](#ref-11) Marsh, Clive, Steve Moyise.
     *Jesus and the Gospels.* Continuum International Publishing Group,
     2006.
@@ -678,6 +594,3 @@ See also:
     by Eric Peterman
 -   [*Recovering Biblical Manhood and Womanhood*](http://www.cbmw.org/Recovering-Biblical-Manhood-and-Womanhood/)
     by Wayne Grudem & John Piper (eds.)
-
-
-
