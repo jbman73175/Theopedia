@@ -11,7 +11,7 @@ the more extreme view that the KJV was actually "given by
 inspiration of God" (2Tim. 3:16, KJV) and has more authority than
 the original manuscripts.
 
-**Multimedia**
+##Multimedia
 
 -   [King James Only advocate Samuel Gipp challenged on TV by Dan Wallace and James White](http://www.youtube.com/watch?v=nEwYMvpaQSk)
     (YouTube)
@@ -19,16 +19,6 @@ the original manuscripts.
 -   [Why the King James Version](http://www.canonwired.com/ask-doug/king-james-version/),
     by [Douglas Wilson](Douglas_Wilson "Douglas Wilson")
 
-## Contents
-
--   [1 See also](#See_also)
--   [2 Resources](#Resources)
--   [3 External links](#External_links)
-    -   [3.1 Favorable](#Favorable)
-    -   [3.2 Critical](#Critical)
-
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## See also
 
 -   [Sola scriptura](Sola_scriptura "Sola scriptura")
