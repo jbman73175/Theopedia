@@ -24,19 +24,12 @@ one of six editors in charge of the New Living Translation (1996).
 He is currently working on a commentary on Matthew for Zondervan.
 [[2]](http://wvvw.tiu.edu/people/faculty/osborne.htm)
 
-**Multimedia**
+##Multimedia
 
 -   The Reliability of the Bible, MP3s
     [Part 1](http://www.veritas.org/mediafiles/VTS-Osborne-1998-NorthCarolina-98VFNC03.mp3),
     [Part 2](http://www.veritas.org/mediafiles/VTS-Osborne-1998-NorthCarolina-98VFNC04.mp3),
     [Part 3](http://www.veritas.org/mediafiles/VTS-Osborne-1998-NorthCarolina-98VFNC05.mp3)
-
-## Contents
-
--   [1 Publications](#Publications)
--   [2 External links](#External_links)
-    -   [2.1 Online works](#Online_works)
-
 
 ## Publications
 
