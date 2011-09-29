@@ -26,7 +26,7 @@ Machen's influence can still be felt today through the existence of
 both institutions that he founded - Westminster Seminary and the
 Orthodox Presbyterian Church.
 
-**Multimedia**
+##Multimedia
 
 -   [J. Gresham Machen's Response to Modernism](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/06_machen.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional
@@ -34,25 +34,6 @@ Orthodox Presbyterian Church.
 -   ["What is Faith?" by J. Gresham Machen](http://www.youtube.com/watch?v=pV8V-MpUHlQ)
     - March 2009's Resource of the Month (Reformed Blogger's 1st
     YouTube presentation)
-
-## Contents
-
--   [1 Early Life](#Early_Life)
--   [2 Academic training](#Academic_training)
--   [3 Princeton 1906-1916](#Princeton_1906-1916)
--   [4 World War One](#World_War_One)
--   [5 Princeton 1918-1926](#Princeton_1918-1926)
--   [6 Controversies](#Controversies)
--   [7 Westminster](#Westminster)
--   [8 The Orthodox Presbyterian Church](#The_Orthodox_Presbyterian_Church)
--   [9 Death](#Death)
--   [10 Resources](#Resources)
--   [11 Online Writings](#Online_Writings)
-    -   [11.1 Princeton Review articles](#Princeton_Review_articles)
-
--   [12 External Links](#External_Links)
-
-
 
 ## Early Life
 
