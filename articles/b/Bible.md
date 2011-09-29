@@ -15,7 +15,7 @@ Part of the series on the
 -   [Clarity](Clarity_of_Scripture "Clarity of Scripture")
 -   [Scripture alone](Scripture_alone "Scripture alone")
 -   [Biblical criticism](Biblical_criticism "Biblical criticism")
--   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")
+-   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism") 
 
 The **Bible** is the sacred book of
 [Christianity](Christianity "Christianity"), a collection of
