@@ -44,16 +44,14 @@ The following chart represents the most widely distributed and used
 translations of the Bible into modern (20th and 21st century)
 English:
 
-Version name
-Initially Published
-Major Revisions
-Publisher
-Principal Editor
-[Authorized ("King James") Version](King_James_Version "King James Version")
-(KJV)
-1611
-[American Standard Version](American_Standard_Version "American Standard Version")
-(ASV)
+* Version name
+* Initially Published
+* Major Revisions
+* Publisher
+* Principal Editor
+* [Authorized ("King James") Version](King_James_Version "King James Version") (KJV)
+* 1611
+* [American Standard Version](American_Standard_Version "American Standard Version") (ASV)
 1901
 Thomas Nelson & Sons
 [Philip Schaff](Philip_Schaff "Philip Schaff")
@@ -145,7 +143,6 @@ Edwin Blum
 2005
 Zondervan
 John H. Stek
-
 
 ## See also
 
