@@ -28,33 +28,10 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+##Multimedia
 
 -   [Weakness: The Message of 2 Corinthians](http://dl.salemweb.net/?mg=15A1E0B4-F323-4708-B9C7-7A13A1F15464)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
-
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Background](#Background)
--   [3 Content](#Content)
--   [4 External links](#External_links)
-
-## Chapters
-
-[1](index.php?title=2_Corinthians_1&action=edit&redlink=1 "2 Corinthians 1 (page does not exist)"),
-[2](index.php?title=2_Corinthians_2&action=edit&redlink=1 "2 Corinthians 2 (page does not exist)"),
-[3](index.php?title=2_Corinthians_3&action=edit&redlink=1 "2 Corinthians 3 (page does not exist)"),
-[4](index.php?title=2_Corinthians_4&action=edit&redlink=1 "2 Corinthians 4 (page does not exist)"),
-[5](index.php?title=2_Corinthians_5&action=edit&redlink=1 "2 Corinthians 5 (page does not exist)"),
-[6](2_Corinthians_6 "2 Corinthians 6"),
-[7](index.php?title=2_Corinthians_7&action=edit&redlink=1 "2 Corinthians 7 (page does not exist)"),
-[8](index.php?title=2_Corinthians_8&action=edit&redlink=1 "2 Corinthians 8 (page does not exist)"),
-[9](index.php?title=2_Corinthians_9&action=edit&redlink=1 "2 Corinthians 9 (page does not exist)"),
-[10](index.php?title=2_Corinthians_10&action=edit&redlink=1 "2 Corinthians 10 (page does not exist)"),
-[11](index.php?title=2_Corinthians_11&action=edit&redlink=1 "2 Corinthians 11 (page does not exist)"),
-[12](index.php?title=2_Corinthians_12&action=edit&redlink=1 "2 Corinthians 12 (page does not exist)"),
-[13](index.php?title=2_Corinthians_13&action=edit&redlink=1 "2 Corinthians 13 (page does not exist)")
 
 ## Background
 
