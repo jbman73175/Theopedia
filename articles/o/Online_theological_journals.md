@@ -38,7 +38,6 @@
 -   [Founders Journal](http://www.founders.org/journal.html)
 -   [Journal for Baptist Theology and Ministry](http://www.baptistcenter.com/journalarchive.html)
 -   [The Journal of Baptist Studies](http://baptiststudiesonline.com/?page_id=18)
-
 -   [Southern Baptist Journal of Theology](http://www.sbts.edu/resources/publications/journal-of-theology/)
 -   [Southwestern Journal of Theology](http://www.baptisttheology.org/journal.cfm)
 
@@ -89,6 +88,3 @@
     (a custom search engine which simultaneously searches over 300
     open-access, full-text journals)
 -   [Online Biblical Studies Journals Search](http://www.google.com/coop/cse?cx=014480939289609955415:7f8e_mv4pou)
-
-
-
