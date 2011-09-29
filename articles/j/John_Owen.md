@@ -9,7 +9,7 @@ possessed the finest theological mind that England ever produced"
 ("Owen, John", in *Biographical Dictionary of Evangelicals*, p.
 494)
 
-**Multimedia**
+##Multimedia
 
 -   [Dr. Carl Trueman on John Owen](http://www.youtube.com/watch?v=-PtdY3qDqSs&feature=player_embedded),
     YouTube
@@ -26,20 +26,6 @@ biographical sketch **Lectures by Carl Trueman** (MP3s)
 -   [John Owen on God](http://mp3.sa-media.com/filearea/1080522227/1080522227.mp3)
 -   [John Owen on Christ](http://mp3.sa-media.com/filearea/1080522340/1080522340.mp3)
 -   [John Owen on the Holy Spirit](http://mp3.sa-media.com/filearea/109051664/109051664.mp3)
-
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 Quotes](#Quotes)
--   [3 Resources](#Resources)
--   [4 References](#References)
--   [5 External links](#External_links)
-    -   [5.1 Online works](#Online_works)
-        -   [5.1.1 Books](#Books)
-        -   [5.1.2 Sermons](#Sermons)
-        -   [5.1.3 Tracts & Essays](#Tracts_.26_Essays)
-
-
 
 ## Biographical sketch
 
