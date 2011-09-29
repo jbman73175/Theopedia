@@ -10,8 +10,9 @@ Westminster (Philadelphia) and Director of Mercy Ministries for the
 [Presbyterian](Presbyterian "Presbyterian")
 [Church](Church "Church") (PCA).
 
-**Multimedia**
+##Multimedia
 
+-	[Tim Keller at Google's Mountain View, CA, headquarters](http://www.youtube.com/watch?v=Kxup3OS5ZhQ)
 -   [Belief in an Age of Skepticism](http://www.youtube.com/watch?v=C9fmKSwuoDE)
     (YouTube), at UC Berkley
 -   [Will everyone be saved?](http://www.youtube.com/watch?v=_2qeJMUnkik&NR=1)
@@ -25,7 +26,6 @@ Westminster (Philadelphia) and Director of Mercy Ministries for the
 -   [Redeemer Core Values](http://sermons.redeemer.com/store/index.cfm?fuseaction=category.display&category_ID=23),
     Redeemer Presbyterian Church Sermons
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Publications
 
 -   *Counterfeit Gods: The Empty Promises of Money, Sex, and Power, and the Only Hope that Matters*.
