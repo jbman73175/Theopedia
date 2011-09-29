@@ -14,7 +14,7 @@ body (Eph. 4:11-16). We are all priests. We are all responsible."
 -   [Priesthood of all believers (Part 1)](http://arboroaksbible.org/audio/download/175/JF061508.mp3),
     Jim Fleming, June 15, 2008.
 
-## Biblical support
+## Biblical support 
 
 -   "you yourselves like living stones are being built up as a
     spiritual house, to be a holy priesthood, to offer spiritual
