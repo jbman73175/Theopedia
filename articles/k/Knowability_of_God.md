@@ -10,11 +10,6 @@ to his creatures in a variety of ways we can know him personally,
 meaningfully, and significantly, in a limited but ever-increasing
 way throughout eternity.
 
-**Multimedia**
-
--   [Barely Know You](http://open.spotify.com/track/3Auh8SiYrk3oZy6aRQ330W)
-    (song), by Enter The Worship Circle
-
 ## Contents
 
 -   [1 God cannot be known exhaustively](#God_cannot_be_known_exhaustively)
