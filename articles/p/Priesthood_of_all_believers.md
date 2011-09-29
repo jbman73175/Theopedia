@@ -9,7 +9,7 @@ one of us individually and collectively does his part to build the
 body (Eph. 4:11-16). We are all priests. We are all responsible."
 (Daniel Akin in *Perspectives on Church Government*, p. 37)
 
-**Multimedia**
+##Multimedia
 
 -   [Priesthood of all believers (Part 1)](http://arboroaksbible.org/audio/download/175/JF061508.mp3),
     Jim Fleming, June 15, 2008.
@@ -42,6 +42,4 @@ bottom. The earth shook and the rocks split." (Mat. 27:50-51, NIV)
 
 -   [Soul competency](Soul_competency "Soul competency")
 -   [Religious liberty](index.php?title=Religious_liberty&action=edit&redlink=1 "Religious liberty (page does not exist)")
-
-
 
