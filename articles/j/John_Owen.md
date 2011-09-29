@@ -19,7 +19,7 @@ possessed the finest theological mind that England ever produced"
 -   [The Pastoral Theology of John Owen](http://spurgeon.wordpress.com/2007/06/29/john-owen-derek-thomas/),
     by Derek Thomas
 
-biographical sketch **Lectures by Carl Trueman** (MP3s)
+Biographical sketch **Lectures by Carl Trueman** (MP3s)
 
 -   [John Owen: The Man and His Time](http://mp3.sa-media.com/filearea/1080502319/1080502319.mp3)
 -   [John Owen and the Practice of Theology](http://mp3.sa-media.com/filearea/1080502650/1080502650.mp3)
