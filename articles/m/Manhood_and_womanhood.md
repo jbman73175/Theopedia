@@ -1,29 +1,6 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Manhood_and_womanhood "Talk:Manhood and womanhood")
-or
-[replace this tag](index.php?title=Manhood_and_womanhood&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
-[![image](images/thumb/5/56/Grace.jpg/180px-Grace.jpg)](http://www.theopedia.com/File:Grace.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Grace.jpg "Enlarge")
-*Grace* by Jean-Baptiste Simeon Chardin
-## Contents
+##Multimedia
 
--   [1 Scriptures Regarding Women](#Scriptures_Regarding_Women)
-    -   [1.1 Women in family life](#Women_in_family_life)
-    -   [1.2 Wives](#Wives)
-
--   [2 Scriptures Related to Women's Ministries](#Scriptures_Related_to_Women.27s_Ministries)
--   [3 Women in Ministry](#Women_in_Ministry)
--   [4 Quotes on Biblical Womanhood](#Quotes_on_Biblical_Womanhood)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Woman in ministry](#Woman_in_ministry)
-
+* [Husbands As Stay-At-Home Dads](http://www.youtube.com/watch?v=1WPVxndUcHQ) (YouTube), by [Mark and Grace Driscoll](Mark Driscoll)
 
 ## Scriptures Regarding Women
 
