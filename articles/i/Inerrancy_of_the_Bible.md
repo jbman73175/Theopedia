@@ -27,7 +27,7 @@ inerrancy was most recently and thoroughly articulated in 1978 in
 the
 [Chicago Statement on Biblical Inerrancy](Chicago_Statement_on_Biblical_Inerrancy "Chicago Statement on Biblical Inerrancy").
 
-**Multimedia**
+##Multimedia
 
 -   [Is the Bible without error?](http://www.desiringgod.org/media/audio/q_and_a/1794_is_the_bible_without_error.mp3)
     (MP3), by John Piper
@@ -58,22 +58,6 @@ the
     (MP3), by [Tim Keller](Tim_Keller "Tim Keller")
 -   [What does inerrancy mean? Is it essential to Christian belief?](http://www.thegospelcoalition.org/resources/video/What-does-inerrancy-mean-Is-it-essential-to-Christian-belief)
     (Flash video), by D.A. Carson
-
-## Contents
-
--   [1 The original autographs](#The_original_autographs)
--   [2 Proper interpretation](#Proper_interpretation)
--   [3 Inerrancy and infallibility](#Inerrancy_and_infallibility)
--   [4 Covers all disciplines of knowledge](#Covers_all_disciplines_of_knowledge)
--   [5 Criticism](#Criticism)
--   [6 Notes](#Notes)
--   [7 See also](#See_also)
--   [8 Resources](#Resources)
--   [9 External links](#External_links)
-    -   [9.1 Favorable](#Favorable)
-    -   [9.2 Critical](#Critical)
-    -   [9.3 Other](#Other)
-
 
 ## The original autographs
 
