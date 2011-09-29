@@ -21,7 +21,7 @@ Thirty-one of those years were spent at Chicago's Southside
 Alliance Church."
 [[1]](http://www.sendrevival.com/pioneers/awtozer/short_biography.htm)
 
-**Multimedia**
+##Multimedia
 
 -   [A. W. Tozer on SermonAudio](http://www.sermonaudio.com/search.asp?SpeakerOnly=true&currSection=sermonsspeaker&Keyword=A.%5EW.%5ETozer)
 -   [Sermons by Tozer](http://www.moodyaudio.com/person/24954/a-w-tozer),
@@ -32,16 +32,6 @@ Alliance Church."
         (Streaming .ASX)
     -   [Tozer's funeral service](http://www.atriumwebservices.com/DL_Services/Tozer/Funeral.zip)
         (MP3 in a Zip file)
-
-
-## Contents
-
--   [1 Selected works](#Selected_works)
--   [2 Resources](#Resources)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-    -   [3.2 Other links](#Other_links)
-
 
 ## Selected works
 
