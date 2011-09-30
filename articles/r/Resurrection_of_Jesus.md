@@ -11,8 +11,7 @@ Cor. 15:17). Paul also teaches that Christ's resurrection was
 effective in the [justification](Justification "Justification") of
 believers (Rom. 4:25).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [The Resurrection: Fact or Fiction?](http://static.veritas.org/media/files/Craig_Resurrection_Fresno.aiff.mp3)
     (MP3), by
@@ -33,20 +32,6 @@ believers (Rom. 4:25).
     [Part 3](http://www.youtube.com/watch?v=aPDlHlGGLiI&feature=relmfu),
     [Part 4](http://www.youtube.com/watch?v=EBxCAexOTRU&feature=relmfu)
     (YouTube videos)
-
-## Contents
-
--   [1 Defense of the resurrection](#Defense_of_the_resurrection)
-    -   [1.1 Paul's defense in 1 Corinthians 15](#Paul.27s_defense_in_1_Corinthians_15)
-    -   [1.2 Bodily resurrection](#Bodily_resurrection)
-
--   [2 Resources](#Resources)
--   [3 Notes](#Notes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-    -   [5.1 Favorable](#Favorable)
-    -   [5.2 Critical](#Critical)
-
 
 ## Defense of the resurrection
 
