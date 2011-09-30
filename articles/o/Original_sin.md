@@ -30,11 +30,6 @@ world is tainted by the Fall such that all of humanity is ethically
 debilitated, and people are powerless to rehabilitate themselves,
 unless rescued by God.
 
-##Multimedia
-
--   [Original Sin](http://www.biblicaltraining.org/audio/TH503/theology_1_28_QT-high.mov)
-    (Quicktime), by [Bruce Ware](Bruce_Ware "Bruce Ware")
-
 There are wide-ranging disagreements among Christian groups as to
 the exact understanding of this doctrine, with some so-called
 Christian groups denying it altogether.
@@ -50,6 +45,11 @@ which is the only part of Christian theology which can really be
 proved," (*Orthodoxy*, chap. 2). He saw original sin as the one
 Christian doctrine that is empirically verifiable and validated by
 3500 years of human history.
+
+##Multimedia
+
+-   [Original Sin](http://www.biblicaltraining.org/audio/TH503/theology_1_28_QT-high.mov)
+    (Quicktime), by [Bruce Ware](Bruce_Ware "Bruce Ware")
 
 ## Historical development
 
