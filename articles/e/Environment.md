@@ -7,7 +7,6 @@ influence in recent years, which re-casts the relationship between
 humanity and the rest of creation in different terms and provides a
 different understanding of dominion.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## References
 
 -   [Creation Care Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/ethics/creation)
