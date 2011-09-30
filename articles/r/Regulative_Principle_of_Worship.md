@@ -19,7 +19,6 @@ Church. This is the view found in Lutheran, Anglican, Methodist,
 most independant Baptist and Bible churches, as well as in the
 Roman Catholic church.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## A quote from Calvin
 
 "Moreover, the rule which distinguishes between pure and vitiated
