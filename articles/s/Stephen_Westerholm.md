@@ -16,15 +16,6 @@ understand Paul, but feel that they have nothing to learn from
 Martin Luther, should consider a career in metallurgy. Exegesis is
 learned from the masters." ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Publications](#Publications)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
--   [5 Online writings](#Online_writings)
-
 ## Publications
 
 -   *Perspectives Old and New on Paul: The "Lutheran" Paul and His Critics*.
