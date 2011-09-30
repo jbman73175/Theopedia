@@ -10,7 +10,7 @@ be." ^[[2]](#note-1)^ Thus, God's attributes are revealed truths of
 who he is and are revealed in scripture through his words and
 actions in the divine economy.
 
-**Multimedia**
+##Multimedia
 
 -   [HeartCry Conference 2005](http://www.heartcrymissionary.com/resources/conference_messages)
     (MP3s), scroll to the bottom of the page
@@ -21,19 +21,6 @@ actions in the divine economy.
         (MP3)
     -   [Divine Attributes](http://covenantseminary.inmotionhosting.com/ST200_Lecture_16.mp3)
         (MP3)
-
-
-## Contents
-
--   [1 Preliminary discussion](#Preliminary_discussion)
--   [2 Classifying the attributes of God](#Classifying_the_attributes_of_God)
--   [3 God's attributes](#God.27s_attributes)
--   [4 See also](#See_also)
--   [5 Resources](#Resources)
--   [6 References](#References)
--   [7 External links](#External_links)
-
-
 
 ## Preliminary discussion
 
@@ -118,6 +105,3 @@ which God has revealed himself to humanity.
     by Bob Deffinbaugh, Bible.org
 -   [The Nature and Attributes of God](http://www.newadvent.org/cathen/06612a.htm),
     NewAdvent.org
-
-
-
