@@ -15,12 +15,6 @@ adopted by Luther -- there was great animosity between
 [Martin Luther](Martin_Luther "Martin Luther") and he on this
 issue.
 
-**Multimedia**
-
--   [The Life and Theology of Ulrich Zwingli](http://worldwidefreeresources.com/upload/CH320_Lecture_06.mp3)
-    (MP3), by David Calhoun
-    ([Study Guide](http://worldwidefreeresources.com/upload/CH320_SG_06.pdf))
-
 Zwingli was born in Wildhaus, St. Gall, Switzerland to a prominent
 family of the middle classes. He was the third of eight sons. His
 father Ulrich was the chief magistrate in town, and his uncle
@@ -36,6 +30,12 @@ remaining five sternly held on to the Roman Catholic faith.
 
 Zwingli was killed in 1531 at Kappel am Albis, while serving as a
 military chaplain in a battle against the Catholic cantons.
+
+##Multimedia
+
+-   [The Life and Theology of Ulrich Zwingli](http://worldwidefreeresources.com/upload/CH320_Lecture_06.mp3)
+    (MP3), by David Calhoun
+    ([Study Guide](http://worldwidefreeresources.com/upload/CH320_SG_06.pdf))
 
 ## Timeline
 
