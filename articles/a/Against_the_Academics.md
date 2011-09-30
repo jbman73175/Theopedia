@@ -8,7 +8,6 @@ trinitate, 400-416). Academic skepticism was the product of two
 centuries of debate within Greek Hellenistic thought, ending just
 after the time of Cicero (died 43 BC).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Further reading
 
 -   [*Evenings with the Skeptics, Or, Free Discussion on Free Thinkers*](http://books.google.com/books?id=TOZRAAAAMAAJ&pg=PA166&dq=%22Against+the+Academics%22&as_brr=3#PPA166,M1),
