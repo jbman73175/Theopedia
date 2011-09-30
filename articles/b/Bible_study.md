@@ -109,9 +109,38 @@ often allow guest speakers (for example, pastors from other
 churches) and some even allow local members of the congregation to
 speak.
 
-## Bible study tools
+## Books
 
-### Online study tools
+-   Leland Ryken and James Wilhoit ,
+    *Ryken's Bible Handbook: A Guide to Reading and Studying the Bible*,
+    ([First chapter](http://www.tyndalebooksellers.com/firstchapter/pdfs/0-8423-8401-4.pdf)
+    (pdf)
+-   Gordon D. Fee and Douglas Stuart,
+    *How to Read the Bible for All It's Worth*, Zondervan; 3rd edition,
+    2003.
+-   Leland Ryken, *How to Read the Bible as Literature*, Zondervan;
+    1 edition, 1985.
+
+## See also
+
+-   [Online references](http://www.theopedia.com/Category:Online_references "Category:Online references")
+-   [Hermeneutics](Hermeneutics "Hermeneutics")
+-   [Arcing](Arcing "Arcing")
+
+## External links
+
+-   [Old Testament Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/oldt),
+    [New Testament Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/newt),
+    and
+    [Biblical Interpretation and Application Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/interpretation):
+    extensive online Bible study tools (Tyndale Seminary)
+-   [Windows Software for Bible Study](http://www.etsjets.org/jets/journal/46/46-3/46-3-pp465-495_JETS.pdf)
+    (pdf), by H. Van Dyke Parunak (JETS)
+
+
+### Bible study tools
+
+#### Online study tools
 
 -   [Bible Verse Look-up](http://www.biblegateway.com/) in various
     translations from Bible Gateway
@@ -149,12 +178,12 @@ speak.
 
 -   [Biblical and theological dictionaries](Biblical_and_theological_dictionaries "Biblical and theological dictionaries")
 
-### Online devotionals
+#### Online devotionals
 
 -   [A.W. Tozer Devotional Archives](http://dailyqt.crossmap.com/source/a-w-tozer/page1.htm)
 -   [Spurgeon's Morning and Evening](http://eword.gospelcom.net/spurgeon/)
 
-### Personal Software
+#### Personal Software
 
 -   [Accordance](http://www.accordancebible.com/)
 -   [Ages Digital Library](http://www.ageslibrary.com/)
@@ -178,35 +207,3 @@ speak.
         (Gnome window manager)
     -   [QPSword](http://www.crosswire.org/qpsword/) - The Qtopia SWORD
         Reader for Zaurus and iPaq handhelds
-
-
-## Books
-
--   Leland Ryken and James Wilhoit ,
-    *Ryken's Bible Handbook: A Guide to Reading and Studying the Bible*,
-    ([First chapter](http://www.tyndalebooksellers.com/firstchapter/pdfs/0-8423-8401-4.pdf)
-    (pdf)
--   Gordon D. Fee and Douglas Stuart,
-    *How to Read the Bible for All It's Worth*, Zondervan; 3rd edition,
-    2003.
--   Leland Ryken, *How to Read the Bible as Literature*, Zondervan;
-    1 edition, 1985.
-
-## See also
-
--   [Online references](http://www.theopedia.com/Category:Online_references "Category:Online references")
--   [Hermeneutics](Hermeneutics "Hermeneutics")
--   [Arcing](Arcing "Arcing")
-
-## External links
-
--   [Old Testament Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/oldt),
-    [New Testament Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/newt),
-    and
-    [Biblical Interpretation and Application Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/interpretation):
-    extensive online Bible study tools (Tyndale Seminary)
--   [Windows Software for Bible Study](http://www.etsjets.org/jets/journal/46/46-3/46-3-pp465-495_JETS.pdf)
-    (pdf), by H. Van Dyke Parunak (JETS)
-
-
-
