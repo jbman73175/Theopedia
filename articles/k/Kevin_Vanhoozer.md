@@ -12,27 +12,6 @@ Seminary, and a Ph.D. from Cambridge University, England having
 studied under
 [Nicholas Lash](http://en.wikipedia.org/wiki/Nicholas_Langrishe_Alleyne_Lash "w:Nicholas Langrishe Alleyne Lash").
 
-**Multimedia**
-
--   Wrighting the Wrongs of the Reformation? The State of the Union
-    with Christ in St. Paul and in Protestant Soteriology
-    ([Flash video](http://www.wheaton.edu/media/BITH/100417Vanhoozer.html),
-    [MP3](http://espace.wheaton.edu/media/wetn/BITH/mp3/100417Vanhoozer.mp3)),
-    2010 Wheaton Theology Conference
--   The Page Lecture series at Southeastern Baptist Theological
-    (Vimeo)
-    -   [Gospel Theater: Staging, Scripting, Directing](http://vimeo.com/7542727)
-    -   [Gospel Theater: Rehearsing, Improvising, Performing](http://vimeo.com/7559499)
-
--   [The Stage, the Story and the Script](http://media.asburyseminary.edu/audio/chapels/kentucky/2007spring/03152007-hi.mp3)
-    (MP3), Asbury Seminary Chapel, March 15, 2007
--   [Doing Church: the Theater of the Gospel](http://media.asburyseminary.edu/audio/chapels/kentucky/2007spring/03162007-hi.mp3)
-    (MP3), Asbury Seminary Chapel, March 16, 2007
--   [The Strange New Status Symbol of the Cross](http://adam.wheaton.edu/wetn-mp3/chap07-08/vanhoozer080319.mp3)
-    (MP3), Wheaton College Chapel, March 19, 2008
--   [Kevin Vanhoozer on the important authors in his life](http://www.youtube.com/watch?v=hbJ1LuD8DXo)
-    (YouTube)
-
 Vanhoozer's *The Drama of Doctrine* was named best book in theology
 in the 2006
 *[Christianity Today](Christianity_Today "Christianity Today")*
@@ -73,6 +52,27 @@ honor the intentions of the author and try to interpret the text in
 a way which re-creates the author's intended meaning. This
 responsibility is coupled with a freedom to determine the
 significance in the context of the interpreter's community.
+
+##Multimedia
+
+-   Wrighting the Wrongs of the Reformation? The State of the Union
+    with Christ in St. Paul and in Protestant Soteriology
+    ([Flash video](http://www.wheaton.edu/media/BITH/100417Vanhoozer.html),
+    [MP3](http://espace.wheaton.edu/media/wetn/BITH/mp3/100417Vanhoozer.mp3)),
+    2010 Wheaton Theology Conference
+-   The Page Lecture series at Southeastern Baptist Theological
+    (Vimeo)
+    -   [Gospel Theater: Staging, Scripting, Directing](http://vimeo.com/7542727)
+    -   [Gospel Theater: Rehearsing, Improvising, Performing](http://vimeo.com/7559499)
+
+-   [The Stage, the Story and the Script](http://media.asburyseminary.edu/audio/chapels/kentucky/2007spring/03152007-hi.mp3)
+    (MP3), Asbury Seminary Chapel, March 15, 2007
+-   [Doing Church: the Theater of the Gospel](http://media.asburyseminary.edu/audio/chapels/kentucky/2007spring/03162007-hi.mp3)
+    (MP3), Asbury Seminary Chapel, March 16, 2007
+-   [The Strange New Status Symbol of the Cross](http://adam.wheaton.edu/wetn-mp3/chap07-08/vanhoozer080319.mp3)
+    (MP3), Wheaton College Chapel, March 19, 2008
+-   [Kevin Vanhoozer on the important authors in his life](http://www.youtube.com/watch?v=hbJ1LuD8DXo)
+    (YouTube)
 
 ## Publications
 
