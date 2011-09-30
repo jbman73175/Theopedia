@@ -17,7 +17,7 @@ can know anything at all?"
 These are the types of questions that epistemology seeks to
 answer.
 
-**Multimedia**
+##Multimedia
 
 -   Can We Know the Truth?
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051024.m3u),
@@ -26,7 +26,6 @@ answer.
 -   [The Clark-Hoover Debate: A Debate between Gordon H.Clark and David Hoover on epistemology](http://www.trinitylectures.org/MP3/The_Clark-Hoover_Debate.mp3)
     (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Theories
 
 ### Scripturalism
