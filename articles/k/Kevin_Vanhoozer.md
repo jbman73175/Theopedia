@@ -1,4 +1,4 @@
-![Picture from wheaton.edu](http://www.wheaton.edu/~/media/Images/Faculty%20Images/V/vanhoozer-kevin-fprof.jpg?&mw=168)
+<img src="http://www.wheaton.edu/~/media/Images/Faculty%20Images/V/vanhoozer-kevin-fprof.jpg?&mw=168" style="float: right; margin-left: 8px;" />
 **Kevin J. Vanhoozer** (b. 1957) is the Blanchard Professor of
 Theology at Wheaton College Graduate School. He was previously
 Research Professor of
