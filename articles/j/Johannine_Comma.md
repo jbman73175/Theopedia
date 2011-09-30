@@ -13,16 +13,6 @@ verse from the newer ESV.
 -   "For there are three that testify: the Spirit and the water and
     the blood; and these three agree." -1 John 5:7-8, [ESV](ESV "ESV")
 
-
-
-## Contents
-
--   [1 Pre-16th century Greek manuscripts and translations](#Pre-16th_century_Greek_manuscripts_and_translations)
--   [2 Greek fathers](#Greek_fathers)
--   [3 The Erasmian promise](#The_Erasmian_promise)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Pre-16th century Greek manuscripts and translations
 
 "These extra words are generally absent from the Greek manuscripts.
@@ -30,14 +20,14 @@ In fact, they only appear in the text of four late medieval
 manuscripts. They seem to have originated as a marginal note added
 to certain Latin manuscripts during the middle ages, which was
 eventually incorporated into the text of most of the later Vulgate
-manuscripts." [[1]](http://www.bible-researcher.com/comma.html)
+manuscripts." [^1]
 
 "The passage is absent from every known Greek manuscript except
 eight, and these contain the passage in what appears to be a
 translation from a late recension of the Latin Vulgate. Four of the
 eight manuscripts contain the passage as a variant reading written
 in the margin as a later addition to the manuscript."
-[[2]](http://www.bible-researcher.com/comma.html)
+[^2]
 
 ## Greek fathers
 
@@ -45,18 +35,19 @@ in the margin as a later addition to the manuscript."
 known it, would most certainly have employed it in the Trinitarian
 controversies (Sabellian and Arian). Its first appearance in Greek
 is in a Greek version of the (Latin) Acts of the Lateran Council in
-1215." [[3]](http://www.bible-researcher.com/comma.html)
+1215." [^3]
 
 ## The Erasmian promise
 
-"[Erasmus](Erasmus "Erasmus") promised that he would insert the
+> "[Erasmus](Erasmus "Erasmus") promised that he would insert the
 Comma Johanneum, as it is called, in future editions if a single
 Greek manuscript could be found that contained the passage. At
-length such a copy was found—or made to order." -Bruce Metzger
+length such a copy was found—or made to order." (Bruce Metzger)
 
 However, on pg 291 (n2) of the (new) 3rd edition of
-*The Text of the New Testament* Bruce Metzger writes: "What is said
-on p. 101 above about Erasmus' promise to include the Comma
+*The Text of the New Testament* Bruce Metzger writes:
+
+> "What is said on p. 101 above about Erasmus' promise to include the Comma
 Johanneum if one Greek manuscript were found that contained it, and
 his subsequent suspicion that MS. 61 was written expressly to force
 him to do so, needs to be corrected in the light of the research of
@@ -77,7 +68,9 @@ Erasmus' work. Consequently it is highly improbable that he
 included the difficult passage because he considered himself bound
 by any such promise."
 
-In a letter of June 13, 1995, to Maynard, de Jonge wrote: "I have
+In a letter of June 13, 1995, to Maynard, de Jonge wrote:
+
+> "I have
 checked again Erasmus' words quoted by Erika Rummel and her
 comments on them in her book *Erasmus' Annotations*. This is what
 Erasmus writes [on] in his
@@ -94,7 +87,7 @@ which contains what my edition does not contain and let him show
 that that manuscript was within my reach. Only then can he reproach
 me with negligence in sacred matters.'
 
-"From this passage you can see that Erasmus does **not** challenge
+> "From this passage you can see that Erasmus does **not** challenge
 Lee to produce a manuscript etc. What Erasmus argues is that Lee
 may only reproach Erasmus with negligence of MSS if he demonstrates
 that Erasmus **could have** consulted any MS. in which the
@@ -103,7 +96,7 @@ containing the *Comma Johanneum*. He denies Lee the right to call
 him negligent and impious if the latter does not prove that Erasmus
 neglected a manuscript to which he had access.
 
-"In short, Rummel's interpretation is simply **wrong**. The passage
+> "In short, Rummel's interpretation is simply **wrong**. The passage
 she quotes has nothing to do with a challenge. Also, she cuts the
 quotation short, so that the real sense of the passage becomes
 unrecognizable. She is absolutely not justified in speaking of a
@@ -120,5 +113,8 @@ subject" (emphasis in original) (de Jonge, cited from
 
 -   [The Johannine Comma](http://www.bible-researcher.com/comma.html)
 
+[^1]: http://www.bible-researcher.com/comma.html
 
+[^2]: Ibid.
 
+[^3]: Ibid.
