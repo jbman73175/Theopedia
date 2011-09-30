@@ -40,7 +40,6 @@ purpose and grace, which he gave us in Christ Jesus before the ages
 began" (2 Timothy 1:9). God's purpose involves the church as the
 church is the body of Christ (1 Corinthians 12:27).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Redemptive historians
 
 -   J. C. von Hofmann (1810-1877)
