@@ -9,16 +9,6 @@ Part of the series on the
 -   [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
 -   [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Pentecostal view](#Pentecostal_view)
-    -   [1.1 Glass of Water](#Glass_of_Water)
-    -   [1.2 Physical Evidence](#Physical_Evidence)
-    -   [1.3 1 Corinthians 12:13](#1_Corinthians_12:13)
-
--   [2 External links](#External_links)
-
 ## Pentecostal view
 
 Pentecostal theology teaches the Baptism in the Holy Spirit (or
@@ -119,6 +109,7 @@ Paul ask that question? He could ask it, I think, because receiving
 the Holy Spirit is a real experience. There are marks of it in your
 life. And the best way to test the faith of these so-called
 disciples is to ask them about their experience of the Spirit.
+
 ## External links
 
 -   [Baptism in the Holy Spirit](http://ag.org/top/Beliefs/gendoct_02_baptismhs.cfm),
@@ -131,6 +122,3 @@ disciples is to ask them about their experience of the Spirit.
     by Don Stewart
 -   [The Baptism in the Holy Spirit](http://www.babylonfalls.org/forchristians/baptism_hs22july06.html),
     by Hermano Cisco
-
-
-
