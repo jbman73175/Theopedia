@@ -121,7 +121,7 @@
 [Liberalism](Liberalism "Liberalism") —
 [The Fundamentals](The_Fundamentals "The Fundamentals") —
 [Evangelicalism](Evangelicalism "Evangelicalism") — 
-(**[More](Church_history "Church history")**)
+[More](Church_history "Church history")
 
 ### [Salvation](Salvation "Salvation")
 
@@ -198,7 +198,7 @@
 [Historicity](Historicity_of_Jesus "Historicity of Jesus") —
 [Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
 [Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
-[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—(**[More](Jesus_Christ "Jesus Christ")**)
+[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—[More](Jesus_Christ "Jesus Christ")
 
 ### [Holy Spirit](Holy_Spirit "Holy Spirit")
 
@@ -210,7 +210,7 @@
 [Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit") –
 [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit") –
 [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
-(**[More](Holy_Spirit)
+[More](Holy_Spirit)
 
 ### [Humanity](Humanity "Humanity")
 
@@ -220,7 +220,7 @@
 [Total depravity](Total_depravity "Total depravity") —
 [Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin") –
 [Death](Death "Death") —
-[Common grace](Common_grace "Common grace")—(**[More](Humanity)
+[Common grace](Common_grace "Common grace")—[More](Humanity)
 
 ### [Biographies](Biographies "Biographies")
 
@@ -234,7 +234,7 @@
 [Old Testament scholars](Old_Testament_scholars "Old Testament scholars") —
 [Pastors](Pastors "Pastors") —
 [People in the Bible](People_in_the_Bible "People in the Bible") —
-[Theologians](Theologians "Theologians")—(**[More](Biographies "Biographies")**)
+[Theologians](Theologians "Theologians")—[More](Biographies "Biographies")
 
 ### [Notable Theologians](Theologians "Theologians")
 
@@ -244,7 +244,7 @@
 [Tertullian](Tertullian "Tertullian") —
 [John Piper](John_Piper "John Piper") —
 [R.C. Sproul](R.C._Sproul "R.C. Sproul") —
-[John Webster](John_Webster "John Webster")—(**[More](Theologians "Theologians")**)
+[John Webster](John_Webster "John Webster")—[More](Theologians "Theologians")
 
 ### [Christian living](Christian_living "Christian living")
 
@@ -262,7 +262,7 @@
 [Manhood and womanhood](Manhood_and_womanhood "Manhood and womanhood")
 - [Dating](Dating "Dating") — [Sex](Sex "Sex") —
 [Homosexuality](Homosexuality "Homosexuality") —
-[Christian hedonism](Christian_hedonism "Christian hedonism")—(**[More](Christian_living "Christian living")**)
+[Christian hedonism](Christian_hedonism "Christian hedonism")—[More](Christian_living "Christian living")
 
 ### [End times](End_times "End times")
 
