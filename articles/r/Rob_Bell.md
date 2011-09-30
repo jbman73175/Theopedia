@@ -64,14 +64,14 @@ his second book "Sex God".
 
 ## Quotes from his book *Velvet Elvis*
 
-**Inspiration and Hermeneutics**
+###Inspiration and Hermeneutics
 
 -   "The Bible is a collection of stories that teach us about what
     it looks like when God is at work through actual people. The Bible
     has the authority it does only because it contains stories about
     people interacting with the God who has all authority." - p. 65
 
-**Sola Scriptura**
+###Sola Scriptura
 
 -   "...it wasn't until the 300s that what we know as the sixty-six
     books of the Bible were actually agreed upon as the 'Bible'. This
@@ -89,7 +89,7 @@ his second book "Sex God".
     the Spirit who I believe was inspiring those people to choose those
     books." - p. 68
 
-**Heaven and Hell**
+###Heaven and Hell
 
 -   "Heaven is full of forgiven people. Hell is full of forgiven
     people. Heaven is full of people God loves, whom Jesus died for.
@@ -109,7 +109,7 @@ his second book "Sex God".
 -   "The goal of Jesus isn't to get into heaven. The goal is to get
     heaven here." - p. 148
 
-**The Fall**
+###The Fall
 
 -   "I can't find one place in the teachings of Jesus, or the Bible
     for that matter, where we are to identify ourselves first and
@@ -120,7 +120,7 @@ his second book "Sex God".
     make choices to live outside of how God created us to live. We have
     all come up short." - p. 139
 
-**Ultimate Reality**
+###Ultimate Reality
 
 -   "For a Christian, Jesus' teachings aren't to be followed
     because they are a nice way to live a moral life. They are to be
