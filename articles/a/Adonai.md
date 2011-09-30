@@ -6,11 +6,6 @@ Phoenicians for the pagan god Tammuz and is the origin of the Greek
 name *Adonis*. Jews only use the singular to refer to a
 distinguished person.
 
-**Multimedia**
-
--   Adonai - God Is Lord
-    ([Real](http://broadcast.ligonier.org/playlists/rym20050812.m3u)
-
 Some suggest that "Adonai" and other names of God may be written in
 the plural form to point out that this one God embodies all of the
 many gods that were worshipped by the ancestors of the Israelites
