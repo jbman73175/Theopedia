@@ -19,13 +19,6 @@ be closer to the truth, but still not exactly. It is rather a
 particular perception of the world and our destiny, what Luther
 came to call looking at all things through suffering and the
 cross."^[[1]](#note-0)^
-## Contents
-
--   [1 The cross as righteousness](#The_cross_as_righteousness)
--   [2 The cross as revelation](#The_cross_as_revelation)
--   [3 Notes](#Notes)
--   [4 External links](#External_links)
--   [5 Further reading](#Further_reading)
 
 ## The cross as righteousness
 
@@ -33,7 +26,7 @@ cross."^[[1]](#note-0)^
 
 "Of all the places to search for God, the last place most people
 would think to look is the gallows."^[[2]](#note-1)^
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Forde, Preface, p. XII
@@ -64,6 +57,3 @@ would think to look is the gallows."^[[2]](#note-1)^
 -   Kolb, R. *Luther on the Theology of the Cross*. Lutheran
     Quarterly, vol. 16, no. 4, p. 443.
     [pdf](http://www.lutheranquarterly.com/Articles/2002/4-Winter/LQ_16-4_04_Kolb.pdf)
-
-
-
