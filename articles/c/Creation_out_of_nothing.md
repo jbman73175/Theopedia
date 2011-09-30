@@ -28,22 +28,11 @@ nothing, or (2) he created this world from pre-existing matter. In
 the second view God would be the *organizer* or the one who
 "ordered the chaos" of this world.
 
-**Multimedia**
+##Multimedia
 
 -   [Creation Out of Nothing](http://www.rfmedia.org/RF_audio_video/RF_podcast/Creation-Out-of-Nothing.mp3)
     (MP3), by
     [William Lane Craig](William_Lane_Craig "William Lane Craig")
-
-## Contents
-
--   [1 Creation as ordering](#Creation_as_ordering)
--   [2 The battle for creation out of nothing](#The_battle_for_creation_out_of_nothing)
--   [3 Biblical understanding](#Biblical_understanding)
--   [4 God as architect: a critique](#God_as_architect:_a_critique)
--   [5 References](#References)
--   [6 Resources](#Resources)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
 
 ## Creation as ordering
 
