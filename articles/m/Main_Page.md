@@ -94,14 +94,14 @@
 [Clarity](Clarity_of_Scripture "Clarity of Scripture") —
 [Scripture alone](Scripture_alone "Scripture alone") —
 [Biblical criticism](Biblical_criticism "Biblical criticism") — 
-(**[More](http://www.theopedia.com/Category:Bible "Category:Bible")**)
+[More](Bible "Bible")
 
 ### [Creation](Creation "Creation")
 
 [Genesis creation account](Genesis_creation_account "Genesis creation account") –
 [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
 [Intelligent design](Intelligent_design "Intelligent design") — 
-(**[More](Creation)
+[More](Creation)
 
 ### [Church](Church "Church")
 
@@ -110,7 +110,7 @@
 [Church membership](Church_membership "Church membership") —
 [Church discipline](Church_discipline "Church discipline") —
 [Baptism](Baptism "Baptism") —
-[Communion](Communion "Communion")—(**[More](Church)
+[Communion](Communion "Communion")—[More](Church)
 
 ### [Church history](Church_history "Church history")
 
@@ -121,7 +121,7 @@
 [Liberalism](Liberalism "Liberalism") —
 [The Fundamentals](The_Fundamentals "The Fundamentals") —
 [Evangelicalism](Evangelicalism "Evangelicalism") — 
-(**[More](http://www.theopedia.com/Category:Church_history "Category:Church history")**)
+(**[More](Church_history "Church history")**)
 
 ### [Salvation](Salvation "Salvation")
 
@@ -151,7 +151,7 @@
 [Arminianism](Arminianism "Arminianism") —
 [Covenant theology](Covenant_theology "Covenant theology") —
 [Dispensationalism](Dispensationalism "Dispensationalism") —
-(**[More](http://www.theopedia.com/Category:Salvation "Category:Salvation")**)
+[More](Salvation "Salvation")
 
 ### [God](God "God")
 
@@ -165,7 +165,7 @@
 [Transcendence](Transcendence_of_God "Transcendence of God") —
 [God the Father](God_the_Father "God the Father") —
 [Trinity](Trinity "Trinity") —
-[Perichoresis](Perichoresis "Perichoresis")—(**[More](http://www.theopedia.com/Category:God "Category:God")**)
+[Perichoresis](Perichoresis "Perichoresis")—[More](God "God")
 
 ### [Jesus Christ](Jesus_Christ "Jesus Christ")
 
@@ -198,7 +198,7 @@
 [Historicity](Historicity_of_Jesus "Historicity of Jesus") —
 [Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
 [Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
-[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—(**[More](http://www.theopedia.com/Category:Jesus_Christ "Category:Jesus Christ")**)
+[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—(**[More](Jesus_Christ "Jesus Christ")**)
 
 ### [Holy Spirit](Holy_Spirit "Holy Spirit")
 
@@ -222,21 +222,21 @@
 [Death](Death "Death") —
 [Common grace](Common_grace "Common grace")—(**[More](Humanity)
 
-### [Biographies](http://www.theopedia.com/Category:Biographies "Category:Biographies")
+### [Biographies](Biographies "Biographies")
 
 [Apostolic Fathers](Apostolic_Fathers "Apostolic Fathers") —
-[Apologists](http://www.theopedia.com/Category:Apologists "Category:Apologists") —
-[Authors](http://www.theopedia.com/Category:Authors "Category:Authors") —
-[Christian philosophers](http://www.theopedia.com/Category:Christian_philosophers "Category:Christian philosophers") —
-[Early church fathers](http://www.theopedia.com/Category:Early_church_fathers "Category:Early church fathers") —
-[Evangelists](http://www.theopedia.com/Category:Evangelists "Category:Evangelists") —
-[New Testament scholars](http://www.theopedia.com/Category:New_Testament_scholars "Category:New Testament scholars") —
-[Old Testament scholars](http://www.theopedia.com/Category:Old_Testament_scholars "Category:Old Testament scholars") —
-[Pastors](http://www.theopedia.com/Category:Pastors "Category:Pastors") —
-[People in the Bible](http://www.theopedia.com/Category:People_in_the_Bible "Category:People in the Bible") —
-[Theologians](http://www.theopedia.com/Category:Theologians "Category:Theologians")—(**[More](http://www.theopedia.com/Category:Biographies "Category:Biographies")**)
+[Apologists](Apologists "Apologists") —
+[Authors](Authors "Authors") —
+[Christian philosophers](Christian_philosophers "Christian philosophers") —
+[Early church fathers](Early_church_fathers "Early church fathers") —
+[Evangelists](Evangelists "Evangelists") —
+[New Testament scholars](New_Testament_scholars "New Testament scholars") —
+[Old Testament scholars](Old_Testament_scholars "Old Testament scholars") —
+[Pastors](Pastors "Pastors") —
+[People in the Bible](People_in_the_Bible "People in the Bible") —
+[Theologians](Theologians "Theologians")—(**[More](Biographies "Biographies")**)
 
-### [Notable Theologians](http://www.theopedia.com/Category:Theologians "Category:Theologians")
+### [Notable Theologians](Theologians "Theologians")
 
 [J. I. Packer](J._I._Packer "J. I. Packer") —
 [Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") —
@@ -244,7 +244,7 @@
 [Tertullian](Tertullian "Tertullian") —
 [John Piper](John_Piper "John Piper") —
 [R.C. Sproul](R.C._Sproul "R.C. Sproul") —
-[John Webster](John_Webster "John Webster")—(**[More](http://www.theopedia.com/Category:Theologians "Category:Theologians")**)
+[John Webster](John_Webster "John Webster")—(**[More](Theologians "Theologians")**)
 
 ### [Christian living](Christian_living "Christian living")
 
@@ -262,7 +262,7 @@
 [Manhood and womanhood](Manhood_and_womanhood "Manhood and womanhood")
 - [Dating](Dating "Dating") — [Sex](Sex "Sex") —
 [Homosexuality](Homosexuality "Homosexuality") —
-[Christian hedonism](Christian_hedonism "Christian hedonism")—(**[More](http://www.theopedia.com/Category:Christian_living "Category:Christian living")**)
+[Christian hedonism](Christian_hedonism "Christian hedonism")—(**[More](Christian_living "Christian living")**)
 
 ### [End times](End_times "End times")
 
