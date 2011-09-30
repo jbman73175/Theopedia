@@ -91,9 +91,6 @@ largely a pejorative term which leads to misconceptions of the
 Calvinist (or Reformed) doctrine. See main discussion in
 [Predestination](Predestination "Predestination").
 
-## Criticism
-
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 ## See also
 
 -   [Predestination](Predestination "Predestination")
@@ -120,6 +117,3 @@ Calvinist (or Reformed) doctrine. See main discussion in
 -   [T.W. Brent's view](http://biblicaltheology.webhostme.com/election_and_reprobation.htm)
 -   [Randolph Foster's view](http://www.gospeltruth.net/foster_on_cal/otc_3.htm)
 -   [Richard Watson's view](http://www.imarc.cc/apolg/history7.html)
-
-
-
