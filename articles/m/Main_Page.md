@@ -101,7 +101,7 @@
 [Genesis creation account](Genesis_creation_account "Genesis creation account") –
 [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
 [Intelligent design](Intelligent_design "Intelligent design") — 
-(**[More](http://www.theopedia.com/index.php?title=Category:Creation&action=edit&redlink=1 "Category:Creation (page does not exist)")**)
+(**[More](Creation)
 
 ### [Church](Church "Church")
 
@@ -110,7 +110,7 @@
 [Church membership](Church_membership "Church membership") —
 [Church discipline](Church_discipline "Church discipline") —
 [Baptism](Baptism "Baptism") —
-[Communion](Communion "Communion")—(**[More](http://www.theopedia.com/index.php?title=Category:Ecclesiology&action=edit&redlink=1 "Category:Ecclesiology (page does not exist)")**)
+[Communion](Communion "Communion")—(**[More](Church)
 
 ### [Church history](Church_history "Church history")
 
@@ -208,10 +208,9 @@
 [Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") —
 [Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit") –
 [Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit") –
-[Filling](index.php?title=Filling_of_the_Holy_Spirit&action=edit&redlink=1 "Filling of the Holy Spirit (page does not exist)") –
 [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit") –
 [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
-(**[More](http://www.theopedia.com/Category:Holy_Spirit "Category:Holy Spirit")**)
+(**[More](Holy_Spirit)
 
 ### [Humanity](Humanity "Humanity")
 
@@ -221,7 +220,7 @@
 [Total depravity](Total_depravity "Total depravity") —
 [Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin") –
 [Death](Death "Death") —
-[Common grace](Common_grace "Common grace")—(**[More](http://www.theopedia.com/index.php?title=Category:Humanity&action=edit&redlink=1 "Category:Humanity (page does not exist)")**)
+[Common grace](Common_grace "Common grace")—(**[More](Humanity)
 
 ### [Biographies](http://www.theopedia.com/Category:Biographies "Category:Biographies")
 
@@ -273,5 +272,4 @@
 [Rapture](Rapture "Rapture") — [Heaven](Heaven "Heaven") —
 [Hell](Hell "Hell") —
 [Final judgment](Final_judgment "Final judgment") —
-[Resurrection](Resurrection "Resurrection") —
-[Glorification](Glorification "Glorification") — (**[More](http://www.theopedia.com/index.php?title=Category:Eschatology&action=edit&redlink=1 "Category:Eschatology (page does not exist)")**)
+[Resurrection](Resurrection "Resurrection")
