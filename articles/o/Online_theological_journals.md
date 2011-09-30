@@ -43,8 +43,8 @@
 
 ## Arminian / Wesleyan
 
--   [Arminian Magazine](http://wesley.nnu.edu/arminianism/arminian_mag/)
--   [Wesleyan Theological Journal](http://wesley.nnu.edu/wesleyan_theology/wesleyjournal/index.htm)
+-   [Arminian Magazine](http://wesley.nnu.edu/arminianism/the-arminian-magazine/)
+-   [Wesleyan Theological Journal](http://wesley.nnu.edu/sermons-essays-books/wesleyan-theological-journal-1966-2010/)
 
 ## Catholic
 
