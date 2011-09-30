@@ -10,18 +10,10 @@ title "Sermon on the Mount" goes back to
 commentary on Matthew 5-7, ^[[1]](#note-0)^ yet Matthew 5-7 was not
 generally given this title until around the sixteenth century.
 
-**Multimedia**
+##Multimedia
 
 -   [Matt Carter reads the Sermon on the Mount standing before the Sea of Galilee](http://vimeo.com/27818942)
     (Vimeo video; starts at 2m7s)
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Resources](#Resources)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## Resources
 
