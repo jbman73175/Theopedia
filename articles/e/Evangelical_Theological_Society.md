@@ -12,7 +12,6 @@ one in essence, equal in power and glory." The society publishes a
 quarterly journal which contains scholarly articles and book
 reviews from various evangelical perspectives.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Executive committee members
 
 -   [Eugene H. Merrill](Eugene_H._Merrill "Eugene H. Merrill"),
