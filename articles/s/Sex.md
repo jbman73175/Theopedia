@@ -1,4 +1,4 @@
-**Multimedia**
+##Multimedia
 
 -   Sex and the Supremacy of Christ (MP3),
     [Part 1](http://www.desiringgod.org/media/mp3/conferences/national2004/01_20040924_piper_pt1.mp3),
@@ -17,7 +17,6 @@
 -   [Celibacy & sexual "fasting"](http://download.redeemer.com/rpcsermons/QandA/Celibacy_and_sexual_fasting.mp3),
     by [Tim Keller](Tim_Keller "Tim Keller")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## See also
 
 -   [Premarital sex](Premarital_sex "Premarital sex")
@@ -31,6 +30,4 @@
     Taylor
 -   [Focus on the Family: Why sexual purity matters](http://www2.focusonthefamily.com/focusmagazine/publicpolicy/A000000195.cfm),
     by Jerry Gramckow
-
-
-
+-   [The Gospel and Sex](http://exodusinternational.org/2011/09/the-gospel-and-sex/), by Chris Stump
