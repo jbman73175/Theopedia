@@ -1,5 +1,4 @@
-[![image](images/f/f1/RBell1.jpg)](http://www.theopedia.com/File:RBell1.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:RBell1.jpg "Enlarge")
+<img src="http://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Rob_Bell_2011_Shankbone.JPG/220px-Rob_Bell_2011_Shankbone.JPG" style="width: 220px;height:340px;float: right;margin-left: 8px;margin-bottom: 8px;" />
 Rob Bell
 **Rob Bell** (b. 1970) is the founder and teaching pastor of Mars
 Hill Bible Church in Grandville, Michigan. He is author of
