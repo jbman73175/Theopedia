@@ -7,7 +7,7 @@ relationship between the New Testament church and Israel, the Old
 Testament people of God. Therefore, a clear and biblical
 understanding is important to both Christian belief and practice.
 
-**Multimedia**
+##Multimedia
 
 -   [What Is the Church?](http://media.desiringgod.org/audio/events/20090604_driscoll.mp3),
     by [Mark Driscoll](Mark_Driscoll "Mark Driscoll")
