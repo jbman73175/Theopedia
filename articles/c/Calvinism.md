@@ -25,7 +25,7 @@ salvation, which make up the acrostic [TULIP](TULIP "TULIP"). In
 its broader sense, Calvinism is associated with
 [Reformed theology](Reformed_theology "Reformed theology").
 
-**Multimedia**
+##Multimedia
 
 -   [The Story of Calvinism: A Historical Survey](http://www.swordandtrowel.org/audio/GL-2005-10-23-PJ.mp3)
     (MP3), by Phil Johnson
@@ -43,30 +43,6 @@ its broader sense, Calvinism is associated with
     Stand to Reason Weekly Podcast by Greg Koukl
 -   [The Calvinism Debate: Phil Fernandes vs Chris Comis](http://eyeonapologetics.com/blog/2011/07/01/video-the-calvinism-debate-phil-fernandes-vs-chris-comis/)
     (YouTube videos)
-
-## Contents
-
--   [1 Background](#Background)
--   [2 Scripture](#Scripture)
--   [3 God](#God)
--   [4 Salvation (Five Points of Calvinism)](#Salvation_.28Five_Points_of_Calvinism.29)
-    -   [4.1 Total depravity](#Total_depravity)
-    -   [4.2 Unconditional election](#Unconditional_election)
-    -   [4.3 Limited atonement](#Limited_atonement)
-    -   [4.4 Irresistible grace](#Irresistible_grace)
-    -   [4.5 Perseverance of the saints](#Perseverance_of_the_saints)
-
--   [5 The Church](#The_Church)
-    -   [5.1 Theology of the sacraments](#Theology_of_the_sacraments)
-
--   [6 The Five Solas of the Reformation](#The_Five_Solas_of_the_Reformation)
--   [7 Notes](#Notes)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 Introductions](#Introductions)
-    -   [9.2 Favorable](#Favorable)
-    -   [9.3 Critical](#Critical)
-
 
 ## Background
 
