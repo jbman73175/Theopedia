@@ -6,7 +6,7 @@ His presence. At the same time He is present everywhere in the
 universe. No one can hide from Him and nothing escapes His notice."
 [[1]](http://www.blueletterbible.org/faq/nbi/364.html)
 
-**Multimedia**
+##Multimedia
 
 -   [The God Who is Everywhere](http://www.ligonier.org/media_player.php?tabID=2&id=2392)
     (Flash audio), by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
@@ -26,7 +26,6 @@ universe. No one can hide from Him and nothing escapes His notice."
 -   "The eyes of the Lord are in every place, watching the evil and
     the good." (Proverbs 15:3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 -   [Is God Everywhere At Once? (Omnipresent)](http://www.blueletterbible.org/faq/nbi/364.html),
