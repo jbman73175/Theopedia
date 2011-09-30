@@ -29,7 +29,8 @@ disobedience—among whom we all once lived in the passions of our
 flesh, carrying out the desires of the body and the mind, and were
 by nature children of wrath, like the rest of mankind." (Ephesians
 2:1-3, [ESV](ESV "ESV"))
-**Multimedia**
+
+##Multimedia
 
 -   ["Irresistible Grace - Total Depravity" TULIP Part 3](http://www.desiringgod.org/ResourceLibrary/MediaPlayer/2280/Video/)
     (MP4 Video), by [John Piper](John_Piper "John Piper")
