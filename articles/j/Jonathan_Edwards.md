@@ -8,7 +8,7 @@ American churchman of the 18th century. Said to be one of America's
 greatest preachers, he was a leading figure in the (first)
 [Great Awakening](Great_Awakening "Great Awakening").
 
-**Multimedia**
+##Multimedia
 
 -   [A God-Entranced Vision of All Things - The Unrivaled Legacy of Jonathan Edwards](http://www.desiringgod.org/ResourceLibrary/ConferenceMessages/ByConference/3/)
     (MP3s) - Desiring God conference
@@ -23,17 +23,6 @@ greatest preachers, he was a leading figure in the (first)
     SermonAudio
 -   [Life & Theology of Jonathan Edwards](http://thirdmill.org/life-theology-of-jonathan-edwards)
     (MP3), by David Calhoun
-
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 The New England Theology](#The_New_England_Theology)
--   [3 References](#References)
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Online writings](#Online_writings)
-
 
 ## Biographical sketch
 
