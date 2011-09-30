@@ -22,9 +22,7 @@ prime example of such a doctrine: denying the true nature of the
 person and work of [Jesus Christ](Jesus_Christ "Jesus Christ") (I
 John 4:1-3; 2 John 1:7-11).
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [A Survey of Heresies](http://www.gracechurch.org/ministries/audiodownloads.asp?ministry_id=9&dlcat=+A+Survey+of+Heresies)
     (MP3s), by Phil Johnson
