@@ -31,33 +31,10 @@ see the soul as essentially synonymous with the spirit resulting in
 a dichotomous view of man's nature (material and immaterial), which
 may be expressed as either "body and soul" or "body and spirit."
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [Against Materialism (for Immaterialism)](http://www.youtube.com/watch?v=LLzZv5MwjiE&feature=feedf)
     (YouTube), by Alvin Plantinga
-
-## Contents
-
--   [1 Created humanity](#Created_humanity)
--   [2 Body, soul, and spirit](#Body.2C_soul.2C_and_spirit)
-    -   [2.1 Trichotomy](#Trichotomy)
-    -   [2.2 Dichotomy](#Dichotomy)
-        -   [2.2.1 Relevant passages](#Relevant_passages)
-
-    -   [2.3 Views on the Origin of the Soul](#Views_on_the_Origin_of_the_Soul)
-        -   [2.3.1 Pre-existentialism](#Pre-existentialism)
-        -   [2.3.2 Traducianism](#Traducianism)
-        -   [2.3.3 Soul-creationism](#Soul-creationism)
-
-
--   [3 Fallen humanity](#Fallen_humanity)
--   [4 New humanity](#New_humanity)
--   [5 Resources](#Resources)
--   [6 External links](#External_links)
-    -   [6.1 Soul-creationism and traducianism](#Soul-creationism_and_traducianism)
-
 
 ## Created humanity
 
@@ -223,6 +200,3 @@ humanity at the final resurrection.
     by Gordon H. Clark (supports traducianism)
 -   [Creationism or Traducianism?](http://www.apuritansmind.com/FrancisTurretin/francisturretincrerationismtraducianism.htm),
     by Francis Turretin (supports soul-creationism)
-
-
-
