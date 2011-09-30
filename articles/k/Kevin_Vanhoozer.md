@@ -1,6 +1,4 @@
-[![image](images/b/b0/Vanhoozer.jpg)](http://www.theopedia.com/File:Vanhoozer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Vanhoozer.jpg "Enlarge")
-Kevin Vanhoozer
+![Picture from wheaton.edu](http://www.wheaton.edu/~/media/Images/Faculty%20Images/V/vanhoozer-kevin-fprof.jpg?&mw=168)
 **Kevin J. Vanhoozer** (b. 1957) is the Blanchard Professor of
 Theology at Wheaton College Graduate School. He was previously
 Research Professor of
