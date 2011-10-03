@@ -13,21 +13,12 @@ to final unrepentance. Some of these see a parallel in
 [1 John 5:16](1_John_5#6 "1 John 5");
 *See [Matthew 12:22-32](Matthew_12 "Matthew 12")*
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [[1]](http://playmp3.sa-media.com/media/214101827330/214101827330.mp3)
     (MP3), The Unforgivable Sin
 -   [What is blasphemy of the Holy Spirit? Can a Christian commit it?](http://www.youtube.com/watch?v=PdnLgIVF6Ow)
     (YouTube video) (CARM)
-
-## Contents
-
--   [1 Why is it unforgivable?](#Why_is_it_unforgivable.3F)
--   [2 Can believers commit it?](#Can_believers_commit_it.3F)
--   [3 See also](#See_also)
--   [4 References](#References)
--   [5 External links](#External_links)
 
 ## Why is it unforgivable?
 
