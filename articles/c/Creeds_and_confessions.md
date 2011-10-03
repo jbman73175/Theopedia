@@ -35,7 +35,6 @@ following are examples:
     that Jesus Christ has come in the flesh is from God, (1 John 4:2,
     ESV).
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 ## Notable creeds and confessions in church history
 
 -   [Apostles' Creed](Apostles'_Creed "Apostles' Creed")
