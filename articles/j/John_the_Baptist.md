@@ -6,13 +6,6 @@ them, supernaturally, in their old age. He was related by blood to
 Luke, he began his ministry in the 15th year of the reign of Roman
 Emperor Tiberius Caesar (which would place it around 28-29 A.D.)
 
-**Multimedia**
-
--   John the Baptist
-    ([Real](http://broadcast.ligonier.org/playlists/rym20060126.m3u),
-    [Win](http://broadcast.ligonier.org/playlists/rym20060126.asx)), by
-    [R.C. Sproul](R.C._Sproul "R.C. Sproul")
-
 He is also attested to outside the Gospels by Jewish expatriate
 [Josephus](Josephus "Josephus"), in his
 *Antiquities of the the Jews*:
