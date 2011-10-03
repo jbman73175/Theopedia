@@ -118,9 +118,7 @@ significance in the context of the interpreter's community.
 ## External links
 
 -   [Vanhoozer's faculty page](http://www.wheaton.edu/Theology/faculty/vanhoozer/index.html)
-
 -   [Vanhoozer on the Internet](http://achorusofehoes.wordpress.com/2010/08/10/vanhoozer-on-the-net/)
-
 -   [Kevin Vanhoozer: Creating a theological symphony](http://www.ctlibrary.com/ct/1999/february8/9t2038.html),
     *[Christianity Today](Christianity_Today "Christianity Today")*,
     1999.
@@ -160,6 +158,3 @@ significance in the context of the interpreter's community.
 -   [Effectual Call or Causal Effect? Summons, Sovereignty and Supervenient Grace](http://docs.google.com/viewer?url=http://tyndalehouse.com/tynbul/library/TynBull_1998_49_2_02_Vanhoozer_EffectualCall.pdf)
     (PDF) *Tyndale Bulletin* 49.2 (1998): 213-251
 -   [The Inerrancy of Scripture](http://www.theologynetwork.org/biblical-studies/getting-stuck-in/the-inerrancy-of-scripture.htm)
-
-
-
