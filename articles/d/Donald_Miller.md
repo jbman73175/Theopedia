@@ -5,12 +5,11 @@ not-for-profit foundation which partners with local churches to
 create mentoring programs for young men growing up without
 fathers." ^[[1]](#note-0)^
 
-**Multimedia**
+##Multimedia
 
 -   [Willow Creek Arts Conference 2007 - Donald Miller](http://www.youtube.com/watch?v=55KppSNnr00)
     (YouTube)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Publications
 
 -   *A Million Miles in a Thousand Years*. 2009.
