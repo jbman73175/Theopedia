@@ -7,8 +7,7 @@ Described as 'the last modern theologian' — but opposed to
 theological Modernism —, Schaeffer was deeply committed to an
 Orthodox Protestant faith which answered the questions of the age.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [Dr. Schaeffer collection](http://www.labri-ideas-library.org/lecture-list.asp?s=5)
 -   [Various lectures](http://theschaefferfoundation.net/mp3_lectures_francis_a_schaeffer_foundation.php)
