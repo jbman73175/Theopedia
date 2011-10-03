@@ -1,4 +1,4 @@
-### Philosophy as it relates to theology
+## Philosophy as it relates to theology
 
 Although the list under "General philosophy" is and can be related
 to theological study (e.g. What can be known about God? What can
@@ -42,7 +42,6 @@ this section heading.
 -   [John Locke](John_Locke "John Locke") - Philosopher with
     enormous influence on the development of epistemology.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 -   [Virtual Library of Christian Philosophy](http://www.calvin.edu/academic/philosophy/virtual_library/article_names.htm),
@@ -65,6 +64,3 @@ this section heading.
 -   [Advice to Christian Philosophers](http://www.leaderu.com/truth/1truth10.html),
     by [Alvin Plantinga](Alvin_Plantinga "Alvin Plantinga")
 -   [Directory of Open Access Journals: Philosophy](http://www.doaj.org/ljbs?cpid=15)
-
-
-
