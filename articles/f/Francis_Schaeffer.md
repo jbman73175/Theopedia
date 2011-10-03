@@ -1,5 +1,3 @@
-[![image](images/thumb/8/8f/Francisschaeffer.jpg/180px-Francisschaeffer.jpg)](http://www.theopedia.com/File:Francisschaeffer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Francisschaeffer.jpg "Enlarge")
 Francis Schaeffer
 **Francis A. Schaeffer** (1912-1984) is most famous for his writing
 and his establishment of the [L'Abri](L'Abri "L'Abri") community.
