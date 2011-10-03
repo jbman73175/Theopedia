@@ -12,16 +12,6 @@ in their consciences."
 proponent of the doctrine of Justification from Eternity.
 [[1]](http://homepage.mac.com/shanerosenthal/reformationink/akjust2.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Critical](#Critical)
-    -   [3.2 Favorable](#Favorable)
-
-
 ## Quotes
 
 -   "God did, from all eternity, decree to justify all the elect,
