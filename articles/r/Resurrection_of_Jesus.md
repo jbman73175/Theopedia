@@ -37,6 +37,7 @@ believers (Rom. 4:25).
 
 "And if Christ has not been raised, then our preaching is in vain
 and your faith is in vain." (1 Corinthians 15:14)
+
 ### Paul's defense in 1 Corinthians 15
 
 The apostle Paul puts forward several arguments why the Corinthians
