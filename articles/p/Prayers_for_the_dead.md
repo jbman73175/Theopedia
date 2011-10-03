@@ -9,14 +9,6 @@ Church Anglicans, Protestantism deems prayers for the dead useless,
 as Hebrews 9:27 states: "And as it is appointed unto men once to
 die, but after this the judgment" (KJV).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 See also](#See_also)
--   [2 External links](#External_links)
-    -   [2.1 Favorable](#Favorable)
-    -   [2.2 Critical](#Critical)
-
 
 ## See also
 
@@ -30,8 +22,3 @@ die, but after this the judgment" (KJV).
 
 -   [Prayers for the Dead](http://www.newadvent.org/cathen/04653a.htm)
     from New Advent Catholic Encyclopedia.
-
-### Critical
-
-
-
