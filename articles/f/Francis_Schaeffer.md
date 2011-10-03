@@ -16,23 +16,15 @@ Orthodox Protestant faith which answered the questions of the age.
     class lectures by Jerram Barrs at
     [Covenant Theological Seminary](Covenant_Theological_Seminary "Covenant Theological Seminary")
 
-**Videos**
+###Videos
 
 -   [How Should We Then Live - 01/10 The Roman Age](http://video.google.com/videoplay?docid=-1998035952933796581&q=francis+schaeffer)
     (Google Video)
 
-**Sermons by Francis Schaeffer**
+###Sermons by Francis Schaeffer
 
 -   [Ash Heap Lives](http://www.sermonindex.net/modules/mydownloads/visit.php?lid=4131)
 -   [What is Truth?](http://www.sermonindex.net/modules/mydownloads/visit.php?lid=4232)
-
-## Contents
-
--   [1 Publications](#Publications)
--   [2 Quotes](#Quotes)
--   [3 External links](#External_links)
-
-
 
 ## Publications
 
