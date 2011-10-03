@@ -1,4 +1,4 @@
-### [Old Testament](Old_Testament "Old Testament")
+## [Old Testament](Old_Testament "Old Testament")
 
 [Genesis](Genesis "Genesis") – [Exodus](Exodus "Exodus") –
 [Leviticus](Leviticus "Leviticus") –
@@ -39,7 +39,7 @@
 [Zechariah](Book_of_Zechariah "Book of Zechariah") –
 [Malachi](Book_of_Malachi "Book of Malachi")
 
-### [New Testament](New_Testament "New Testament")
+## [New Testament](New_Testament "New Testament")
 
 [Matthew](Gospel_of_Matthew "Gospel of Matthew") –
 [Mark](Gospel_of_Mark "Gospel of Mark") –
@@ -75,7 +75,7 @@
 [Jude](Epistle_of_Jude "Epistle of Jude") –
 [Revelation](Book_of_Revelation "Book of Revelation")
 
-### [Bible](Bible "Bible")
+## [Bible](Bible "Bible")
 
 [Old Testament](Old_Testament "Old Testament") –
 [New Testament](New_Testament "New Testament") –
@@ -96,14 +96,14 @@
 [Biblical criticism](Biblical_criticism "Biblical criticism") — 
 [More](Bible "Bible")
 
-### [Creation](Creation "Creation")
+## [Creation](Creation "Creation")
 
 [Genesis creation account](Genesis_creation_account "Genesis creation account") –
 [Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
 [Intelligent design](Intelligent_design "Intelligent design") — 
 [More](Creation)
 
-### [Church](Church "Church")
+## [Church](Church "Church")
 
 [Church government](Church_government "Church government") —
 [Elder](Elder "Elder") —
@@ -112,7 +112,7 @@
 [Baptism](Baptism "Baptism") —
 [Communion](Communion "Communion")—[More](Church)
 
-### [Church history](Church_history "Church history")
+## [Church history](Church_history "Church history")
 
 [Early church](Early_church "Early church") —
 [Protestant Reformation](Protestant_Reformation "Protestant Reformation") –
@@ -123,7 +123,7 @@
 [Evangelicalism](Evangelicalism "Evangelicalism") — 
 [More](Church_history "Church history")
 
-### [Salvation](Salvation "Salvation")
+## [Salvation](Salvation "Salvation")
 
 [Sin](Sin "Sin") —
 [Justice of God](Justice_of_God "Justice of God") —
@@ -153,7 +153,7 @@
 [Dispensationalism](Dispensationalism "Dispensationalism") —
 [More](Salvation "Salvation")
 
-### [God](God "God")
+## [God](God "God")
 
 [Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God") –
 [Revelation](Revelation "Revelation") —
@@ -167,7 +167,7 @@
 [Trinity](Trinity "Trinity") —
 [Perichoresis](Perichoresis "Perichoresis")—[More](God "God")
 
-### [Jesus Christ](Jesus_Christ "Jesus Christ")
+## [Jesus Christ](Jesus_Christ "Jesus Christ")
 
 [Life](Life_of_Jesus "Life of Jesus") —
 [Virgin birth](Virgin_birth "Virgin birth") —
@@ -200,7 +200,7 @@
 [Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
 [Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—[More](Jesus_Christ "Jesus Christ")
 
-### [Holy Spirit](Holy_Spirit "Holy Spirit")
+## [Holy Spirit](Holy_Spirit "Holy Spirit")
 
 [Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit") –
 [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
@@ -212,7 +212,7 @@
 [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
 [More](Holy_Spirit)
 
-### [Humanity](Humanity "Humanity")
+## [Humanity](Humanity "Humanity")
 
 [Image of God](Image_of_God "Image of God") —
 [The Fall](The_Fall "The Fall") —
@@ -222,7 +222,7 @@
 [Death](Death "Death") —
 [Common grace](Common_grace "Common grace")—[More](Humanity)
 
-### [Biographies](Biographies "Biographies")
+## [Biographies](Biographies "Biographies")
 
 [Apostolic Fathers](Apostolic_Fathers "Apostolic Fathers") —
 [Apologists](Apologists "Apologists") —
@@ -236,7 +236,7 @@
 [People in the Bible](People_in_the_Bible "People in the Bible") —
 [Theologians](Theologians "Theologians")—[More](Biographies "Biographies")
 
-### [Notable Theologians](Theologians "Theologians")
+## [Notable Theologians](Theologians "Theologians")
 
 [J. I. Packer](J._I._Packer "J. I. Packer") —
 [Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") —
@@ -246,7 +246,7 @@
 [R.C. Sproul](R.C._Sproul "R.C. Sproul") —
 [John Webster](John_Webster "John Webster")—[More](Theologians "Theologians")
 
-### [Christian living](Christian_living "Christian living")
+## [Christian living](Christian_living "Christian living")
 
 [Fruit of the Spirit](Fruit_of_the_Spirit "Fruit of the Spirit") —
 [Bible study](Bible_study "Bible study") —
@@ -264,12 +264,22 @@
 [Homosexuality](Homosexuality "Homosexuality") —
 [Christian hedonism](Christian_hedonism "Christian hedonism")—[More](Christian_living "Christian living")
 
-### [End times](End_times "End times")
+## [End times](End_times "End times")
 
-[Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology") –
+[Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology") —
 [Second Coming](Second_Coming "Second Coming") —
 [Millennial kingdom](Millennial_kingdom "Millennial kingdom") —
 [Rapture](Rapture "Rapture") — [Heaven](Heaven "Heaven") —
 [Hell](Hell "Hell") —
 [Final judgment](Final_judgment "Final judgment") —
 [Resurrection](Resurrection "Resurrection")
+
+## [Theopedia](About)
+[About](About) —
+[Recent changes](https://github.com/cwebf/Theopedia/commits/master) —
+[Random article](random) —
+<a class="request-article">Request article</a>
+[How to contribute](Contribute) —
+[License of text](http://creativecommons.org/licenses/by/3.0/ "Creative Commons Attribution 3.0") —
+[Online journals](Online_theological_journals "Online theological journals") —
+[Facebook page](https://www.facebook.com/theopedia)
