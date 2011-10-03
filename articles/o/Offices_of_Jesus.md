@@ -14,6 +14,3 @@ Jesus is Prophet, Priest, and King.
     by [James Petigru Boyce](James_Petigru_Boyce "James Petigru Boyce")
 -   [The Office of Christ](http://www.mtio.com/articles/bissar42.htm),
     from *Luther's Small Catechism*
-
-
-
