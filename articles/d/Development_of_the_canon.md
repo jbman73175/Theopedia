@@ -27,7 +27,7 @@ Hebrew and Aramaic, while the Christian canon was written in
 Greek."
 [[1]](http://bible.crosswalk.com/Dictionaries/BakersEvangelicalDictionary/bed.cgi)
 
-**Multimedia**
+##Multimedia
 
 -   [Illumination; Canonicity](http://biblicaltraining.org/audio/TH503/theology_1_10001.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware") (MP3)
