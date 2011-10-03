@@ -24,7 +24,6 @@ values through these choices.
 [[3]](http://www.anselm.edu/homepage/dbanach/sartreol.htm) The
 following illustration may help:
 
-[![Essence.jpeg](images/thumb/3/37/Essence.jpeg/450px-Essence.jpeg)](http://www.theopedia.com/File:Essence.jpeg)
 ## Precursors of existentialism
 
 -   [Soren Kierkegaard](Soren_Kierkegaard "Soren Kierkegaard") -
