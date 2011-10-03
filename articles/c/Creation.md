@@ -27,28 +27,13 @@ made (John 1:3). While many passages show that Jesus was the agent
 of creation (Col 1:16; cf 1 Cor 8:6), creation is ultimately the
 work of the [triune God](Trinity "Trinity").
 
-**Multimedia**
+##Multimedia
 
 -   [The Doctrine of Creation in the Old Testament](http://www.biblicaltraining.org/audio/OT590/OTTheology_05_Lesson_5-high.mp3)
     (MP3), by Paul House
 -   [The Doctrine of Creation](http://www.reasonablefaith.org/site/PageServer?pagename=podcasting_main)
     (24 Lectures), by
     [William Lane Craig](William_Lane_Craig "William Lane Craig")
-
-## Contents
-
--   [1 Creation in Scripture](#Creation_in_Scripture)
-    -   [1.1 Interpretations of the creation account](#Interpretations_of_the_creation_account)
-
--   [2 Creation ex nihilo](#Creation_ex_nihilo)
--   [3 Other issues](#Other_issues)
-    -   [3.1 Intelligent design](#Intelligent_design)
-
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
-
 
 ## Creation in Scripture
 
