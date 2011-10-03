@@ -7,17 +7,10 @@ of the Son was perfectly united with human nature in one divine
 Person. This person, [Jesus Christ](Jesus_Christ "Jesus Christ"),
 was both "truly God and truly man."
 
-**Multimedia**
+##Multimedia
 
 -   [Christ's Incarnation](http://sgm.edgeboss.net/download/sgm/next/2009/next09.2_carson.mp3)
     (MP3), by [D. A. Carson](D._A._Carson "D. A. Carson")
-
-## Contents
-
--   [1 Importance of the doctrine](#Importance_of_the_doctrine)
--   [2 Further reading](#Further_reading)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## Importance of the doctrine
 
