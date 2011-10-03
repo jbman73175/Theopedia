@@ -9,27 +9,10 @@ the God of Israel, is a key part of the history of
 [Israel](Israel "Israel"), and a major theme in the storyline of
 the [Bible](Bible "Bible").
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [Virtual Model of the Temple Mount in the Time of Jesus](http://www.youtube.com/watch?v=r9h0odubFVg)
     (YouTube), by Lisa M. Synder
-
-## Contents
-
--   [1 Temples before Solomon](#Temples_before_Solomon)
--   [2 Solomon's Temple](#Solomon.27s_Temple)
--   [3 The Second Temple](#The_Second_Temple)
--   [4 The Temple in the prophets](#The_Temple_in_the_prophets)
--   [5 The Temple in New Testament theology and beyond](#The_Temple_in_New_Testament_theology_and_beyond)
-    -   [5.1 Jesus and the Temple](#Jesus_and_the_Temple)
-    -   [5.2 The New Testament and the Temple](#The_New_Testament_and_the_Temple)
-    -   [5.3 The end of the Temple](#The_end_of_the_Temple)
-
--   [6 Notes](#Notes)
--   [7 Related links](#Related_links)
--   [8 Resources](#Resources)
 
 ## Temples before Solomon
 
