@@ -10,18 +10,10 @@ with God. Its opposite extreme is
 [antinomianism](Antinomianism "Antinomianism") which claims that
 moral laws are not binding on Christian believers.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [A Study on the Law and Legalism](http://www.youtube.com/watch?v=uknEL696ZKQ)
     (YouTube), by Tim Conway
-
-## Contents
-
--   [1 See also](#See_also)
--   [2 Relevant passages](#Relevant_passages)
--   [3 Resources](#Resources)
--   [4 External links](#External_links)
 
 ## See also
 
