@@ -21,16 +21,6 @@ wrote commentaries on the
 [Psalms](Psalms "Psalms"), and was the first writer of hymns in
 Latin.^[[3]](#note-2)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Notes](#Notes)
--   [2 Further reading](#Further_reading)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
-
 ## Notes
 
 1.  [↑](#ref-0) Ivor J. Davidson,
