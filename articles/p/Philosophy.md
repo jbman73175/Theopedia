@@ -10,9 +10,9 @@ this section heading.
 -   [Philosophical theology](Philosophical_theology "Philosophical theology")
 -   [Natural theology](Natural_theology "Natural theology")
 
-**Multimedia**
+##Multimedia
 
-**Audio by John Robbins**
+###Audio by John Robbins
 
 -   [What Is Philosophy?](http://www.trinitylectures.org/MP3/What_is_Philosophy.mp3)
     (mp3)
@@ -20,13 +20,6 @@ this section heading.
     (mp3)
 -   [Beware of Philosophy](http://www.trinitylectures.org/MP3/Beware_of_Philosophy.mp3)
     (mp3)
-
-## Contents
-
--   [1 Philosophy as it relates to theology](#Philosophy_as_it_relates_to_theology)
--   [2 General philosophical studies](#General_philosophical_studies)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ### General philosophical studies
 
