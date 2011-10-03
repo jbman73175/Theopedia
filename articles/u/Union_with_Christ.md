@@ -10,31 +10,10 @@ Christ is best understood by the picture-language used in the
 [Bible](Bible "Bible"), and by the blessings we derive from our
 union with Christ.
 
-**Multimedia**
+##Multimedia
 
 -   [Lectures on the Mystery of Union with Christ](http://theologica.blogspot.com/2009/04/richard-gaffin-lectures-on-mystery-of.html),
     by [Richard Gaffin](Richard_Gaffin "Richard Gaffin")
-
-## Contents
-
--   [1 The language of union with Christ](#The_language_of_union_with_Christ)
-    -   [1.1 Old Testament pictures](#Old_Testament_pictures)
-    -   [1.2 John](#John)
-    -   [1.3 Paul](#Paul)
-    -   [1.4 Summary](#Summary)
-
--   [2 The blessings of union with Christ](#The_blessings_of_union_with_Christ)
-    -   [2.1 Blessings to believers towards God](#Blessings_to_believers_towards_God)
-    -   [2.2 Blessings to believers towards others](#Blessings_to_believers_towards_others)
-    -   [2.3 Blessings to believers towards themselves](#Blessings_to_believers_towards_themselves)
-
--   [3 Relevant passages](#Relevant_passages)
--   [4 Notes](#Notes)
--   [5 See also](#See_also)
--   [6 References](#References)
--   [7 External links](#External_links)
-    -   [7.1 Bibliographies](#Bibliographies)
-
 
 ## The language of union with Christ
 
