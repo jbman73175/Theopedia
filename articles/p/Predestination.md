@@ -25,26 +25,10 @@ will, freely and unchangeably ordain whatsoever comes to pass,"
 according to the purpose of him who works all things according to
 the counsel of his will" (Ephesians 1:11).
 
-**Multimedia**
+##Multimedia
 
 -   [Has God predetermined every detail in the universe, including sin?](http://www.youtube.com/watch?v=nSSLLpVChng),
     by [John Piper](John_Piper "John Piper")
-
-## Contents
-
--   [1 Predestination in the OT](#Predestination_in_the_OT)
--   [2 Predestination in the NT](#Predestination_in_the_NT)
--   [3 Predestination and salvation](#Predestination_and_salvation)
--   [4 Double predestination](#Double_predestination)
--   [5 Quotes](#Quotes)
--   [6 References](#References)
--   [7 Resources](#Resources)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 Calvinist/Reformed](#Calvinist.2FReformed)
-    -   [9.2 Wesleyan/Arminian](#Wesleyan.2FArminian)
-    -   [9.3 Double Predestination](#Double_Predestination_2)
-    -   [9.4 Hard Determinism](#Hard_Determinism)
 
 
 ## Predestination in the OT
