@@ -28,20 +28,12 @@
 -   **Jude**
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+##Multimedia
 
 -   [Jude Narrated in the ESV](http://www.gnpcb.org/esv/share/audio/smil.php?passage=Jude)
     (Real Audio), by Marquis Laughlin
 -   [Having Faith in Faithless Times--The Message of Jude](http://dl.salemweb.net/?mg=A9E11F76-17DC-41BD-B8FD-943B34EA38D9)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
-
-## Contents
-
--   [1 Author and date](#Author_and_date)
--   [2 Blueprint](#Blueprint)
--   [3 Themes](#Themes)
--   [4 Chapters](#Chapters)
--   [5 References](#References)
 
 Jude wrote this letter in an effort to remind the church of the
 need for constant vigilance - to keep strong in the faith and to
