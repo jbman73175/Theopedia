@@ -10,7 +10,7 @@ April 1943 was arrested, imprisoned and ultimately hanged in
 [Flossenbuerg](http://www.holocaustresearchproject.org/othercamps/flossenburg.html)
 just before the end of the Second World War in Europe.
 
-**Multimedia**
+##Multimedia
 
 -   [Christian Martyrs: Dietrich Bonhoeffer](http://www.youtube.com/watch?v=cHp0c49ql5s&mode=related&search=)
     (YouTube)
@@ -18,16 +18,6 @@ just before the end of the Second World War in Europe.
     (YouTube)
 -   [Bonhoeffer Clip 2](http://www.youtube.com/watch?v=AAmAQEATxSg&mode=related&search=)
     (YouTube)
-
-## Contents
-
--   [1 Background](#Background)
--   [2 Bonhoeffer's legacy](#Bonhoeffer.27s_legacy)
--   [3 Quotes](#Quotes)
--   [4 Selected works](#Selected_works)
--   [5 Further reading](#Further_reading)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
 
 ## Background
 
