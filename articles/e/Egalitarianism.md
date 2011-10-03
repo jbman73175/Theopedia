@@ -583,6 +583,7 @@ See also:
 -   [Women in the Heart of God](http://www.christian-thinktank.com/femalex.html)
 -   [Women’s Service in the Church: The Biblical Basis](http://www.ntwrightpage.com/Wright_Women_Service_Church.htm),
     by [N. T. Wright](N._T._Wright "N. T. Wright")
+-   [Women in Ministry: Rereading the Basic Texts](http://www.goodshepherdutah.com/downloads/study/files/WomeninMinistry.pdf), by James L. Wakefield
 
 ### Neutral to egalitarianism
 
