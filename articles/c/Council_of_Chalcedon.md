@@ -15,11 +15,7 @@ which describes the
 [full divinity of Jesus Christ](Deity_of_Jesus "Deity of Jesus"),
 the second person of the Holy [Trinity](Trinity "Trinity").
 
-**Multimedia**
+##Multimedia
 
 -   [Council of Chalcedon](http://covenantseminary.inmotionhosting.com/CH310_Lecture_18.mp3)
     (MP3), by David Calhoun
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-
-
