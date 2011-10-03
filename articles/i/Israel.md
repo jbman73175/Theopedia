@@ -1,22 +1,13 @@
 **Israel** is a name which occurs throughout the
 [Bible](Bible "Bible") in many contexts, and meaning many things.
 
-**Multimedia**
+##Multimedia
 
 -   [Jewish Priestly Passover Sacrifice (April 2008)](http://sourceflix.com/vid_sacrificev3.html)
     by Sourceflix.
     **WARNING! Graphic Content (Sacrifice of a real Lamb)**
 -   [The risks of desert farming](http://link.brightcove.com/services/player/bcpid959009704?bclid=1350269309&bctid=1721772082)
     - International Herald Tribune
-
-## Contents
-
--   [1 Israel the man](#Israel_the_man)
--   [2 Israel the people](#Israel_the_people)
--   [3 Israel the kingdom](#Israel_the_kingdom)
--   [4 Israel the Messiah](#Israel_the_Messiah)
--   [5 Israel the Church](#Israel_the_Church)
--   [6 External links](#External_links)
 
 ## Israel the man
 
