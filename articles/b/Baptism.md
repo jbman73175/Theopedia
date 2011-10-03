@@ -4,29 +4,10 @@ teaching them to observe all that I have commanded you. And behold,
 I am with you always, to the end of the age" (Matthew 28:19-20;
 ESV).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [Is Baptism necesary for salvation?](http://www.youtube.com/watch?v=HAipq3PMQlE)
     (YouTube), by [Douglas Wilson](Douglas_Wilson "Douglas Wilson")
-
-## Contents
-
--   [1 Etymology](#Etymology)
--   [2 John's baptism](#John.27s_baptism)
--   [3 Baptism of Jesus](#Baptism_of_Jesus)
--   [4 Christian baptism](#Christian_baptism)
-    -   [4.1 Believer's baptism](#Believer.27s_baptism)
-    -   [4.2 Infant baptism](#Infant_baptism)
-    -   [4.3 Baptism by fire](#Baptism_by_fire)
-
--   [5 Modes](#Modes)
--   [6 Relevant passages](#Relevant_passages)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
-    -   [8.1 Lutheran](#Lutheran)
-    -   [8.2 Reformed](#Reformed)
-
 
 ## Etymology
 
@@ -155,6 +136,3 @@ salvation process.
 
 -   [Is Immersion Necessary for Baptism?](http://reformedperspectives.org/newfiles/wil_shishko/TH.Shishko.baptism.immersion.pdf)
     (PDF), by William Shishko
-
-
-
