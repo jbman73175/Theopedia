@@ -278,7 +278,7 @@
 [About](About) —
 [Recent changes](https://github.com/cwebf/Theopedia/commits/master) —
 [Random article](random) —
-<a class="request-article">Request article</a>
+<a class="request-article">Request article</a> —
 [How to contribute](Contribute) —
 [License of text](http://creativecommons.org/licenses/by/3.0/ "Creative Commons Attribution 3.0") —
 [Online journals](Online_theological_journals "Online theological journals") —
