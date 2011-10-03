@@ -1,6 +1,3 @@
-[![image](images/thumb/0/05/Hannah.jpg/180px-Hannah.jpg)](http://www.theopedia.com/File:Hannah.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Hannah.jpg "Enlarge")
-John D. Hannah
 **John D. Hannah** is an author and Distinguished Professor of
 Historical Theology at
 [Dallas Theological Seminary](Dallas_Theological_Seminary "Dallas Theological Seminary").
