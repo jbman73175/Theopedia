@@ -1,6 +1,3 @@
-[![image](images/thumb/0/0c/Luther46.jpg/200px-Luther46.jpg)](http://www.theopedia.com/File:Luther46.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Luther46.jpg "Enlarge")
-Martin Luther
 **Martin Luther** (Nov 10, 1483 - Feb 18, 1546) was a German
 theologian, an Augustinian monk, and an ecclesiastical reformer
 whose teachings inspired the
