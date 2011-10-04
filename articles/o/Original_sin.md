@@ -1,12 +1,3 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Original_sin "Talk:Original sin")
-or [replace this tag](index.php?title=Original_sin&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:July
-2006|  
-This article/section has been tagged since **July 2006**.|}}
 Part of the series on  
 **[Humanity](Humanity "Humanity")**
 -   [Image of God](Image_of_God "Image of God")
