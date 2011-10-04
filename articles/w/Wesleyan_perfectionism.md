@@ -22,27 +22,6 @@ Lastly, perfection is "deliverance from inward as well as from
 outward sin" (ibid., p. 26) and "a Christian is so far perfect as
 not to commit sin" (ibid., p. 25).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 How one attains perfection](#How_one_attains_perfection)
--   [2 What perfection is not](#What_perfection_is_not)
--   [3 Important Issues](#Important_Issues)
-    -   [3.1 Sin](#Sin)
-    -   [3.2 Perfection](#Perfection)
-
--   [4 Objections](#Objections)
--   [5 Other quotes](#Other_quotes)
--   [6 Passages used to support perfectionism](#Passages_used_to_support_perfectionism)
--   [7 Passages used against perfectionism](#Passages_used_against_perfectionism)
--   [8 Relationship with belief in libertarian free will](#Relationship_with_belief_in_libertarian_free_will)
--   [9 See also](#See_also)
--   [10 References](#References)
--   [11 External links](#External_links)
-    -   [11.1 Critical](#Critical)
-    -   [11.2 Favorable](#Favorable)
-
-
 ## How one attains perfection
 
 Wesley says that perfection is "spoken of as receivable by mere
@@ -212,6 +191,3 @@ Pietists," (Packer, p. 134).
     by [John Wesley](John_Wesley "John Wesley")
 -   [Church of the Nazarene - Statement of Faith](http://www.nazarene.org/welcome/we_believe.html)
     - (Scroll down to "X. Entire Sanctification")
-
-
-
