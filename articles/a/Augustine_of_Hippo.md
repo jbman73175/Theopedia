@@ -11,7 +11,7 @@ Apostle Paul as the theological fountainhead of the
 [Reformation](Reformation "Reformation") teaching on
 [salvation](Salvation "Salvation") and [grace](Grace "Grace").
 
-**Multimedia**
+##Multimedia
 
 -   Renewing Your Mind: Saint Augustine
     ([Real](http://riven.ligonier.org/playlists/rym20041122.m3u),
@@ -28,26 +28,11 @@ Apostle Paul as the theological fountainhead of the
 -   [Augustine and the City of God](http://www.christian.org.uk/downloads/audio/archive2007/autlecture04.htm),
     by N. Needham
 
-**David Calhoun (Lecture MP3s)**
+###David Calhoun (Lecture MP3s)
 
 -   [Augustine's Confessions](http://covenantseminary.inmotionhosting.com/CH310_Lecture_15.mp3)
 -   [Augustine & Pelagian Controversy](http://covenantseminary.inmotionhosting.com/CH310_Lecture_16.mp3)
 -   [Augustine's Theology of History](http://covenantseminary.inmotionhosting.com/CH310_Lecture_17.mp3)
-
-## Contents
-
--   [1 Life](#Life)
--   [2 Influence as a theologian and thinker](#Influence_as_a_theologian_and_thinker)
--   [3 Augustine on the problem of evil](#Augustine_on_the_problem_of_evil)
--   [4 Early Christian writings](#Early_Christian_writings)
--   [5 Quotes](#Quotes)
--   [6 Resources](#Resources)
-    -   [6.1 Primary](#Primary)
-    -   [6.2 Secondary](#Secondary)
-
--   [7 See also](#See_also)
--   [8 References](#References)
--   [9 External links](#External_links)
 
 ## Life
 
