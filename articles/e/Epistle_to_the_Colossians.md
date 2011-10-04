@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+##Multimedia
 
 -   [Life: The Message of Colossians](http://dl.salemweb.net/?mg=40455E93-F076-4965-864F-816EE885E453)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
@@ -37,12 +37,6 @@
     [Occasion & Outline](http://covenantseminary.inmotionhosting.com/NT230_Lecture_31.mp3),
     [Thought Flow](http://covenantseminary.inmotionhosting.com/NT230_Lecture_32.mp3)
     (MP3s), by Hans Bayer
-
-## Chapters
-
-[1](Colossians_1 "Colossians 1"), [2](Colossians_2 "Colossians 2"),
-[3](index.php?title=Colossians_3&action=edit&redlink=1 "Colossians 3 (page does not exist)"),
-[4](index.php?title=Colossians_4&action=edit&redlink=1 "Colossians 4 (page does not exist)")
 
 ## External links
 
@@ -56,6 +50,3 @@
     *Themelios* 35.1 (2010), by Nijay Gupta
 -   [Douglas Moo on the authorship of Colossians](http://nijaygupta.wordpress.com/2008/10/25/douglas-moo-on-the-authorship-of-colossians/),
     by Nijay Gupta
-
-
-
