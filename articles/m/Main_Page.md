@@ -6,7 +6,7 @@
 [Knowability](Knowability_of_God "Knowability of God") —
 [Attributes](Attributes_of_God "Attributes of God") —
 [Names](Names_of_God "Names of God") —
-[Immanence](Immanence_of_God "Immanence of God") —
+[Immanence](Immanence_of_God "Immanence of God") — 
 [Transcendence](Transcendence_of_God "Transcendence of God") —
 [God the Father](God_the_Father "God the Father") —
 [Trinity](Trinity "Trinity") —
