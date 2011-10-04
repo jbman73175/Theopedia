@@ -1,6 +1,3 @@
-[![image](images/9/92/Kantzer.jpg)](http://www.theopedia.com/File:Kantzer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Kantzer.jpg "Enlarge")
-Kenneth Kantzer
 **Kenneth S. Kantzer** (1917-2002), born in Detroit, was a
 Christian [theologian](Theologian "Theologian") and educator.
 Kantzer received a master's degree in modern history from Ohio
