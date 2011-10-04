@@ -1,6 +1,3 @@
-[![image](images/f/f3/Augustine.jpg)](http://www.theopedia.com/File:Augustine.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Augustine.jpg "Enlarge")
-15th century painting of St. Augustine
 **Aurelius Augustinus** (354 - 430) is often simply referred to as
 **St. Augustine** or **Augustine Bishop of Hippo** (the ancient
 name of the modern city of Annaba in Algeria). He is the
