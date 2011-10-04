@@ -60,7 +60,6 @@ he or she will temporarily spend time in
 [purgatory](Purgatory "Purgatory") until the sinful status is
 purged from his or her record.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Relevant scriptures
 
 -   Genesis 15:5-6
