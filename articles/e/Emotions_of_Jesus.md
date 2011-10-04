@@ -1,6 +1,6 @@
 [John Stott](John_Stott "John Stott") notes that,
 
-"I learned to my astonishment that God, whose 'impassibility' I
+> "I learned to my astonishment that God, whose 'impassibility' I
 thought meant that he was incapable of emotion, speaks (though in
 human terms) of his burning anger and vulnerable love. I discovered
 too that Jesus of Nazareth, the perfect human being, was no
@@ -13,7 +13,7 @@ plain that our emotions are not to be suppressed, since they have
 an essential place in our humanness and therefore in our Christian
 discipleship."
 [[1]](http://www.gospelcom.net/stott/topic/emotions.html)
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Learning From the Emotional Life of Jesus](http://www.gospelcom.net/narramore/jesus-emotions1.htm),
