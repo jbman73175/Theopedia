@@ -11,17 +11,6 @@ being,' in which each person, while maintaining its distinctive
 identity, penetrates the others and is penetrated by them."
 ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Perichoresis in application](#Perichoresis_in_application)
-    -   [1.1 Glory](#Glory)
-
--   [2 Notes](#Notes)
--   [3 References](#References)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Perichoresis in application
 
 ### Glory
