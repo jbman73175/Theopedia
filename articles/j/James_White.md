@@ -1,5 +1,3 @@
-[![image](images/2/2c/Jameswhite.jpg)](http://www.theopedia.com/File:Jameswhite.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Jameswhite.jpg "Enlarge")
 James White
 **James R. White** (b. 1962) is a Reformed evangelical
 [Baptist](Baptist "Baptist") and the director of
@@ -24,7 +22,7 @@ Update (1995).
 
 ##Multimedia
 
--   [Is Jesus Prophesied In The Old Testament? (London Debate, 2008)](http://www.youtube.com/watch?v=-4auy06yow8)
+-   [Is Jesus Prophesied In The Old Testament? (London Debate, 2008)](http://www.youtube.com/watch?v=-4auy06yow8) (YouTube)
 
 ## Education
 
