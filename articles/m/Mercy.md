@@ -1,5 +1,3 @@
-# Mercy
-
 The term **mercy** may designate both character and actions that
 emerge as a consequence of that character. As a part of character,
 mercy is demonstrated most clearly by such qualities as compassion
@@ -80,6 +78,3 @@ the practice of mercy in life.^[[8]](#note-7)^
 ## See also
 
 -   [Attributes of God](Attributes_of_God "Attributes of God")
-
-
-
