@@ -6,26 +6,10 @@ accomplished for all who will be redeemed. The obedience and death
 of Christ on behalf of sinners is the ground of
 [redemption](Redemption "Redemption").
 
-**Multimedia**
+##Multimedia
 
 -   [Contemplating the Wondrous Redemptive Work of Christ](http://www.monergism.com/thethreshold/articles/onsite/atonement.html)
     (MP3s), by Tom Ferrell
-
-## Contents
-
--   [1 Necessity of the atonement](#Necessity_of_the_atonement)
--   [2 Theories of the atonement](#Theories_of_the_atonement)
-    -   [2.1 Historic theories](#Historic_theories)
-    -   [2.2 Modern theories](#Modern_theories)
-
--   [3 Sufficiency of Christ's person and his atoning death](#Sufficiency_of_Christ.27s_person_and_his_atoning_death)
--   [4 The extent of the atonement](#The_extent_of_the_atonement)
--   [5 Notes](#Notes)
--   [6 Resources](#Resources)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
-    -   [8.1 Arminian perspective](#Arminian_perspective)
-
 
 ## Necessity of the atonement
 
@@ -35,6 +19,7 @@ God. Yet, in order to fully appreciate the
 clear why the atonement was necessary.
 
 *See main pages: [The Fall](The_Fall "The Fall"), [Total depravity](Total_depravity "Total depravity"), [Original sin](Original_sin "Original sin")*
+
 ## Theories of the atonement
 
 ### Historic theories
@@ -202,6 +187,7 @@ elect.
 savable.
 
 *Main page: [universal atonement](Universal_atonement "Universal atonement")*
+
 ## Notes
 
 1.  [↑](#ref-0) John F. MacArthur,
