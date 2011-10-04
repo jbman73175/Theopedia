@@ -6,18 +6,10 @@ Christian philosopher, [Reformed](Reformed "Reformed")
 [theologian](Theologian "Theologian"), and presuppositional
 [apologist](Apologetics "Apologetics").
 
-**Multimedia**
+##Multimedia
 
 -   [Van Til MP3 Archive](http://sermonaudio.com/search.asp?sortby=downloads&SpeakerOnly=true&currSection=sermonsspeaker&keyword=Dr.%5ECornelius%5EVan%5ETil),
     Free MP3 lectures and sermons from SermonAudio.com
-
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 Van Til's thought](#Van_Til.27s_thought)
--   [3 Resources](#Resources)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
 
 ## Biographical sketch
 
