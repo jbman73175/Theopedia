@@ -1,80 +1,3 @@
-## [Old Testament](Old_Testament "Old Testament")
-
-[Genesis](Genesis "Genesis") – [Exodus](Exodus "Exodus") –
-[Leviticus](Leviticus "Leviticus") –
-[Numbers](Book_of_Numbers "Book of Numbers") –
-[Deuteronomy](Deuteronomy "Deuteronomy") –
-[Joshua](Book_of_Joshua "Book of Joshua") – 
-[Judges](Book_of_Judges "Book of Judges") –
-[Ruth](Book_of_Ruth "Book of Ruth") –
-[1 Samuel](Books_of_Samuel "Books of Samuel") –
-[2 Samuel](Books_of_Samuel "Books of Samuel") –
-[1 Kings](Books_of_Kings "Books of Kings") –
-[2 Kings](Books_of_Kings "Books of Kings") –
-[1 Chronicles](Books_of_Chronicles "Books of Chronicles") –
-[2 Chronicles](Books_of_Chronicles "Books of Chronicles") –
-[Ezra](Book_of_Ezra "Book of Ezra") –
-[Nehemiah](Book_of_Nehemiah "Book of Nehemiah") –
-[Esther](Book_of_Esther "Book of Esther") –
-[Job](Book_of_Job "Book of Job") –
-[Psalms](Book_of_Psalms "Book of Psalms") –
-[Proverbs](Book_of_Proverbs "Book of Proverbs") –
-[Ecclesiastes](Ecclesiastes "Ecclesiastes") –
-[Song of Solomon](Song_of_Solomon "Song of Solomon") –
-[Isaiah](Book_of_Isaiah "Book of Isaiah") –
-[Jeremiah](Book_of_Jeremiah "Book of Jeremiah") –
-[Lamentations](Book_of_Lamentations "Book of Lamentations") –
-[Ezekiel](Book_of_Ezekiel "Book of Ezekiel") –
-[Daniel](Book_of_Daniel "Book of Daniel") –
-[Hosea](Book_of_Hosea "Book of Hosea") –
-[Joel](Book_of_Joel "Book of Joel") –
-[Amos](Book_of_Amos "Book of Amos") –
-[Obadiah](Book_of_Obadiah "Book of Obadiah") –
-[Jonah](Book_of_Jonah "Book of Jonah") –
-[Micah](Book_of_Micah "Book of Micah") –
-[Nahum](Book_of_Nahum "Book of Nahum") –
-[Habakkuk](Book_of_Habakkuk "Book of Habakkuk") –
-[Zephaniah](Book_of_Zephaniah "Book of Zephaniah") –
-[Haggai](Book_of_Haggai "Book of Haggai") –
-[Zechariah](Book_of_Zechariah "Book of Zechariah") –
-[Malachi](Book_of_Malachi "Book of Malachi")
-
-## [New Testament](New_Testament "New Testament")
-
-[Matthew](Gospel_of_Matthew "Gospel of Matthew") –
-[Mark](Gospel_of_Mark "Gospel of Mark") –
-[Luke](Gospel_of_Luke "Gospel of Luke") –
-[John](Gospel_of_John "Gospel of John") –
-[Acts](Acts_of_the_Apostles "Acts of the Apostles") –
-[Romans](Epistle_to_the_Romans "Epistle to the Romans") –
-[1 Corinthians](First_Epistle_to_the_Corinthians "First Epistle to the Corinthians")
-–
-[2 Corinthians](Second_Epistle_to_the_Corinthians "Second Epistle to the Corinthians")
-– [Galatians](Epistle_to_the_Galatians "Epistle to the Galatians")
-– [Ephesians](Epistle_to_the_Ephesians "Epistle to the Ephesians")
-–
-[Philippians](Epistle_to_the_Philippians "Epistle to the Philippians")
-–
-[Colossians](Epistle_to_the_Colossians "Epistle to the Colossians")
-–
-[1 Thessalonians](First_Epistle_to_the_Thessalonians "First Epistle to the Thessalonians")
-–
-[2 Thessalonians](Second_Epistle_to_the_Thessalonians "Second Epistle to the Thessalonians")
-– [1 Timothy](First_Epistle_to_Timothy "First Epistle to Timothy")
-–
-[2 Timothy](Second_Epistle_to_Timothy "Second Epistle to Timothy")
-– [Titus](Epistle_to_Titus "Epistle to Titus") –
-[Philemon](Epistle_to_Philemon "Epistle to Philemon") –
-[Hebrews](Epistle_to_the_Hebrews "Epistle to the Hebrews") –
-[James](Epistle_of_James "Epistle of James") –
-[1 Peter](First_Epistle_of_Peter "First Epistle of Peter") –
-[2 Peter](Second_Epistle_of_Peter "Second Epistle of Peter") –
-[1 John](First_Epistle_of_John "First Epistle of John") –
-[2 John](Second_Epistle_of_John "Second Epistle of John") –
-[3 John](Third_Epistle_of_John "Third Epistle of John") –
-[Jude](Epistle_of_Jude "Epistle of Jude") –
-[Revelation](Book_of_Revelation "Book of Revelation")
-
 ## [Bible](Bible "Bible")
 
 [Old Testament](Old_Testament "Old Testament") –
@@ -273,6 +196,77 @@
 [Hell](Hell "Hell") —
 [Final judgment](Final_judgment "Final judgment") —
 [Resurrection](Resurrection "Resurrection")
+
+## [Old Testament](Old_Testament "Old Testament") <span class="label">Needs contributions</span>
+
+[Genesis](Genesis "Genesis") – [Exodus](Exodus "Exodus") –
+[Leviticus](Leviticus "Leviticus") –
+[Numbers](Book_of_Numbers "Book of Numbers") –
+[Deuteronomy](Deuteronomy "Deuteronomy") –
+[Joshua](Book_of_Joshua "Book of Joshua") – 
+[Judges](Book_of_Judges "Book of Judges") –
+[Ruth](Book_of_Ruth "Book of Ruth") –
+[1 Samuel](Books_of_Samuel "Books of Samuel") –
+[2 Samuel](Books_of_Samuel "Books of Samuel") –
+[1 Kings](Books_of_Kings "Books of Kings") –
+[2 Kings](Books_of_Kings "Books of Kings") –
+[1 Chronicles](Books_of_Chronicles "Books of Chronicles") –
+[2 Chronicles](Books_of_Chronicles "Books of Chronicles") –
+[Ezra](Book_of_Ezra "Book of Ezra") –
+[Nehemiah](Book_of_Nehemiah "Book of Nehemiah") –
+[Esther](Book_of_Esther "Book of Esther") –
+[Job](Book_of_Job "Book of Job") –
+[Psalms](Book_of_Psalms "Book of Psalms") –
+[Proverbs](Book_of_Proverbs "Book of Proverbs") –
+[Ecclesiastes](Ecclesiastes "Ecclesiastes") –
+[Song of Solomon](Song_of_Solomon "Song of Solomon") –
+[Isaiah](Book_of_Isaiah "Book of Isaiah") –
+[Jeremiah](Book_of_Jeremiah "Book of Jeremiah") –
+[Lamentations](Book_of_Lamentations "Book of Lamentations") –
+[Ezekiel](Book_of_Ezekiel "Book of Ezekiel") –
+[Daniel](Book_of_Daniel "Book of Daniel") –
+[Hosea](Book_of_Hosea "Book of Hosea") –
+[Joel](Book_of_Joel "Book of Joel") –
+[Amos](Book_of_Amos "Book of Amos") –
+[Obadiah](Book_of_Obadiah "Book of Obadiah") –
+[Jonah](Book_of_Jonah "Book of Jonah") –
+[Micah](Book_of_Micah "Book of Micah") –
+[Nahum](Book_of_Nahum "Book of Nahum") –
+[Habakkuk](Book_of_Habakkuk "Book of Habakkuk") –
+[Zephaniah](Book_of_Zephaniah "Book of Zephaniah") –
+[Haggai](Book_of_Haggai "Book of Haggai") –
+[Zechariah](Book_of_Zechariah "Book of Zechariah") –
+[Malachi](Book_of_Malachi "Book of Malachi")
+
+## [New Testament](New_Testament "New Testament") <span class="label">Needs contributions</span>
+
+[Matthew](Gospel_of_Matthew "Gospel of Matthew") –
+[Mark](Gospel_of_Mark "Gospel of Mark") –
+[Luke](Gospel_of_Luke "Gospel of Luke") –
+[John](Gospel_of_John "Gospel of John") –
+[Acts](Acts_of_the_Apostles "Acts of the Apostles") –
+[Romans](Epistle_to_the_Romans "Epistle to the Romans") –
+[1 Corinthians](First_Epistle_to_the_Corinthians "First Epistle to the Corinthians") –
+[2 Corinthians](Second_Epistle_to_the_Corinthians "Second Epistle to the Corinthians") –
+[Galatians](Epistle_to_the_Galatians "Epistle to the Galatians") –
+[Ephesians](Epistle_to_the_Ephesians "Epistle to the Ephesians") –
+[Philippians](Epistle_to_the_Philippians "Epistle to the Philippians") –
+[Colossians](Epistle_to_the_Colossians "Epistle to the Colossians") –
+[1 Thessalonians](First_Epistle_to_the_Thessalonians "First Epistle to the Thessalonians") –
+[2 Thessalonians](Second_Epistle_to_the_Thessalonians "Second Epistle to the Thessalonians") –
+[1 Timothy](First_Epistle_to_Timothy "First Epistle to Timothy") –
+[2 Timothy](Second_Epistle_to_Timothy "Second Epistle to Timothy") –
+[Titus](Epistle_to_Titus "Epistle to Titus") –
+[Philemon](Epistle_to_Philemon "Epistle to Philemon") –
+[Hebrews](Epistle_to_the_Hebrews "Epistle to the Hebrews") –
+[James](Epistle_of_James "Epistle of James") –
+[1 Peter](First_Epistle_of_Peter "First Epistle of Peter") –
+[2 Peter](Second_Epistle_of_Peter "Second Epistle of Peter") –
+[1 John](First_Epistle_of_John "First Epistle of John") –
+[2 John](Second_Epistle_of_John "Second Epistle of John") –
+[3 John](Third_Epistle_of_John "Third Epistle of John") –
+[Jude](Epistle_of_Jude "Epistle of Jude") –
+[Revelation](Book_of_Revelation "Book of Revelation")
 
 ## [Theopedia](About)
 [About](About) —
