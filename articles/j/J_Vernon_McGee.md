@@ -13,7 +13,6 @@ States. [Thru the Bible Radio](http://ttb.org) also translates
 McGee's lessons into 100 languages and broadcasts them via short
 wave radio.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 [Thru the Bible Radio](http://ttb.org)
@@ -21,6 +20,3 @@ wave radio.
 -   [
     [http://www.oneplace.com/ministries/thru-the-bible-with-j-vernon-mcgee/](http://www.oneplace.com/ministries/thru-the-bible-with-j-vernon-mcgee/)
     J Venon McGee Broadcasts Online]
-
-
-
