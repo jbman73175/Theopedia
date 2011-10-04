@@ -1,4 +1,3 @@
-[![Machen.jpg](images/a/ab/Machen.jpg)](http://www.theopedia.com/File:Machen.jpg)
 **John Gresham Machen** (1881-1937) was an influential American
 [Presbyterian](Presbyterian "Presbyterian") theologian in the early
 20th century. He was the Professor of New Testament at Princeton
