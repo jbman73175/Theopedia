@@ -33,11 +33,11 @@ When using content from an article, take note of any images that are not under o
 
 ##Why bother?
 
-: ''"Two-thirds of American Internet users surf the web for spiritual purposes."'' [http://www.christianitytoday.com/le/2004/004/4.13.html]
+> ''"Two-thirds of American Internet users surf the web for spiritual purposes."'' [http://www.christianitytoday.com/le/2004/004/4.13.html]
 
-: ''"God created computers for missions. He just happens to let the rest of the world use them."''
+> ''"God created computers for missions. He just happens to let the rest of the world use them."''
 
-: ''"Since computer technology is here to stay, retreat from it seems neither required nor appropriate... 'There comes a time when the church of Jesus Christ has to be bold enough to lay claim to a new medium.' Claiming a new medium, though, goes beyond just mere use of the medium. It involves understanding how the medium works." [http://www.theologicalstudies.citymax.com/page/page/1573597.htm]
+> ''"Since computer technology is here to stay, retreat from it seems neither required nor appropriate... 'There comes a time when the church of Jesus Christ has to be bold enough to lay claim to a new medium.' Claiming a new medium, though, goes beyond just mere use of the medium. It involves understanding how the medium works." [http://www.theologicalstudies.citymax.com/page/page/1573597.htm]
 
 ##What about Wikipedia?
 
