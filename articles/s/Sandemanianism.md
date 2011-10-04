@@ -18,9 +18,6 @@ that the view espoused by proponents of
 [Non-Lordship salvation](Non-Lordship_salvation "Non-Lordship salvation")
 is essentially the errant view of the 18th century Sandemanians.
 
-
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Notes
 
 1.  [↑](#ref-0) Encyclopædia Britannica Eleventh Edition (1911),
@@ -30,6 +27,3 @@ is essentially the errant view of the 18th century Sandemanians.
 ## See also
 
 -   [Non-Lordship salvation](Non-Lordship_salvation "Non-Lordship salvation")
-
-
-
