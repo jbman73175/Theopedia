@@ -1,6 +1,3 @@
-[![image](images/0/03/Craig.jpg)](http://www.theopedia.com/File:Craig.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Craig.jpg "Enlarge")
-William Lane Craig
 **William Lane Craig** is Research Professor of Philosophy at
 [Talbot School of Theology](Talbot_School_of_Theology "Talbot School of Theology")
 in La Mirada, California.. Craig pursued his undergraduate studies
@@ -32,11 +29,9 @@ inspiration,
 [perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints"),
 and Christian particularism."^[[1]](#note-0)^
 
+##Multimedia
 
-
-**Multimedia**
-
-**Podcasts:**
+###Podcasts
 
 -   Defender's Podcast
     [All Software](http://www.reasonablefaith.org/podcast/Defenders.xml),
@@ -44,7 +39,7 @@ and Christian particularism."^[[1]](#note-0)^
 -   [Dr. Craig's Current Events Audio Blog](http://www.rfmedia.org/blog/podcast.php)
     (All Software)
 
-**Miscellaneous:**
+###Miscellaneous
 
 -   [Defending the True Historical Jesus](http://www.cru.stuorg.iastate.edu/debate/Defending%20the%20True%20historical%20Jesus%20by%20Craig.mp3)
     (mp3)
@@ -62,6 +57,10 @@ and Christian particularism."^[[1]](#note-0)^
     (mp3)
 -   [Is One True Religion Possible](http://www.cru.stuorg.iastate.edu/debate/Is%20One%20True%20Religion%20Possible%20by%20Craig.mp3)
     (mp3)
+
+###Debates
+
+-   [Resurrection; Hoax or History (McGill University Debate, 2009)](http://www.youtube.com/watch?v=IQeh3tT9cY8)
 
 ## Notes
 
