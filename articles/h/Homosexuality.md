@@ -17,17 +17,17 @@ the same sex.
 -   [God's Word on Homosexuality: 4 parts](http://thegospelcoalition.org/blogs/justintaylor/2008/12/11/schreiner-gods-word-on-homosexuality/),
     by [Thomas Schreiner](Thomas_Schreiner "Thomas Schreiner")
 -   [Robert Gagnon on Homosexuality and the Bible](http://vimeo.com/2126309?pg=embed&sec=2126309)
-    (Vimeo video)
+    (Vimeo)
 -   [Dr. Brown/ Rabbi Shmuley debate](http://askdrbrown.org/index.php?option=com_content&id=210)
-    (Vimeo videos)
+    (Vimeo)
 -   [On homosexuality](http://www.youtube.com/watch?v=LTwugmG4hoA#t=8s)
-    (YouTube video), by
+    (YouTube), by
     [Timothy Keller](Timothy_Keller "Timothy Keller")
--   [Is homosexuality a sin?](http://www.youtube.com/watch?v=cSGIPqXhofE&feature=related#t=55s),
+-   [Is homosexuality a sin?](http://www.youtube.com/watch?v=cSGIPqXhofE&feature=related#t=55s) (YouTube),
     by [Mark Driscoll](Mark_Driscoll "Mark Driscoll")
 -   [Why is homosexuality wrong?](http://www.youtube.com/watch?v=_n078cvLw8I)
-    (YouTube video), by [John Piper](John_Piper "John Piper")
--   [How Do I Balance Disagreeing Yet Still Loving Those Of My Friends Who Are Homosexuals?](http://www.youtube.com/watch?v=b1gMwQT2NsA),
+    (YouTube), by [John Piper](John_Piper "John Piper")
+-   [How Do I Balance Disagreeing Yet Still Loving Those Of My Friends Who Are Homosexuals?](http://www.youtube.com/watch?v=b1gMwQT2NsA) (YouTube),
     by Rob Turner
 
 ## Passages related to Homosexuality
@@ -36,16 +36,19 @@ the same sex.
 
 ### Leviticus 18:22
 
-*You shall not lie with a male as with a woman; it is an abomination.*
+> You shall not lie with a male as with a woman; it is an abomination.
+
 ### Leviticus 20:13
 
-*If a man lies with a male as with a woman, both of them have committed an abomination; they shall surely be put to death; their blood is upon them.*
+> If a man lies with a male as with a woman, both of them have committed an abomination; they shall surely be put to death; their blood is upon them.
+
 ### Romans 1:26-27
 
-*For this reason God gave them up to dishonorable passions. For their women exchanged natural relations for those that are contrary to nature; 27 and the men likewise gave up natural relations with women and were consumed with passion for one another, men committing shameless acts with men and receiving in themselves the due penalty for their error.*
+> For this reason God gave them up to dishonorable passions. For their women exchanged natural relations for those that are contrary to nature; 27 and the men likewise gave up natural relations with women and were consumed with passion for one another, men committing shameless acts with men and receiving in themselves the due penalty for their error.
+
 Denny Burk writes,
 
-"For Paul, nature (φύσις word group) is not a reference to one’s
+> "For Paul, nature (φύσις word group) is not a reference to one’s
 own private sexual orientation. Nature refers to the creational
 purposes of God in the primeval event of making male and female. To
 depart from nature is to depart from the heterosexual norm
@@ -60,9 +63,10 @@ verses 26 and 27, Paul is prohibiting same-sex relations in
 general... The traditional understanding still holds in many if not
 most of the major critical
 commentaries."[[1]](http://www.thegospelcoalition.org/publications/35-2/why-evangelicals-should-ignore-brian-mclaren-how-the-new-testament-requires-evangelicals-to-render-a-judgment-on-the-moral-status-of-homosexuality)
+
 ### 1 Corinthians 6:9-10
 
-*Or do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God.*
+> Or do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God.
 ### 1 Timothy 1:10
 
 *...the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine*
@@ -93,7 +97,7 @@ by approving what is right and condemning what is wrong.
 
 Mohler also writes,
 
-We cannot lie to persons about the sinfulness of their sin, nor
+> We cannot lie to persons about the sinfulness of their sin, nor
 comfort them with falsehood about their moral accountability before
 God. The rush of the liberal churches and denominations to
 normalize homosexuality is now a hallmark of their disobedience to
@@ -126,9 +130,10 @@ people can just turn on and turn off. We are not a gospel people
 unless we understand that only the gospel of the Lord Jesus Christ
 gives a homosexual person any hope of release from homosexuality.”
 [[3]](http://www.abpnews.com/content/view/6496/53/)
+
 ## John Frame on Innateness
 
-"Innateness has nothing to do with normality... Genes may impel,
+> "Innateness has nothing to do with normality... Genes may impel,
 but they don’t compel... All of us have moral 'weak spots,' areas
 where we are especially vulnerable to the Devil’s enticements.
 These areas of temptation have many sources, heredity being one of
@@ -150,17 +155,19 @@ this by their genes or by anything contrary to their own desires...
 homosexual temptation, it would not cast the slightest doubt on the
 power of God’s grace to heal such people."
 [[4]](http://www.thirdmill.org/files/english/html/pt/PT.h.Frame.genetic.homosexuality.3m.html)
+
 ## Jonathan Edwards on humility
 
 Jonathan Edwards once resolved:
 
-"... to act, in all respects, both speaking and doing, as if nobody
+> "... to act, in all respects, both speaking and doing, as if nobody
 had been so vile as I, and as if I had committed the same sins, or
 had the same infirmities or failings as others; and that I will let
 the knowledge of their failings promote nothing but shame in
 myself, and prove only an occasion of my confessing my own sins and
 misery to
 God."[[5]](http://www.desiringgod.org/resource-library/articles/the-resolutions-of-jonathan-edwards)
+
 ## Books
 
 -   *Washed and Waiting: Reflections on Christian Faithfulness and Homosexuality*,
@@ -250,6 +257,3 @@ God."[[5]](http://www.desiringgod.org/resource-library/articles/the-resolutions-
 -   [Blog posts by Warren Throckmorton](http://wthrockmorton.com/category/sexual-orientation/)
 -   [My Ex-Gay Friend](http://www.nytimes.com/2011/06/19/magazine/my-ex-gay-friend.html?_r=1)
     (New York Times)
-
-
-
