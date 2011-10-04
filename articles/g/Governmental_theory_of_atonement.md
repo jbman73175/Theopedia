@@ -1,13 +1,3 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Governmental_theory_of_atonement "Talk:Governmental theory of atonement")
-or
-[replace this tag](index.php?title=Governmental_theory_of_atonement&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 The **Governmental theory of the atonement** (also known as the
 moral government theory) maintains that Christ was not punished on
 behalf of the human race. Instead, God publicly demonstrated his
@@ -33,18 +23,6 @@ demonstrated the seriousness of sin and thus appeasing his wrath.
 > p.
 > 479|*A New Systematic Theology of the Christian Faith (Thomas Nelson, 1998), p. 479*}}
 > }}
-
-## Contents
-
--   [1 Background](#Background)
--   [2 Additional details of the Governmental Theory](#Additional_details_of_the_Governmental_Theory)
--   [3 Objections](#Objections)
--   [4 Footnotes](#Footnotes)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Favorable](#Favorable)
-    -   [6.2 Critical](#Critical)
-
 
 ## Background
 
