@@ -1,4 +1,4 @@
-*Theopedia* is a community-driven online encyclopedia of biblical Christianity.
+#Theopedia is a community-driven encyclopedia of biblical Christianity.
 
 ##What is our vision?
 
