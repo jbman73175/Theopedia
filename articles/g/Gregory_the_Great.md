@@ -10,7 +10,3 @@ the first of the Middle Ages.
 He came into conflict when the patriarch of Constantinople claimed
 the title "ecumenical bishop", which mirrored the power and
 position he had sought for the papacy.
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-
-
