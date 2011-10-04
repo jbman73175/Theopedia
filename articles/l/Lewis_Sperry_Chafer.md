@@ -1,6 +1,4 @@
-[![image](images/thumb/9/91/Chafer.jpg/180px-Chafer.jpg)](http://www.theopedia.com/File:Chafer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Chafer.jpg "Enlarge")
-Lewis Sperry Chafer
+<img src="http://upload.wikimedia.org/wikipedia/en/thumb/0/02/LewisSperryChafer1929.jpg/200px-LewisSperryChafer1929.jpg" style="width:200px;height:302px;" />
 **Lewis Sperry Chafer** (1871 - 1952), noted
 [dispensationalist](Dispensationalism "Dispensationalism"),
 educator, and founder of Dallas Theological Seminary.
