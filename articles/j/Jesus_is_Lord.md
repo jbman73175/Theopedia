@@ -1,7 +1,3 @@
-The traditional
-[Trilemma Argument](index.php?title=Trilemma_Argument&action=edit&redlink=1 "Trilemma Argument (page does not exist)")
-expanded.
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 **"Jesus is Lord"** is probably the earliest Christian
 [confession](Creeds_and_confessions "Creeds and confessions").
 Paul, writing to the Romans, refers to it as a key indicator of
