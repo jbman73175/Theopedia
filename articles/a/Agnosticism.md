@@ -17,14 +17,11 @@ The term *agnostic* was apparently coined by T. H. Huxley
 Enlightenment thinkers David Hume (1711-1776) and
 [Immanuel Kant](Immanuel_Kant "Immanuel Kant") (1724-1804).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Notes
 
 1.  [↑](#ref-0) Thomas Huxley, *Collected Essays*, Vol. 5, pp.
     237-239,
     [ISBN 1-85506-922-9](http://www.theopedia.com/Special:BookSources/1855069229)
-
-
 
 ## See also
 
