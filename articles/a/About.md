@@ -2,14 +2,26 @@
 
 In this manner, Theopedia becomes a network of interconnected pages, constantly being refined and updated. We invite you to [[How to contribute|join us]]!  Please see the [[Theopedia:Statement_of_faith|Statement of Faith]] and [[Writing guide]] for additional necessary information.  The Theopedia owner and head administrator is [[User:Aaronshaf|Aaron]] who is assisted by [[Theopedia:Administrators|other administrators]].
 
-==Theopedia is a wiki==
+==What is our vision?==
 
-* A [http://en.wikipedia.org/wiki/Wiki wiki] is a document collection managed by collaborative software. It enables multiple people to work together on articles.
-* Within a wiki, you can edit, add, and delete material to help solidify an article.  You can also begin new articles, create external links to other helpful websites, and create internal links to articles already created on Theopedia.
-* It runs on the same software that Wikipedia does, [http://www.mediawiki.org/wiki/MediaWiki MediaWiki].
-* All changes to content can be tracked, reviewed, and reversed if necessary.
-* A wiki helps harness the power of collective intelligence and oversight.
-* A wiki can be a great tool for building a community around common interests.
+* To centralize the efforts of thousands of Christians into a comprehensive encyclopedia on biblical Christianity.
+* To keep the articles at Theopedia free forever, and to give others broad freedoms to redistribute, publish, and adapt the content.
+* To promote sound theology.
+* To lessen the gap of theological knowledge between the seminary trained church leader and the layman.
+* To build a Christian community for the promotion of good theological content.
+* To promote the Lordship of Jesus Christ in all things.
+
+==Where do we stand?==
+
+===Primary statement of faith===
+
+Editors/Users are required to personally affirm the entirety of the primary statement of faith.<ref>Any exceptions or deviations must be approved by board members. We, the board, reserve the right to make changes to the statement to guard the truth.</ref> This statement contains basic things that we would expect any Christian to believe.
+
+===Secondary doctrinal statement===
+
+An editor is not required to agree with everything in the secondary doctrinal statement, but all of Theopedia's content is, in accordance with the writing guide, required to conform to it. This secondary statement affirms the [[Together for the Gospel Statement]], the [[The Cambridge Declaration of the Alliance of Confessing Evangelicals]], and the [[TULIP|Calvinistic doctrines of grace]].
+
+: ''See main page: [[Theopedia:Statement of faith|Statement of faith]]''
 
 ==Our content is freely redistributable==
 <!--this header is linked to from elsewhere, please do not rename it -->
@@ -31,27 +43,6 @@ When using content from an article, take note of any images that are not under o
 
 *Wikipedia strives to maintain a Neutral-point-of-view (NPOV) policy for its material to prevent biased presentation.  Theopedia, however, openly maintains a bias, or a Particular-point-of-view, that being "conservative evangelical Protestant Christianity."  Contrary to Wikipedia, this bias is to be expected in Theopedia content.
 *Apart from any content issues, there are incompatibilities between Theopedia's Creative Commons License and Wikipedia's GNU Free Documentation License which preclude verbatim copying of articles from Wikipedia.  One may still provide links to Wikipedia articles thru  [[Wikipedia:InterWiki|Interwiki]] where appropriate.  See also [[Wikipedia:GNU Free Documentation License]] for additional info.
-
-==What is our vision?==
-
-* To centralize the efforts of thousands of Christians into a comprehensive encyclopedia on biblical Christianity.
-* To keep the articles at Theopedia free forever, and to give others broad freedoms to redistribute, publish, and adapt the content.
-* To promote sound theology.
-* To lessen the gap of theological knowledge between the seminary trained church leader and the layman.
-* To build a Christian community for the promotion of good theological content.
-* To promote the Lordship of Jesus Christ in all things.
-
-==Where do we stand?==
-
-===Primary statement of faith===
-
-Editors/Users are required to personally affirm the entirety of the primary statement of faith.<ref>Any exceptions or deviations must be approved by board members. We, the board, reserve the right to make changes to the statement to guard the truth.</ref> This statement contains basic things that we would expect any Christian to believe.
-
-===Secondary doctrinal statement===
-
-An editor is not required to agree with everything in the secondary doctrinal statement, but all of Theopedia's content is, in accordance with the writing guide, required to conform to it. This secondary statement affirms the [[Together for the Gospel Statement]], the [[The Cambridge Declaration of the Alliance of Confessing Evangelicals]], and the [[TULIP|Calvinistic doctrines of grace]].
-
-: ''See main page: [[Theopedia:Statement of faith|Statement of faith]]''
 
 ==The writing guide==
 
