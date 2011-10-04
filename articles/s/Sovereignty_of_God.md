@@ -9,22 +9,6 @@ things, but that He does so, always and without exception. In other
 words, God is not merely sovereign *de jure* (in principle), but
 sovereign *de facto* (in practice).
 
-
-
-**Multimedia**
-
--   Is God or Man Sovereign?
-    ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051027.m3u),
-    [Windows Media](http://broadcast.ligonier.org/playlists/rym20051027.asx)),
-    by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
-
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 God's sovereignty in salvation](#God.27s_sovereignty_in_salvation)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Quotes
 
 -   "What do we mean by [the sovereignty of God]? We mean the
