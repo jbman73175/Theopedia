@@ -70,12 +70,6 @@ To prevent vandalism and other problems, changes to articles on Theopedia are "s
 
 Editors are registered users who edit, add content, modify, and create new articles. 
 
-##Donate
-
-Theopedia is a large, high-traffic wiki, and costs about $70 a month to host. At the moment, we have not raised enough funds to host Theopedia, and are using the personal funds of the president of the Christian Web Foundation. As more and more people turn to the internet to look for answers to their religious questions, consider donating to our Theopedia fund:
-
-http://www.christianwebfoundation.org/support-theopedia
-
 ##See also
 
 * [[Theopedia:Invitation to Theopedia|Invitation to Theopedia]]
