@@ -22,6 +22,10 @@ Critical Consultant for the
 [New American Standard Bible](New_American_Standard_Bible "New American Standard Bible")
 Update (1995).
 
+##Multimedia
+
+-   [Is Jesus Prophesied In The Old Testament? (London Debate, 2008)](http://www.youtube.com/watch?v=-4auy06yow8)
+
 ## Education
 
 -   B.A. Bible (Major in Biology, minor in Greek), Grand Canyon
