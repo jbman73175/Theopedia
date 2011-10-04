@@ -14,7 +14,7 @@ German.
 These works are being digitized by Google Books. Not all volumes
 are currently available.
 
-### Series I: Philip Melanchthon, *Opera Quae Supersunt Omnia* - Volumes 1- 28
+### Series I: Philip Melanchthon, *Opera Quae Supersunt Omnia* - Volumes 1-28
 
 Volumes 1-15 edited by Karl Gottlieb Bretschneider. Volumes 16-28
 edited by Heinrich Ernst Bindseil.
