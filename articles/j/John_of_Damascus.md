@@ -66,7 +66,7 @@ iconography defended and set forth by John of Damascus is still the
 position of both Roman Catholic and Eastern Orthodox Churches
 today^[[1]](#note-0)^.
 
-## ther Notable beliefs
+## Other Notable beliefs
 
 John of Damascus was not just a hero to the Eastern Orthodox
 Church, but was respected in the West as well. When it came to the
