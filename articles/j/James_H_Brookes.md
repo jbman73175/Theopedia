@@ -1,6 +1,3 @@
-[![image](images/thumb/0/02/Brookes.jpg/180px-Brookes.jpg)](http://www.theopedia.com/File:Brookes.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Brookes.jpg "Enlarge")
-James Hall Brookes
 **James H. Brookes**, D. D. (1830-1897) was pastor of Walnut Street
 Presbyterian Church in St. Louis, Missouri. The Brookes Bible
 Institute of St. Louis was named in his honor.^[[1]](#note-0)^ Dr.
@@ -49,6 +46,3 @@ by the Presbytery of Miami, Ohio in 1854.^[[2]](#note-1)^
 
 -   [James H. Brookes: A Memoir](http://books.google.com/books?hl=en&id=Q_vpI3Ifr0sC&dq=james+h+brookes&printsec=frontcover&source=web&ots=chsfPHYvWK&sig=x5oW0A5g9OyO1jCKenXKlryL7Mw#PPA1,M1)
     by D. R. Williams (1897)
-
-
-
