@@ -11,7 +11,6 @@ The
 are sometimes categorized as either polemicists or apologists based
 on the thrust of their writings.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Examples
 
 The following are examples of practice polemics:
@@ -38,6 +37,4 @@ The following are examples of practice polemics:
 ## External links
 
 -   [The Lost Art of Polemics](http://www.frontlinemin.org/chapter3.asp)
-
-
-
+-   [Gospel Polemics](http://thegospelcoalition.org/blogs/tgc/2011/09/20/gospel-polemics-part-1/), by [Tim Keller](Tim Keller)
