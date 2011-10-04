@@ -19,10 +19,6 @@ answer.
 
 ##Multimedia
 
--   Can We Know the Truth?
-    ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051024.m3u),
-    [Windows Media](http://broadcast.ligonier.org/playlists/rym20051024.asx)),
-    by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
 -   [The Clark-Hoover Debate: A Debate between Gordon H.Clark and David Hoover on epistemology](http://www.trinitylectures.org/MP3/The_Clark-Hoover_Debate.mp3)
     (MP3)
 
