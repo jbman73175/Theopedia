@@ -372,7 +372,7 @@
 -	[Theodore Zahn](Theodore Zahn)
 -	[John Zizioulas](John Zizioulas)
 
-#See also
+##See also
 
 - [Pastors](Pastors)
 -	[Authors](Authors)
