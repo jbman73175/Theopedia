@@ -1,6 +1,4 @@
-[![image](images/1/13/Hanegraaff_Hank.png)](http://www.theopedia.com/File:Hanegraaff_Hank.png)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Hanegraaff_Hank.png "Enlarge")
-Hank Hanegraaf
+<img src="http://upload.wikimedia.org/wikipedia/commons/thumb/4/4c/Hank_Hanegraaff.jpg/220px-Hank_Hanegraaff.jpg" style="width:220px;height:165px;" />
 **Hendrik "Hank" Hanegraaff** (b. 1950), aka "The Bible Answer Man"
 is president of the Charlotte, NC-based
 [Christian Research Institute](Christian_Research_Institute "Christian Research Institute")
