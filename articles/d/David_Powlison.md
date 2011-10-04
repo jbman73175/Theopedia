@@ -15,10 +15,6 @@ Seminary and has taught across the U.S.A. and internationally,
 including Korea, India, Brazil, Europe, United Kingdom and Sri
 Lanka.[[1]](http://www.ccef.org/speakers)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 -   [Worldcat identity](http://www.worldcat.org/identities/lccn-n2002-89985)
-
-
-
