@@ -131,16 +131,6 @@
 [People in the Bible](People_in_the_Bible "People in the Bible") —
 [Theologians](Theologians "Theologians")—[More](Biographies "Biographies")
 
-## [Notable Theologians](Theologians "Theologians")
-
-[J. I. Packer](J._I._Packer "J. I. Packer") —
-[Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") —
-[John Frame](John_Frame "John Frame") —
-[Tertullian](Tertullian "Tertullian") —
-[John Piper](John_Piper "John Piper") —
-[R.C. Sproul](R.C._Sproul "R.C. Sproul") —
-[John Webster](John_Webster "John Webster")—[More](Theologians "Theologians")
-
 ## [Christian living](Christian_living "Christian living")
 
 [Fruit of the Spirit](Fruit_of_the_Spirit "Fruit of the Spirit") —
@@ -267,6 +257,16 @@
 [3 John](Third_Epistle_of_John "Third Epistle of John") –
 [Jude](Epistle_of_Jude "Epistle of Jude") –
 [Revelation](Book_of_Revelation "Book of Revelation")
+
+## [Notable Theologians](Theologians "Theologians")
+
+[J. I. Packer](J._I._Packer "J. I. Packer") —
+[Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer") —
+[John Frame](John_Frame "John Frame") —
+[Tertullian](Tertullian "Tertullian") —
+[John Piper](John_Piper "John Piper") —
+[R.C. Sproul](R.C._Sproul "R.C. Sproul") —
+[John Webster](John_Webster "John Webster")—[More](Theologians "Theologians")
 
 ## [Theopedia](About)
 [About](About) —
