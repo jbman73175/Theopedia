@@ -36,9 +36,9 @@ God's omnipotence does not mean that He is the author of every
 evil, but that God will ultimately triumph over evil.
 ^[[3]](#note-2)^
 
-**Multimedia**
+##Multimedia
 
-**Critical**
+###Critical
 
 -   The Whole Glory of God: Governing and Knowing All that Will
     Come to Pass:
@@ -50,42 +50,12 @@ evil, but that God will ultimately triumph over evil.
 -   [James White Cross Examines John Sanders](http://www.youtube.com/watch?v=A8gtjNhpr5I)
     (YouTube) - From a debate on open theism
 
-**Favorable**
+###Favorable
 
 -   [Even with free will, does God know our future decisons?](http://www.youtube.com/watch?v=vre5H_rW01o)
     (YouTube video), by Greg Boyd
 -   [A Theology of God's Openness](http://www.classical89.org/believingminds/audio/pinnock_paulsen.mp3),
     by Clark Pinnock & David Paulsen (MP3)
-
-## Contents
-
--   [1 Basic beliefs](#Basic_beliefs)
--   [2 Critique](#Critique)
-    -   [2.1 Libertarian free will](#Libertarian_free_will)
-    -   [2.2 God does not know the future exhaustively](#God_does_not_know_the_future_exhaustively)
-    -   [2.3 Implications for the doctrine of God](#Implications_for_the_doctrine_of_God)
-    -   [2.4 Implications for the Christian life](#Implications_for_the_Christian_life)
-    -   [2.5 Interpretive methods](#Interpretive_methods)
-
--   [3 Popular proponents](#Popular_proponents)
-    -   [3.1 Gregory Boyd](#Gregory_Boyd)
-    -   [3.2 John Sanders](#John_Sanders)
-    -   [3.3 Clark Pinnock](#Clark_Pinnock)
-    -   [3.4 Bob Enyart](#Bob_Enyart)
-
--   [4 Popular opponents](#Popular_opponents)
--   [5 Taking Open Theism seriously](#Taking_Open_Theism_seriously)
--   [6 See also](#See_also)
--   [7 References & Notes](#References_.26_Notes)
--   [8 Resources](#Resources)
-    -   [8.1 Pro](#Pro)
-    -   [8.2 Con](#Con)
-
--   [9 External links](#External_links)
-    -   [9.1 Favorable](#Favorable)
-    -   [9.2 Critical / Informational](#Critical_.2F_Informational)
-    -   [9.3 Online forums and blogs](#Online_forums_and_blogs)
-
 
 ## Basic beliefs
 
