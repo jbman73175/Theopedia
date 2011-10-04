@@ -1,5 +1,4 @@
 <img src="http://upload.wikimedia.org/wikipedia/en/thumb/1/1e/C.s.lewis3.JPG/250px-C.s.lewis3.JPG" style="width:250px;height:362px;float:right;" />
-
 C. S. Lewis Smoking
 **Clive Staples Lewis** (born
 [Date of birth::1898](http://www.theopedia.com/index.php?title=Date_of_birth::1898&action=edit&redlink=1 "Date of birth::1898 (page does not exist)")
