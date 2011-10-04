@@ -17,12 +17,11 @@ This philosophy is directly related to the so-called
 and secular ideas on "how to market the church to the world around
 us."
 
-**Multimedia**
+##Multimedia
 
 -   [Missional vs. Seeker Church](http://www.youtube.com/watch?v=CvFbzpAwHdw),
     by [Tim Keller](Tim_Keller "Tim Keller") (YouTube)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 ### Critical
