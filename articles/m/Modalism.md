@@ -29,7 +29,6 @@ is. The correct teaching of the Trinity is one God in three eternal
 coexistent persons: The Father, the Son, and the Holy Spirit."
 [[1]](http://www.carm.org/heresy/modalism.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## See also
 
 -   [Trinity](Trinity "Trinity")
@@ -40,6 +39,3 @@ coexistent persons: The Father, the Son, and the Holy Spirit."
     (basictheology.com)
 -   [Modalism in Early Mormonism](http://mormonwiki.org/Modalism)
     (MormonWiki.org)
-
-
-
