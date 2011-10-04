@@ -7,12 +7,11 @@ gospel message is abiding and universal, the cultural contexts in
 which [God](God "God") revealed it and in which it is delivered are
 distinct and different.
 
-**Multimedia**
+##Multimedia
 
 -   [Cultural Contextualization; Theological Systems](http://biblicaltraining.org/audio/TH503/theology_1_03001.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware") (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Resources
 
 -   [Kevin Vanhoozer](Kevin_Vanhoozer "Kevin Vanhoozer"), Charles
