@@ -7,9 +7,6 @@ Network is to plant churches that effectively reach the emerging
 generation. To accomplish this, young leaders need to be equipped
 with a solid theological understanding of the gospel.
 
-
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Examples of A29 churches
 
 -   [Mars Hill Church](http://www.marshillchurch.org) (Seattle, WA)
