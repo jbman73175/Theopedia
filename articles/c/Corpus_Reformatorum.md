@@ -1,13 +1,3 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/index.php?title=Talk:Corpus_Reformatorum&action=edit&redlink=1 "Talk:Corpus Reformatorum (page does not exist)")
-or
-[replace this tag](index.php?title=Corpus_Reformatorum&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 The **Corpus Reformatorum** (**CR**) is a [Latin](Latin "Latin")
 title given to a multi-volume collection of
 [reformation](Reformation "Reformation") writings. The 101 volumes
@@ -19,14 +9,6 @@ contains reprints of the collected works of
 (1484-1531). The texts are written in either Latin, French or
 German.
 
-## Contents
-
--   [1 The Corpus Reformatorum online](#The_Corpus_Reformatorum_online)
-    -   [1.1 Series I: Philip Melanchthon, Opera Quae Supersunt Omnia - Volumes 1- 28](#Series_I:_Philip_Melanchthon.2C_Opera_Quae_Supersunt_Omnia_-_Volumes_1-_28)
-    -   [1.2 Series II: Ioannis Calvini, Opera Quae Supersunt Omnia – Volumes 29- 87](#Series_II:_Ioannis_Calvini.2C_Opera_Quae_Supersunt_Omnia_.E2.80.93_Volumes_29-_87)
-    -   [1.3 Series III: Huldreich Zwinglis, Sämtliche Werke - Volumes 88-101](#Series_III:_Huldreich_Zwinglis.2C_S.C3.A4mtliche_Werke_-_Volumes_88-101)
-
-
 ## The Corpus Reformatorum online
 
 These works are being digitized by Google Books. Not all volumes
@@ -37,58 +19,33 @@ are currently available.
 Volumes 1-15 edited by Karl Gottlieb Bretschneider. Volumes 16-28
 edited by Heinrich Ernst Bindseil.
 
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 1 - 1834](http://books.google.com/books?vid=0hk4OcAH9bSs4-rvJI8&id=7A4RAAAAIAAJ&pg=PP12&dq=bretschneider+%22reformatorum%22)
 -   [CR 2 - 1835](http://books.google.com/books?vid=0_4IwwuMBvqRsVbzJGH&id=bRARAAAAIAAJ&pg=RA3-PA15&lpg=RA3-PA15&dq=%22corpus+reformatorum%22#PPP14,M1)
 -   [CR 4 - 1837](http://books.google.com/books?vid=0Nk01EG-OTPT95Zn_Y2&id=QQ8RAAAAIAAJ&pg=PA1&lpg=PA1&dq=%22corpus+reformatorum%22#PPP14,M1)
 -   [CR 5 - 1838](http://books.google.com/books?vid=0phxEVDHHZeuKbMv1SN&id=mBARAAAAIAAJ&pg=PA1&lpg=PA1&dq=%22corpus+reformatorum%22#PPP14,M1)
-
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 6 - 1839](http://books.google.com/books?vid=0c_ksWNhIY2VPEZrXRS&id=WBMRAAAAIAAJ&pg=RA1-PA1&lpg=RA1-PA1&dq=%22corpus+reformatorum%22#PPP14,M1)
 -   [CR 7 - 1840](http://books.google.com/books?vid=0OYLDR1NTcDDtMN2Jpa&id=NBERAAAAIAAJ&pg=RA3-PA1&lpg=RA3-PA1&dq=%22corpus+reformatorum%22#PPP24,M1)
 -   [CR 8 - 1841](http://books.google.com/books?vid=0K_bhJ90CZB99tyEqVT&id=VBMRAAAAIAAJ&pg=PA1&lpg=PA1&dq=corpus+reformatorum#PPP9,M1)
 -   [CR 9 - 1842](http://books.google.com/books?vid=0jOhX7yggJh7pVTBXW-&id=qBERAAAAIAAJ&pg=RA4-PA1&lpg=RA4-PA1&dq=%22corpus+reformatorum%22#PRA1-PP12,M1)
 -   [CR 10 - 1842](http://books.google.com/books?vid=0_QKqvgVR5r2vemmve2&id=GBERAAAAIAAJ&pg=RA2-PA1&lpg=RA2-PA1&dq=%22corpus+reformatorum%22#PPP14,M1)
-
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 11 - 1843](http://books.google.com/books?vid=0F5k3gHLKHbo8_AlZZR&id=-BARAAAAIAAJ&pg=RA1-PA1&lpg=RA1-PA1&dq=%22corpus+reformatorum%22#PRA1-PA1,M1)
 -   [CR 12 - 1844](http://books.google.com/books?vid=0WtquX6D_LovEwC_1He&id=VRERAAAAIAAJ&pg=RA2-PA11&lpg=RA2-PA11&dq=%22corpus+reformatorum%22#PRA1-PP10,M1)
 -   [CR 13 - 1846](http://books.google.com/books?vid=09i71_9U-wewWFWckaI&id=gBERAAAAIAAJ&pg=RA2-PA1&lpg=RA2-PA1&dq=%22corpus+reformatorum%22#PPP12,M1)
 -   [CR 14 - 1847](http://books.google.com/books?vid=0vTwaaLMNCIL3513ROA&id=GxMRAAAAIAAJ&pg=RA3-PA588&lpg=RA3-PA588&dq=%22corpus+reformatorum%22#PRA1-PA1,M1)
-
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 15 - 1848](http://books.google.com/books?vid=09KZRbi_h8m9Pqvf9PW&id=LRMRAAAAIAAJ&pg=RA2-PA1&lpg=RA2-PA1&dq=%22corpus+reformatorum%22#PPA2,M1)
 -   [CR 16 - 1850](http://books.google.com/books?vid=0QZ9-Mk3eUqUoB7hCDf&id=Wf0QAAAAIAAJ&pg=RA2-PA1&lpg=RA2-PA1&dq=%22corpus+reformatorum%22#PRA1-PP12,M1)
 -   [CR 17 - 1851](http://books.google.com/books?vid=0sjFCdmbNbprqeKifAc&id=zRARAAAAIAAJ&pg=RA4-PA14&lpg=RA4-PA14&dq=%22corpus+reformatorum%22#PRA2-PA1,M1)
 -   [CR 18 - 1852](http://books.google.com/books?vid=0ALs4rNxohYj6msGlIo&id=ExIRAAAAIAAJ&pg=RA1-PA2&lpg=RA1-PA2&dq=%22corpus+reformatorum%22)
-
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 19 - 1853](http://books.google.com/books?vid=OCLC00224660&id=1UUMAAAAIAAJ&pg=RA3-PA8-IA1&lpg=RA3-PA8-IA1&dq=%22Heinrich+Ernst+Bindseil,%22#PPP10,M1)
 -   [CR 20 - 1854](http://books.google.com/books?vid=0wV_87lVx-EiQUSK65J&id=fRERAAAAIAAJ&pg=RA8-PA747&lpg=RA8-PA747&dq=%22corpus+reformatorum%22#PPP14,M1)
 -   [CR 21 - 1854](http://books.google.com/books?vid=0jGin231NHUq-i_VOcy&id=_BERAAAAIAAJ&pg=RA3-PA300&lpg=RA3-PA300&dq=%22corpus+reformatorum%22#PPA1,M1)
 -   [CR 22 - 1855](http://books.google.com/books?vid=0IawFo0f69SQil4Pnde&id=cxIRAAAAIAAJ&pg=RA7-PA710&lpg=RA7-PA710&dq=%22corpus+reformatorum%22#PRA1-PA1,M1)
 -   [CR 23 - 1855](http://books.google.com/books?vid=0NNqRErciLnyOY9q6OF&id=SxIRAAAAIAAJ&pg=RA17-PA737&lpg=RA17-PA737&dq=%22corpus+reformatorum%22#PPP18,M1)
-
-
-
-style="padding-left:{{{gap}}};" }}|
 -   [CR 24 - 1856](http://books.google.com/books?vid=0jjpxx2oF8ePfQepuum&id=0xIRAAAAIAAJ&pg=RA2-PR25&lpg=RA2-PR25&dq=%22corpus+reformatorum%22#PPP18,M1)
 -   [CR 25 - 1856](http://books.google.com/books?vid=0cwi72V1r5Jh1_hD3Lj&id=shERAAAAIAAJ&pg=RA2-PA1&lpg=RA2-PA1&dq=%22corpus+reformatorum%22)
 -   [CR 26 - 1858](http://books.google.com/books?vid=0XdOoaLVLEJUizZi3aK&id=zxERAAAAIAAJ&pg=RA4-PR18&lpg=RA4-PR18&dq=%22corpus+reformatorum%22#PRA2-PP14,M1)
 -   [CR 27 - 1859](http://books.google.com/books?vid=0nbn5WR3tCyGwNEws-A&id=lBIRAAAAIAAJ&pg=RA3-PR13&lpg=RA3-PR13&dq=%22corpus+reformatorum%22#PRA1-PA1,M1)
 -   [CR 28 - 1860](http://books.google.com/books?id=ZiYBAAAAQAAJ)
-
-
 
 ### Series II: Ioannis Calvini, *Opera Quae Supersunt Omnia* – Volumes 29- 87
 
@@ -96,9 +53,6 @@ Edited by Guilielmus Baum, Eduardus Cunitz, Eduardus Reuss.
 
 -   Opp. = *Opera Quae Supersunt Omnia.*
 
-
-
-width="33.33%" align="left" valign="top"
 -   CR 29; Opp,
 -   [CR 30; Opp. 2 - 1864](http://books.google.com/books?vid=OCLC04938920&id=jSkMAAAAIAAJ&pg=RA6-PA918&lpg=RA6-PA918&dq=cyri+episcopi#PPP5,M1)
 -   CR 31; Opp.
@@ -120,10 +74,6 @@ width="33.33%" align="left" valign="top"
 -   CR 47; Opp.
 -   CR 48; Opp.
 -   [CR 49; Opp. 21 - 1879](http://books.google.com/books?vid=OCLC04938920&id=SSkMAAAAIAAJ&pg=RA3-PA152&lpg=RA3-PA152&dq=irenaei+opera#PPP5,M1)
-
-
-
-width="33.33%" align="left" valign="top"
 -   [CR 50; Opp. 22 - 1880](http://books.google.com/books?id=SSkMAAAAIAAJ&pg=PA822&dq=%22volumen+L%22+%22ioannis+calvini%22)
 -   CR 51; Opp.
 -   CR 52; Opp.
@@ -145,10 +95,6 @@ width="33.33%" align="left" valign="top"
 -   CR 68; Opp.
 -   CR 69; Opp.
 -   CR 70; Opp.
-
-
-
-width="33.33%" align="left" valign="top"
 -   [CR 71; Opp.43 – 1890](http://books.google.com/books?id=tSoMAAAAIAAJ&pg=PA4&dq=%22volumen+XLIII%22+%22ioannis+calvini%22)
 -   [CR 72; Opp.44 -1890](http://books.google.com/books?id=tSoMAAAAIAAJ&pg=PA592&dq=%22corpus+reformatorum%22+%22volumen+XLIV)
 -   [CR 73; Opp.45 – 1891](http://books.google.com/books?id=KC4MAAAAIAAJ&pg=PP5&dq=%22volumen+XL%22+%22ioannis+calvini%22)
@@ -167,20 +113,7 @@ width="33.33%" align="left" valign="top"
 -   CR 86; Opp.
 -   CR 87; Opp.
 
-
-
 ### Series III: Huldreich Zwinglis, *Sämtliche Werke* - Volumes 88-101
 
-
-
-style="padding-left:{{{gap}}};" }}|
 -   CR 88; Werke 1 – 1904
 -   [CR 89; Werke 2 – 1907](http://books.google.com/books?id=DSK-9IOx-1QC&pg=PA400-IA3&dq=zwingli++reformatorum&lr=&as_brr=1)
-
-
-
-style="padding-left:{{{gap}}};" }}|
-
-
-
-
