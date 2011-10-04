@@ -21,7 +21,7 @@ someday be saved from the presence of sin when we meet Christ face
 to face in glory. This idea is presented below in terms of initial,
 progressive, and final salvation.
 
-**Multimedia**
+##Multimedia
 
 -   The Doctrine of Salvation -
     [Part 1](http://www.biblicaltraining.org/audio/TH504/theology_2_15_QT-high.mov),
@@ -33,7 +33,7 @@ progressive, and final salvation.
 -   [Salvation, What It Is and Why It Is So Important](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/029_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
 
-**Arminian and Molinist perspective**
+###Arminian and Molinist perspective
 
 -   [The Doctrine of Salvation - Part 1](http://www.rfmedia.org/RF_audio_video/Defender_podcast/20070506TheDoctrineofSalvationPart1.mp3),
     [Part 2](http://www.rfmedia.org/RF_audio_video/Defender_podcast/20070513TheDoctrineofSalvationPart2.mp3),
@@ -44,31 +44,6 @@ progressive, and final salvation.
     [Part 7](http://www.rfmedia.org/RF_audio_video/Defender_podcast/20070617TheDoctrineofSalvationPart7.mp3);
     by [William Lane Craig](William_Lane_Craig "William Lane Craig")
 
-## Contents
-
--   [1 Man's condition](#Man.27s_condition)
--   [2 Coming judgment](#Coming_judgment)
--   [3 Initial salvation](#Initial_salvation)
--   [4 Progressive salvation](#Progressive_salvation)
--   [5 Final salvation](#Final_salvation)
--   [6 Results of salvation](#Results_of_salvation)
--   [7 Other areas](#Other_areas)
--   [8 Notes](#Notes)
--   [9 Resources](#Resources)
--   [10 See also](#See_also)
--   [11 External links](#External_links)
-
-
-
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Salvation "Talk:Salvation")
-or [replace this tag](index.php?title=Salvation&action=edit) with a
-more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 ## Man's condition
 
 All have sinned and fall short of the glory of God (Rom 3:23).
@@ -85,6 +60,7 @@ having bodies "of death" in need of deliverance (Rom 7:24),
 and condemnation (Rom 6:21, 23; 8:1).
 
 *See also: [Sin](Sin "Sin"), [Total depravity](Total_depravity "Total depravity"), [Original sin](Original_sin "Original sin"), [Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin")*
+
 ## Coming judgment
 
 "It is appointed for man to die once, and after that comes
@@ -100,6 +76,7 @@ eternal destruction, away from the presence of the Lord and from
 the glory of his might..." (2 Thessalonians 1:9)
 
 *See also: [Justice of God](Justice_of_God "Justice of God"), [Wrath of God](Wrath_of_God "Wrath of God"), and [Hell](Hell "Hell")*
+
 ## Initial salvation
 
 Initial salvation refers to the event of a person's
@@ -119,6 +96,7 @@ his grace we might become heirs according to the hope of
 [eternal life](Eternal_life "Eternal life")." (Titus 3:3-7)
 
 *See also: [Irresistible grace](Irresistible_grace "Irresistible grace"), [Regeneration](Regeneration "Regeneration"), [Justification](Justification "Justification"), [Prevenient grace](Prevenient_grace "Prevenient grace"), [Union with Christ](Union_with_Christ "Union with Christ"), and [Adoption](Adoption "Adoption")*
+
 ## Progressive salvation
 
 Progressive salvation refers to the journey of a believer between
@@ -135,6 +113,7 @@ whom you were called into the fellowship of his Son, Jesus Christ
 our Lord." (1 Corinthians 1:7-9)
 
 *See also: [Sanctification](Sanctification "Sanctification"), [Assurance of salvation](Assurance_of_salvation "Assurance of salvation"), [Means of grace](Means_of_grace "Means of grace"), [Gifts of the Spirit](Gifts_of_the_Spirit "Gifts of the Spirit"), and [Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints")*
+
 ## Final salvation
 
 Final salvation refers to the event of God saving his people at the
@@ -144,10 +123,11 @@ steadfastness of hope in the Lord Jesus Christ, and accepted on the
 ground of their union with Christ, the righteous substitute.
 
 *See also: [Final judgment](Final_judgment "Final judgment"), [Justification](Justification "Justification")*
+
 ## Results of salvation
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 *See also: [Adoption](Adoption "Adoption"), [Sanctification](Sanctification "Sanctification"), [Resurrection](Resurrection "Resurrection"), [Heaven](Heaven "Heaven"), [Beatific vision](index.php?title=Beatific_vision&action=edit&redlink=1 "Beatific vision (page does not exist)"), and [Glorification](Glorification "Glorification")*
+
 ## Other areas
 
 Another aspect of salvation is the biblical doctrine of
@@ -187,6 +167,3 @@ and by Jesus Christ. The Bible discusses election in 3 ways:
     by Greg Herrick (bible.org)
 -   [Soteriology - The Study of Salvation](http://www.svchapel.org/Assets/Docs/TheologyLessons/soteriology.pdf)
     by [Gary Gilley](Gary_Gilley "Gary Gilley")
-
-
-
