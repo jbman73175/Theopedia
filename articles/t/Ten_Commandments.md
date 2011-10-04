@@ -5,21 +5,13 @@ the ancient people of [Israel](Israel "Israel") through
 commandments are listed in Exodus 20:3-17 and again in Deuteronomy
 5:7-21.
 
-**Multimedia**
+##Multimedia
 
 -   [List of Messages on Some of the Commandments](http://www.rockharbor.org/resources/messages/index.php?series=x+::+jesus+and+the+commandments),
     from Rock Harbor Church in Costa Mesa, CA
 -   [The Ten Words](http://www.falkirkfreechurch.com/sermons#torah)
     British sermons on the Ten Commandments
-
-## Contents
-
--   [1 God's authority](#God.27s_authority)
--   [2 The commandments](#The_commandments)
-    -   [2.1 Protestant](#Protestant)
-    -   [2.2 Roman Catholic](#Roman_Catholic)
-    -   [2.3 Jewish](#Jewish)
-
+-   [Are Christians under the 10 Commandments?](http://www.youtube.com/watch?v=xR6l87FiR_8) (YouTube), by John Piper
 
 # God's authority
 
