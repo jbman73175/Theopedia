@@ -6,7 +6,6 @@ fruits as Jesus said that one should judge a prophet by his fruits
 ([Matthew 7](Gospel_of_Matthew "Gospel of Matthew")), and by
 checking whether his predictions come true.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Scripture
 
 **Deuteronomy 13:1-5**   
@@ -37,6 +36,3 @@ be afraid of him."
 
 -   [False prophet](index.php?title=False_prophet&action=edit&redlink=1 "False prophet (page does not exist)")
 -   [Prophecy](Prophecy "Prophecy")
-
-
-
