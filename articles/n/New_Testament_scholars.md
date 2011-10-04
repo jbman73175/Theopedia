@@ -1,8 +1,8 @@
 
-==A==
+##A
 [Clinton E. Arnold](Clinton E. Arnold)
 
-==B==
+##B
 [C. K. Barrett](C. K. Barrett)
 [Richard Bauckham](Richard Bauckham)
 [Gregory K. Beale](Gregory K. Beale)
@@ -11,25 +11,25 @@
 [Rudolf Karl Bultmann](Rudolf Karl Bultmann)
 [Gary M. Burge](Gary M. Burge)
 
-==C==
+##C
 [D. A. Carson](D. A. Carson)
 
-==D==
+##D
 [C. H. Dodd](C. H. Dodd)
 [James D. G. Dunn](James D. G. Dunn)
 
-==E==
+##E
 [Craig A. Evans](Craig A. Evans)
 
-==F==
+##F
 [Gordon D. Fee](Gordon D. Fee)
 
-==G==
+##G
 [Simon Gathercole](Simon Gathercole)
 [Joel B. Green](Joel B. Green)
 [Robert Gundry](Robert Gundry)
 
-==H==
+##H
 [Martin Hengel](Martin Hengel)
 [Larry Hurtado](Larry Hurtado)
 
