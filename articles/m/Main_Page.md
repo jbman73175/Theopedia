@@ -197,7 +197,7 @@
 [Final judgment](Final_judgment "Final judgment") —
 [Resurrection](Resurrection "Resurrection")
 
-## [Old Testament](Old_Testament "Old Testament") <span class="label" style="margin-left: 12px;">Needs contributions</span>
+## [Old Testament](Old_Testament "Old Testament") <span class="label" style="vertical-align: top;margin-left: 12px;">Needs contributions</span>
 
 [Genesis](Genesis "Genesis") – [Exodus](Exodus "Exodus") –
 [Leviticus](Leviticus "Leviticus") –
@@ -238,7 +238,7 @@
 [Zechariah](Book_of_Zechariah "Book of Zechariah") –
 [Malachi](Book_of_Malachi "Book of Malachi")
 
-## [New Testament](New_Testament "New Testament") <span class="label" style="margin-left: 12px;">Needs contributions</span>
+## [New Testament](New_Testament "New Testament") <span class="label" style="vertical-align: top;margin-left: 12px;">Needs contributions</span>
 
 [Matthew](Gospel_of_Matthew "Gospel of Matthew") –
 [Mark](Gospel_of_Mark "Gospel of Mark") –
