@@ -10,27 +10,6 @@ limit of these resources lay in their time of publication. That is,
 each dictionary provides information and tools which often
 represent concerns and movements of its time.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 Biblical studies/theology](#Biblical_studies.2Ftheology)
-    -   [1.1 Old Testament studies](#Old_Testament_studies)
-        -   [1.1.1 IVP Dictionaries](#IVP_Dictionaries)
-
-    -   [1.2 New Testament Studies](#New_Testament_Studies)
-        -   [1.2.1 IVP Dictionaries](#IVP_Dictionaries_2)
-
-
--   [2 Theology](#Theology)
-    -   [2.1 Historical theology](#Historical_theology)
-    -   [2.2 Practical theology](#Practical_theology)
-    -   [2.3 Mission theology](#Mission_theology)
-    -   [2.4 Global theology](#Global_theology)
-
--   [3 Biblical interpretation](#Biblical_interpretation)
--   [4 Biographies](#Biographies)
--   [5 See also](#See_also)
-
 ## Biblical studies/theology
 
 -   Alexander, Rosner, Goldsworthy and Carson, eds.
