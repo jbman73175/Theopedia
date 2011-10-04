@@ -1,22 +1,5 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/index.php?title=Talk:Francis_of_Assisi&action=edit&redlink=1 "Talk:Francis of Assisi (page does not exist)")
-or
-[replace this tag](index.php?title=Francis_of_Assisi&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 **Francis of Assisi** (1181 - October 3, 1226) was a Christian
 theologian and founded the Franciscan Order or "Friars Minor".
-
-## Contents
-
--   [1 Biography](#Biography)
--   [2 Resources](#Resources)
--   [3 Selected publications](#Selected_publications)
--   [4 External links](#External_links)
 
 ## Biography
 
