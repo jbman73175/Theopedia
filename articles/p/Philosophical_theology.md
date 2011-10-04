@@ -17,22 +17,11 @@ understand Christian claims. The second appeals to philosophy to
 understand theological convictions derived from
 [divine revelation](Revelation_of_God "Revelation of God").
 
-**Multimedia**
+##Multimedia
 
 -   [Christianity and Philosophy: Friends or Enemies?](http://www.veritas.org/mediafiles/A96UNCA01.mp3),
     (MP3) by Ron Nash
 
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 Notes](#Notes)
--   [3 Further reading](#Further_reading)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
-
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Quotes
 
 "Everyone needs to know some philosophy in order to understand the
