@@ -30,7 +30,7 @@ reason, when referring to the creation account of Genesis 1, the
 discussion in fact has in view the entire passage of Genesis
 1:1-2:3 or 4a.
 
-**Multimedia**
+##Multimedia
 
 #### Young Earth creationism
 
@@ -59,46 +59,6 @@ discussion in fact has in view the entire passage of Genesis
     by Michael Heiser
 -   [Creation, Design, Evolution, and Human Origins](http://www.youtube.com/watch?v=EAxFlTm5p9k)
     (YouTube), by Deborah & Loren Haarsma
-
-## Contents
-
--   [1 Young Earth creationism](#Young_Earth_creationism)
--   [2 Day-age view](#Day-age_view)
--   [3 Framework view](#Framework_view)
--   [4 ANE focus](#ANE_focus)
--   [5 Monotheism of the account](#Monotheism_of_the_account)
--   [6 General approaches to the text](#General_approaches_to_the_text)
-    -   [6.1 Scientifically accurate theological text](#Scientifically_accurate_theological_text)
-        -   [6.1.1 Actual 24-hour day view](#Actual_24-hour_day_view)
-        -   [6.1.2 Day-age view](#Day-age_view_2)
-
-    -   [6.2 Non-scientific figurative theological text](#Non-scientific_figurative_theological_text)
-    -   [6.3 Cosmogonical approach](#Cosmogonical_approach)
-
--   [7 Old Testament view of the cosmos](#Old_Testament_view_of_the_cosmos)
-    -   [7.1 Solid dome or atmospheric expanse?](#Solid_dome_or_atmospheric_expanse.3F)
-    -   [7.2 "Earth" and "seas"](#.22Earth.22_and_.22seas.22)
-
--   [8 Other textual issues](#Other_textual_issues)
-    -   [8.1 yom (day)](#yom_.28day.29)
-    -   [8.2 Relationship between two accounts](#Relationship_between_two_accounts)
-    -   [8.3 Cosmic temple creationism motif](#Cosmic_temple_creationism_motif)
-    -   [8.4 Gap implied between verses one and two?](#Gap_implied_between_verses_one_and_two.3F)
-    -   [8.5 Ex nihilo implied?](#Ex_nihilo_implied.3F)
-
--   [9 Notes](#Notes)
--   [10 Resources](#Resources)
-    -   [10.1 Consecutive 24-hour day](#Consecutive_24-hour_day)
-    -   [10.2 Framework interpretation](#Framework_interpretation)
-    -   [10.3 Concordist](#Concordist)
-
--   [11 See also](#See_also)
--   [12 External links](#External_links)
-    -   [12.1 Framework view](#Framework_view_2)
-    -   [12.2 24-hour six-day creationists](#24-hour_six-day_creationists)
-    -   [12.3 ANE focus](#ANE_focus_2)
-    -   [12.4 Other](#Other)
-
 
 ## Monotheism of the account
 
