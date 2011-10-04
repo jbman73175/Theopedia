@@ -1,6 +1,3 @@
-[![image](images/c/c7/Wallace.jpg)](http://www.theopedia.com/File:Wallace.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Wallace.jpg "Enlarge")
-Daniel B. Wallace
 **Daniel B. Wallace** is a
 [New Testament](New_Testament "New Testament") scholar who
 specializes in textual criticism. He is currently a professor of
