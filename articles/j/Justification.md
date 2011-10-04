@@ -6,7 +6,7 @@
 grace through faith in [Jesus Christ](Jesus_Christ "Jesus Christ")
 apart from all works and merit of the sinner (cf. Rom 1:18-3:28).
 
-**Multimedia**
+##Multimedia
 
 -   [Justification by Faith](http://www.sbts.edu/MP3/Speakers/20000216seifrid.mp3),
     by Mark Seifrid (SBTS)
@@ -35,22 +35,6 @@ apart from all works and merit of the sinner (cf. Rom 1:18-3:28).
     (MP3), Mike Reeves with [John Piper](John_Piper "John Piper")
 -   [On Justification by Faith Alone and Future Justification](http://www.youtube.com/watch?v=u5XPu8_gqj4&feature=related)
     (YouTube), by [Douglas Wilson](Douglas_Wilson "Douglas Wilson")
-
-## Contents
-
--   [1 The act of justification](#The_act_of_justification)
-    -   [1.1 One-time act](#One-time_act)
-    -   [1.2 Double imputation](#Double_imputation)
-    -   [1.3 Forgiveness and adoption](#Forgiveness_and_adoption)
-
--   [2 The instrumental cause of justification: Faith](#The_instrumental_cause_of_justification:_Faith)
--   [3 The πιστεως Χριστου debate](#The_.CF.80.CE.B9.CF.83.CF.84.CE.B5.CF.89.CF.82_.CE.A7.CF.81.CE.B9.CF.83.CF.84.CE.BF.CF.85_debate)
--   [4 Helpful quotes](#Helpful_quotes)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
-
 
 ## The act of justification
 
