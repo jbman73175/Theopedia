@@ -7,7 +7,6 @@ are also known as signs (especially in
 [John](Gospel_of_John "Gospel of John"); cf. John 2:1-11) and
 mighty works (John 10:25-28).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## See also
 
 -   [Miracles](Miracles "Miracles")
