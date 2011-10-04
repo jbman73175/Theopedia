@@ -8,7 +8,7 @@ is to present the major themes (i.e.
 organized and ordered overview that remains faithful to the
 biblical witness.
 
-**Multimedia**
+##Multimedia
 
 -   [Lessons in Christian Essentials](http://www.christianessentialssbc.com/templates/System/details.asp?id=31463&PID=337073)
     (MP3s), by [Wayne Grudem](Wayne_Grudem "Wayne Grudem")
@@ -25,22 +25,6 @@ biblical witness.
     -   [Systematic Theology I](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1140737313.01140737318)
     -   [Systematic Theology II](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155645894.01155645899)
     -   [Systematic Theology III](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155760573.01155760578)
-
-
-## Contents
-
--   [1 General areas of systematic theology](#General_areas_of_systematic_theology)
--   [2 History](#History)
--   [3 Interpreting the Bible](#Interpreting_the_Bible)
--   [4 Resources](#Resources)
-    -   [4.1 Intermediate and advanced systematic theologies](#Intermediate_and_advanced_systematic_theologies)
-    -   [4.2 Other sources](#Other_sources)
-
--   [5 Notes](#Notes)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Online systematic theologies](#Online_systematic_theologies)
-
 
 Systematic theology integrates
 [biblical](Biblical_theology "Biblical theology"),
