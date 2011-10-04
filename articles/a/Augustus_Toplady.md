@@ -1,5 +1,4 @@
-[![image](images/thumb/0/0d/Toplady.jpg/120px-Toplady.jpg)](http://www.theopedia.com/File:Toplady.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Toplady.jpg "Enlarge")
+<img src="http://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/AugustusMToplady.jpg/220px-AugustusMToplady.jpg" style="width:220px;height:320px;" />
 Augustus Toplady
 **Augustus Montague Toplady** (1740–1778),
 [Anglican](Anglican "Anglican") divine, was born at Farnham,
@@ -30,14 +29,6 @@ and Wesley repeated his comments in *The Consequence Proved*
 From 1775 to 1778, having obtained leave of non-residence at
 Broadhembury, he lived in London, and ministered at a Calvinist
 church in Orange Street.
-
-## Contents
-
--   [1 References](#References)
--   [2 Resources](#Resources)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
 
 ## References
 
