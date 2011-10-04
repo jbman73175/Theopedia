@@ -8,7 +8,7 @@
 
 ##Under the following conditions:
 
-- **Attribution** — You must attribute the work to Theopedia.com (but not in any way that suggests that they endorse you or your use of the work).
+- **Attribution** — You must attribute the work to Theopedia.com (but not in any way that suggests that Theopedia endorses you or your use of the work).
 
 ##Legal code
 
