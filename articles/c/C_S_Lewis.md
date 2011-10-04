@@ -1,8 +1,5 @@
-[![image](images/thumb/7/7a/CSLewis.jpg/180px-CSLewis.jpg)](http://www.theopedia.com/File:CSLewis.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:CSLewis.jpg "Enlarge")
-C. S. Lewis
-[![image](images/thumb/f/f6/Cslsmoking2.png/180px-Cslsmoking2.png)](http://www.theopedia.com/File:Cslsmoking2.png)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Cslsmoking2.png "Enlarge")
+<img src="http://upload.wikimedia.org/wikipedia/en/thumb/1/1e/C.s.lewis3.JPG/250px-C.s.lewis3.JPG" style="width:250px;height:362px;float:right;" />
+
 C. S. Lewis Smoking
 **Clive Staples Lewis** (born
 [Date of birth::1898](http://www.theopedia.com/index.php?title=Date_of_birth::1898&action=edit&redlink=1 "Date of birth::1898 (page does not exist)")
