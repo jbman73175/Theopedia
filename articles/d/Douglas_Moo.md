@@ -1,7 +1,3 @@
-[![image](images/a/aa/Moo.jpg)](http://www.theopedia.com/File:Moo.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Moo.jpg "Enlarge")
-Douglas J. Moo
-  
 **Douglas J. Moo** (b. 1950) is a Christian theologian and is
 Kenneth T. Wessner Professor of
 [New Testament](New_Testament "New Testament") at Wheaton College
@@ -20,21 +16,12 @@ He has published several theological works and commentaries on the
 *Colossians and Philemon* (PNTC). He is currently writing
 commentaries on Galatians and Hebrews.
 
-**Multimedia**
+##Multimedia
 
 -   [Nature in the New Creation: New Testament Eschatology and the Environment](http://www.wheaton.edu/CACE/audiodownloads/07SCONMoo.mp3)
     (MP3)
 -   [Moo on Colossians](http://www.sermonindex.net/modules/mydownloads/viewcat.php?cid=589)
     (4 lectures)
-
-## Contents
-
--   [1 N. T. Wright on Moo](#N._T._Wright_on_Moo)
--   [2 Selected publications](#Selected_publications)
--   [3 Notes](#Notes)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
 
 ## N. T. Wright on Moo
 
