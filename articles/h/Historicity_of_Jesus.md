@@ -12,29 +12,12 @@ Necessarily related to this is the
 If the NT is not reliable, then it cannot be a dependable source
 for the study of Jesus.
 
-**Multimedia**
+##Multimedia
 
 -   [The Jesus That Never Existed](http://www.logos.com/media/lecture/hwaynehouse_lecture.mp3)
     (MP3), by H. Wayne House
 -   [The Case For Christ](http://vimeo.com/20330908), by Lee
     Strobel
-
-## Contents
-
--   [1 The Jesus myth](#The_Jesus_myth)
-    -   [1.1 Arguments for the Jesus myth](#Arguments_for_the_Jesus_myth)
-    -   [1.2 Criticism](#Criticism)
-
--   [2 Resources](#Resources)
-    -   [2.1 Christian](#Christian)
-    -   [2.2 Non-Christian](#Non-Christian)
-
--   [3 Quotes](#Quotes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-    -   [5.1 Christian](#Christian_2)
-    -   [5.2 Non-Christian](#Non-Christian_2)
-
 
 ## The Jesus myth
 
