@@ -6,7 +6,7 @@ Joshua Harris
 Maryland, best-selling author of four books, and serves on
 [The Council on Biblical Manhood and Womanhood.](http://www.cbmw.org/)
 
-**Multimedia**
+##Multimedia
 
 -   Maintaining Purity in an Impure World - Interview with
     [Family Life Today](http://www.familylife.com/)
@@ -21,15 +21,6 @@ Maryland, best-selling author of four books, and serves on
     (MP3 from "The Albert Mohler Program")
 -   [The Truth: Rediscovering Humble Orthodoxy](http://www.newattitude.org/beta/media/joshharris.php)
     (video)
-
-## Contents
-
--   [1 Biography](#Biography)
--   [2 Books](#Books)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
-
 
 ## Biography
 
