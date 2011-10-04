@@ -1,6 +1,3 @@
-[![image](images/thumb/4/4b/Graece.jpg/180px-Graece.jpg)](http://www.theopedia.com/File:Graece.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Graece.jpg "Enlarge")
-Novum Testamentum Graece
 **Nestle-Aland** is a common reference to a modern
 [Greek](Greek "Greek") language version of the
 [New Testament](New_Testament "New Testament"), the
