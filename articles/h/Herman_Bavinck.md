@@ -1,6 +1,3 @@
-[![image](images/thumb/9/9c/Bavinck.jpg/180px-Bavinck.jpg)](http://www.theopedia.com/File:Bavinck.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Bavinck.jpg "Enlarge")
-Herman Bavinck
 **Herman Bavinck** (1854-1921), a Dutch
 [Reformed](Reformed_theology "Reformed theology")
 [theologian](Theologian "Theologian"), was a contemporary of
@@ -19,10 +16,6 @@ magnum opus, *Reformed Dogmatics* (Gereformeerde Dogmatiek, in 4
 volumes). Bavinck is one of the most balanced and solidly Reformed
 theologians Holland ever produced.
 
-**Multimedia**
-
--   [Bavinck conference](http://hermanbavinck.org/2008/10/23/bavinck-conference-audio-added/)
-
 Bavinck introduced the notion of organic inspiration of the
 Scriptures and also developed a solution to the
 [infra/supralapsarian](Supralapsarianism "Supralapsarianism")
@@ -32,13 +25,9 @@ theologians owe large debts to his work, including
 [Cornelius Van Til](Cornelius_Van_Til "Cornelius Van Til") and
 [Louis Berkhof](Louis_Berkhof "Louis Berkhof").
 
-## Contents
+##Multimedia
 
--   [1 Selected publications](#Selected_publications)
--   [2 Further reading](#Further_reading)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
+-   [Bavinck conference](http://hermanbavinck.org/2008/10/23/bavinck-conference-audio-added/)
 
 ## Selected publications
 
