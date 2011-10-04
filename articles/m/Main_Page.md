@@ -4,7 +4,7 @@
 [Leviticus](Leviticus "Leviticus") –
 [Numbers](Book_of_Numbers "Book of Numbers") –
 [Deuteronomy](Deuteronomy "Deuteronomy") –
-[Joshua](Book_of_Joshua "Book of Joshua") –
+[Joshua](Book_of_Joshua "Book of Joshua") – 
 [Judges](Book_of_Judges "Book of Judges") –
 [Ruth](Book_of_Ruth "Book of Ruth") –
 [1 Samuel](Books_of_Samuel "Books of Samuel") –
