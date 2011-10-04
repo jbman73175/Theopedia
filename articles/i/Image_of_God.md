@@ -15,26 +15,12 @@ gospel of its inner life and power."
 ([John Piper](John_Piper "John Piper"),
 *God's Passion for His Glory*, pg. 39)
 
-**Multimedia**
+##Multimedia
 
 -   [The Image of God in Man](http://www.ligonier.org/media_player.php?tabID=1&id=178)
     (Flash video), by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
 -   [Man in the Image of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/115_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
-
-## Contents
-
--   [1 Biblical narrative](#Biblical_narrative)
-    -   [1.1 Image created](#Image_created)
-    -   [1.2 Image cracked](#Image_cracked)
-    -   [1.3 Image conformed](#Image_conformed)
-
--   [2 Related quotes](#Related_quotes)
--   [3 References](#References)
--   [4 Further reading](#Further_reading)
--   [5 External links](#External_links)
-
-
 
 ## Biblical narrative
 
