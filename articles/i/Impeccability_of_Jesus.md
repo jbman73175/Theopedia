@@ -3,8 +3,7 @@ have sinned? While it is fundamentally agreed the Bible teaches
 that Jesus did not sin, there has historically been divided opinion
 as to whether or not He could have sinned.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   Was it possible for Jesus to sin?
     ([MP3](http://www.desiringgod.org/download.php?file=http://media.desiringgod.org/audio/q_and_a/4246_was_it_possible_for_jesus_to_sin.mp3)
