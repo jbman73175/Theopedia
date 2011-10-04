@@ -1,3 +1,62 @@
+## [God](God "God")
+
+[Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God") –
+[Revelation](Revelation "Revelation") —
+[Redemptive history](Redemptive_history "Redemptive history") —
+[Knowability](Knowability_of_God "Knowability of God") —
+[Attributes](Attributes_of_God "Attributes of God") —
+[Names](Names_of_God "Names of God") —
+[Immanence](Immanence_of_God "Immanence of God") —
+[Transcendence](Transcendence_of_God "Transcendence of God") —
+[God the Father](God_the_Father "God the Father") —
+[Trinity](Trinity "Trinity") —
+[Perichoresis](Perichoresis "Perichoresis")—[More](God "God")
+
+## [Jesus Christ](Jesus_Christ "Jesus Christ")
+
+[Life](Life_of_Jesus "Life of Jesus") —
+[Virgin birth](Virgin_birth "Virgin birth") —
+[Baptism](Baptism_of_Jesus "Baptism of Jesus") —
+[Messianic Secret](Messianic_Secret "Messianic Secret") —
+[Miracles](Miracles_of_Jesus "Miracles of Jesus") —
+[Teachings](Teachings_of_Jesus "Teachings of Jesus") —
+[Parables](Parables_of_Jesus "Parables of Jesus") —
+[Ipsissima vox](Ipsissima_vox "Ipsissima vox") —
+[Temptation](Temptation_of_Jesus "Temptation of Jesus") —
+[Resurrection](Resurrection_of_Christ "Resurrection of Christ") —
+[Ascension](Ascension_of_Jesus "Ascension of Jesus") —
+[Pre-existence](Pre-existence_of_Christ "Pre-existence of Christ") –
+[Eternal Sonship](Eternal_Sonship "Eternal Sonship") —
+[Eternal generation](Eternal_generation_of_the_Son "Eternal generation of the Son") –
+[Deity](Deity_of_Christ "Deity of Christ") —
+[Two natures](Two_natures_of_Christ "Two natures of Christ") —
+[Incarnation](Incarnation_of_Christ "Incarnation of Christ") —
+[Humanity](Humanity_of_Jesus "Humanity of Jesus") —
+[Offices](Offices_of_Christ "Offices of Christ") —
+[Jewishness](Jewishness_of_Christ "Jewishness of Christ") —
+[Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant") –
+[Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam") –
+[Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
+[Impeccability](Impeccability_of_Jesus) –
+[Emotions](Emotions_of_Jesus "Emotions of Jesus") —
+[Atonement](Atonement_of_Jesus "Atonement of Jesus") —
+[Historicity](Historicity_of_Jesus "Historicity of Jesus") —
+[Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
+[Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
+[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—[More](Jesus_Christ "Jesus Christ")
+
+## [Holy Spirit](Holy_Spirit "Holy Spirit")
+
+[Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit") –
+[Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
+[Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit") —
+[Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") —
+[Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit") –
+[Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit") –
+[Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit") –
+[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
+[More](Holy_Spirit)
+
 ## [Bible](Bible "Bible")
 
 [Old Testament](Old_Testament "Old Testament") –
@@ -75,65 +134,6 @@
 [Covenant theology](Covenant_theology "Covenant theology") —
 [Dispensationalism](Dispensationalism "Dispensationalism") —
 [More](Salvation "Salvation")
-
-## [God](God "God")
-
-[Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God") –
-[Revelation](Revelation "Revelation") —
-[Redemptive history](Redemptive_history "Redemptive history") —
-[Knowability](Knowability_of_God "Knowability of God") —
-[Attributes](Attributes_of_God "Attributes of God") —
-[Names](Names_of_God "Names of God") —
-[Immanence](Immanence_of_God "Immanence of God") —
-[Transcendence](Transcendence_of_God "Transcendence of God") —
-[God the Father](God_the_Father "God the Father") —
-[Trinity](Trinity "Trinity") —
-[Perichoresis](Perichoresis "Perichoresis")—[More](God "God")
-
-## [Jesus Christ](Jesus_Christ "Jesus Christ")
-
-[Life](Life_of_Jesus "Life of Jesus") —
-[Virgin birth](Virgin_birth "Virgin birth") —
-[Baptism](Baptism_of_Jesus "Baptism of Jesus") —
-[Messianic Secret](Messianic_Secret "Messianic Secret") —
-[Miracles](Miracles_of_Jesus "Miracles of Jesus") —
-[Teachings](Teachings_of_Jesus "Teachings of Jesus") —
-[Parables](Parables_of_Jesus "Parables of Jesus") —
-[Ipsissima vox](Ipsissima_vox "Ipsissima vox") —
-[Temptation](Temptation_of_Jesus "Temptation of Jesus") —
-[Resurrection](Resurrection_of_Christ "Resurrection of Christ") —
-[Ascension](Ascension_of_Jesus "Ascension of Jesus") —
-[Pre-existence](Pre-existence_of_Christ "Pre-existence of Christ") –
-[Eternal Sonship](Eternal_Sonship "Eternal Sonship") —
-[Eternal generation](Eternal_generation_of_the_Son "Eternal generation of the Son") –
-[Deity](Deity_of_Christ "Deity of Christ") —
-[Two natures](Two_natures_of_Christ "Two natures of Christ") —
-[Incarnation](Incarnation_of_Christ "Incarnation of Christ") —
-[Humanity](Humanity_of_Jesus "Humanity of Jesus") —
-[Offices](Offices_of_Christ "Offices of Christ") —
-[Jewishness](Jewishness_of_Christ "Jewishness of Christ") —
-[Suffering Servant](Jesus_as_the_Suffering_Servant "Jesus as the Suffering Servant") –
-[Second Adam](Jesus_as_the_second_Adam "Jesus as the second Adam") –
-[Sinlessness](Sinlessness_of_Christ "Sinlessness of Christ") —
-[Impeccability](Impeccability_of_Jesus) –
-[Emotions](Emotions_of_Jesus "Emotions of Jesus") —
-[Atonement](Atonement_of_Jesus "Atonement of Jesus") —
-[Historicity](Historicity_of_Jesus "Historicity of Jesus") —
-[Genealogy](Genealogy_of_Jesus "Genealogy of Jesus") —
-[Messianic prophecy](Messianic_prophecy "Messianic prophecy") —
-[Jesus and the Law](Jesus_and_the_Law "Jesus and the Law")—[More](Jesus_Christ "Jesus Christ")
-
-## [Holy Spirit](Holy_Spirit "Holy Spirit")
-
-[Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit") –
-[Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit") —
-[Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit") —
-[Gifts](Gifts_of_the_Spirit "Gifts of the Spirit") —
-[Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit") –
-[Indwelling](Indwelling_of_the_Holy_Spirit "Indwelling of the Holy Spirit") –
-[Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit") –
-[Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
-[More](Holy_Spirit)
 
 ## [Humanity](Humanity "Humanity")
 
