@@ -1,7 +1,6 @@
-
 ##A
 
--  [-	[Archibald Alexander](Archibald Alexander)](-	[Archibald Alexander](Archibald Alexander))
+- [Archibald Alexander](Archibald Alexander)
 -	[Henry Alford](Henry Alford)
 -	[William Ames](William Ames)
 -	[Moise Amyraut](Moise Amyraut)
