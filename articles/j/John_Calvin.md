@@ -1,6 +1,3 @@
-[![image](images/6/6f/GCalvin.jpg.pagespeed.ce.BHRghcbISD.jpg)](http://www.theopedia.com/File:GCalvin.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GCalvin.jpg "Enlarge")
-John Calvin
 **John Calvin** (1509-1564) was a prominent French theologian
 during the
 [Protestant Reformation](Protestant_Reformation "Protestant Reformation")
