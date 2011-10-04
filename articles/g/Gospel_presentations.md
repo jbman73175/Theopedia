@@ -25,19 +25,20 @@ worldview for the listener.
 to be a Christian?' And Paul said, 'Whether short or long, I would
 to God that not only you but also all who hear me this day might
 become such as I am—except for these chains.' " (Acts 26:28-29)
-**Multimedia**
+
+##Multimedia
 
 -   [Preaching the Gospel](http://vimeo.com/3484464) (Vimeo), by
     [Tim Keller](Tim_Keller "Tim Keller")
 
-**Long Presentations**
+###Long Presentations
 
 -   [God's Story From Creation to Eternity](http://www.christiananswers.net/godstory/home.html)
     (ChristianAnswers.net)
 -   [The Hope](http://www.thehopeproject.com/intro/intro_en.html)
     (Mars Hill Productions)
 
-**Short Presentations**
+###Short Presentations
 
 -   [On the Street Witnessing](http://wayofthemaster.com/watchwitnessing.shtml)
     (Way of the Master)
@@ -45,26 +46,6 @@ become such as I am—except for these chains.' " (Acts 26:28-29)
     Board)
 -   [The Four Spirital Laws](http://www.campuscrusade.com/fourlawsflash.htm)
     (Campus Crusade for Christ)
-
-## Contents
-
--   [1 Presentations in the New Testament](#Presentations_in_the_New_Testament)
-    -   [1.1 Jesus](#Jesus)
-    -   [1.2 Peter](#Peter)
-    -   [1.3 Paul](#Paul)
-
--   [2 Popular modern presentations](#Popular_modern_presentations)
-    -   [2.1 Long](#Long)
-    -   [2.2 Short](#Short)
-        -   [2.2.1 The Four Laws](#The_Four_Laws)
-        -   [2.2.2 Evangelism Explosion](#Evangelism_Explosion)
-        -   [2.2.3 The Way of the Master](#The_Way_of_the_Master)
-        -   [2.2.4 Two Ways to Live](#Two_Ways_to_Live)
-
-
--   [3 See also](#See_also)
--   [4 Notes](#Notes)
--   [5 External links](#External_links)
 
 ## Presentations in the New Testament
 
