@@ -81,6 +81,7 @@ was not through rational argumentation or proofs, but through the
 witness of the Holy Spirit. ^[[1]](#note-0)^
 
 *See main page: [Scripture alone](Scripture_alone "Scripture alone"), [Authority of the Bible](Authority_of_the_Bible "Authority of the Bible")*
+
 ## God
 
 Calvinism affirms and confesses the historic
@@ -95,6 +96,7 @@ is also mysterious, or hidden, except as he chooses to reveal
 himself to men, which He has done in the Scriptures.
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Salvation (Five Points of Calvinism)
 
 The Calvinist doctrine of [salvation](Salvation "Salvation") is
@@ -129,8 +131,9 @@ favor with God. While total depravity is commonly associated with
 viewpoint is based on the theology of
 [Augustine](Augustine "Augustine") (b. 354).
 
-*See main page: [Total depravity](Total_depravity "Total depravity")*
-*Contrast with [Universal prevenient grace](Universal_prevenient_grace "Universal prevenient grace")*
+* See main page: [Total depravity](Total_depravity "Total depravity")*
+* Contrast with [Universal prevenient grace](Universal_prevenient_grace "Universal prevenient grace")*
+
 ### Unconditional election
 
 Unconditional election is the doctrine which states that God chose
@@ -142,8 +145,9 @@ his own will, some for glory and others for damnation (Romans 9:15,
 21). He has done this act before the foundations of the world
 (Ephesians 1:4–8).
 
-*See main page: [Unconditional election](Unconditional_election "Unconditional election")*
-*See also [Election](Election "Election"), [Predestination](Predestination "Predestination"), and [Foreknowledge of God](Foreknowledge_of_God "Foreknowledge of God")*
+* See main page: [Unconditional election](Unconditional_election "Unconditional election")*
+* See also [Election](Election "Election"), [Predestination](Predestination "Predestination"), and [Foreknowledge of God](Foreknowledge_of_God "Foreknowledge of God")*
+
 ### Limited atonement
 
 Limited atonement (also known as "definite atonement") is a
@@ -156,6 +160,7 @@ rightly bear the name "Christian" (Ephesians 5:25).
 
 *See main page: [Definite atonement](Definite_atonement "Definite atonement")*
 *See also [Atonement of Christ](Atonement_of_Christ "Atonement of Christ") and [Penal substitutionary atonement](Penal_substitutionary_atonement "Penal substitutionary atonement")*
+
 ### Irresistible grace
 
 The result of God's irresistible grace is the certain response by
@@ -169,8 +174,9 @@ is to know that the gospel of Christ will penetrate our hard,
 sinful hearts and wondrously save us through the gracious inward
 call of the Holy Spirit (1 Peter 5:10)!
 
-*See main page: [Irresistible grace](Irresistible_grace "Irresistible grace")*
-*See also [Faith](Faith "Faith"), [Repentance](Repentance "Repentance"), and [Regeneration](Regeneration "Regeneration")*
+* See main page: [Irresistible grace](Irresistible_grace "Irresistible grace")*
+* See also [Faith](Faith "Faith"), [Repentance](Repentance "Repentance"), and [Regeneration](Regeneration "Regeneration")*
+
 ### Perseverance of the saints
 
 Those called and justified will certainly be glorified (Romans
@@ -182,8 +188,9 @@ The Calvinist stands upon the Word of God and trusts in Christ's
 promise that he will perfectly fulfill the will of the Father in
 saving all the elect.
 
-*See main page: [Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints")*
-*See also [Lordship salvation](Lordship_salvation "Lordship salvation") and [Assurance of salvation](Assurance_of_salvation "Assurance of salvation")*
+* See main page: [Perseverance of the saints](Perseverance_of_the_saints "Perseverance of the saints")*
+* See also [Lordship salvation](Lordship_salvation "Lordship salvation") and [Assurance of salvation](Assurance_of_salvation "Assurance of salvation")*
+
 ## The Church
 
 ### Theology of the sacraments
@@ -202,7 +209,8 @@ Calvinism acknowledges the two sacraments of
 [Lord's Supper](Lord's_Supper "Lord's Supper") as being
 specifically instituted by Christ for the church.
 
-*See main page: [Calvinism/Sacramentology](Calvinism/Sacramentology "Calvinism/Sacramentology")*
+* See main page: [Calvinism/Sacramentology](Calvinism/Sacramentology "Calvinism/Sacramentology")*
+
 ## The Five Solas of the Reformation
 
 The [Five Solas](Five_Solas "Five Solas") of the Protestant
@@ -287,6 +295,3 @@ here:
 -   [In Death or Life.org: Calvinism](http://www.indeathorlife.org/soteriology/calvinism.php)
     - Critical examination of some of Calvinism's claims from a
     synergist perspective
-
-
-
