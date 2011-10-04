@@ -60,7 +60,7 @@ and Christian particularism."^[[1]](#note-0)^
 
 ###Debates
 
--   [Resurrection; Hoax or History (McGill University Debate, 2009)](http://www.youtube.com/watch?v=IQeh3tT9cY8)
+-   [Resurrection; Hoax or History (McGill University Debate, 2009)](http://www.youtube.com/watch?v=IQeh3tT9cY8) (YouTube)
 
 ## Notes
 
