@@ -7,7 +7,7 @@ yet shorter version in [Luke](Gospel_of_Luke "Gospel of Luke")
 to distinguish its account from [Matthew's](Matthew "Matthew"). The
 title "Sermon on the Mount" goes back to
 [Augustine's](Augustine "Augustine") title he gave to his important
-commentary on Matthew 5-7, ^[[1]](#note-0)^ yet Matthew 5-7 was not
+commentary on Matthew 5-7,[^1] yet Matthew 5-7 was not
 generally given this title until around the sixteenth century.
 
 ##Multimedia
@@ -30,7 +30,7 @@ generally given this title until around the sixteenth century.
 
 ## Notes
 
-1.  [↑](#ref-0) Written between 392-396
+[^1]: Written between 392-396
 
 ## See also
 
