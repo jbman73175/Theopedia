@@ -67,9 +67,11 @@ commentaries."[[1]](http://www.thegospelcoalition.org/publications/35-2/why-evan
 ### 1 Corinthians 6:9-10
 
 > Or do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God.
+
 ### 1 Timothy 1:10
 
 *...the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine*
+
 ## Al Mohler on homosexuality
 
 In a *Time Magazine* article,
