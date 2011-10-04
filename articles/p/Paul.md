@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a3/Paul.jpg/220px-Paul.jpg)](http://www.theopedia.com/File:Paul.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Paul.jpg "Enlarge")
-The Apostle Paul by Rembrandt van Rijn, circa 1657
 **Paul**, also known as **Paul of Tarsus** (c. 9 - c. 65), was a
 Roman citizen and [apostle](Apostle "Apostle") in the early church
 shortly after the death of [Jesus](Jesus "Jesus"). He is one of the
@@ -13,7 +10,7 @@ Christians all around the world to "count everything as loss
 because of the surpassing worth of knowing Christ Jesus [our] Lord"
 (Philippians 3:8, [ESV](ESV "ESV")).
 
-**Multimedia**
+##Multimedia
 
 -   [Where did Paul get his authority?](http://www.youtube.com/watch?v=j_tgjl1_sPw)
     (YouTube), by Ryan Turner
@@ -33,17 +30,6 @@ because of the surpassing worth of knowing Christ Jesus [our] Lord"
     (QuickTime), by Robert Stein
 -   [St. Paul in the Big Picture: The Apostle and the Gospel in the 1st and 21st Century](http://www.calvin.edu/january/2003/media/A10799-Wright-St%20Paul.mp3),
     (MP3) by [N.T. Wright](N.T._Wright "N.T. Wright")
-
-## Contents
-
--   [1 Early life](#Early_life)
--   [2 Persecutor of the Church](#Persecutor_of_the_Church)
--   [3 Call to apostleship](#Call_to_apostleship)
--   [4 Apostle to the Gentiles](#Apostle_to_the_Gentiles)
--   [5 Chronology](#Chronology)
--   [6 Further reading](#Further_reading)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
 
 ## Early life
 
