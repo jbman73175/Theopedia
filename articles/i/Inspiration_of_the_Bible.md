@@ -31,7 +31,7 @@ word *theopneustos* in 2 Timothy 3:16. The [KJV](KJV "KJV") renders
 it "inspiration", while the [RSV](RSV "RSV") uses "inspired of
 God". However, the word literally means "God-breathed".
 
-**Multimedia**
+##Multimedia
 
 -   Is the Bible Inspired by God?
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051026.m3u),
@@ -46,20 +46,6 @@ God". However, the word literally means "God-breathed".
     (Part I)
 -   [In Defense of the Bible's Inspiration](http://www.apologeticspress.org/audio/rsf1-l09.rm)
     (Part II)
-
-## Contents
-
--   [1 Relevant passages](#Relevant_passages)
--   [2 Views on the extent of inspiration](#Views_on_the_extent_of_inspiration)
-    -   [2.1 Neo-orthodox](#Neo-orthodox)
-    -   [2.2 Dictation](#Dictation)
-    -   [2.3 Limited inspiration](#Limited_inspiration)
-    -   [2.4 Plenary verbal inspiration](#Plenary_verbal_inspiration)
-
--   [3 Four things inspiration is not](#Four_things_inspiration_is_not)
--   [4 References](#References)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
 
 ## Relevant passages
 
