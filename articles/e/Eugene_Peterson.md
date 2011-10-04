@@ -1,6 +1,3 @@
-[![image](images/thumb/7/7c/EugenePeterson.jpg/175px-EugenePeterson.jpg)](http://www.theopedia.com/File:EugenePeterson.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:EugenePeterson.jpg "Enlarge")
-Eugene Peterson
 **Eugene Peterson**, born in East Stanwood, Washington in 1932, is
 an author and former college professor and pastor. He is a graduate
 of the Biblical Theological Seminary in New York (now New York
@@ -16,7 +13,7 @@ well-known for his paraphrase of the [Bible](Bible "Bible") from
 the original languages,
 *[The Message:The New Testament in Contemporary Language](The_Message "The Message")*.
 
-**Multimedia**
+##Multimedia
 
 -   [Talk at Mars Hill on Gerard Manley Hopkins, taking time to worship, and learning the fear-of-the-Lord](http://www.marshillaudio.org/resources/mp3/MHAJ-75-Peterson.mp3)
     (MP3)
