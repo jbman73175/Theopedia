@@ -23,7 +23,7 @@ two factors: the reliability of the Old Testament manuscripts, and
 the reliability of those who were involved with writing and putting
 the OT together.
 
-**Multimedia**
+##Multimedia
 
 -   [Are the Old Testament Documents Reliable?](http://www.sbts.edu/media/audio/spring2008/20080326gentry_Reliability_of_the_Old_Testament.mp3)
     (MP3), by Peter Gentry
@@ -35,17 +35,6 @@ the OT together.
     [Part 3](http://www.veritas.org/mediafiles/VTS-Osborne-1998-NorthCarolina-98VFNC05.mp3)
     (MP3s), by [Grant Osborne](Grant_Osborne "Grant Osborne") (note:
     very philosophical)
-
-## Contents
-
--   [1 The reliability of the OT manuscripts](#The_reliability_of_the_OT_manuscripts)
-    -   [1.1 Their abundance](#Their_abundance)
-    -   [1.2 Their dates](#Their_dates)
-    -   [1.3 Their accuracy](#Their_accuracy)
-
--   [2 The reliability of the authors](#The_reliability_of_the_authors)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## The reliability of the OT manuscripts
 
