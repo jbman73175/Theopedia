@@ -1,7 +1,4 @@
-’’Theopedia’’’ is a growing online encyclopedia of biblical [[Christianity]].
-Theopedia uses [[wikipedia:Wiki|wiki]] technology, which is essentially a community-driven,
-information-management system. Contributors may add and edit articles and refine their
-information and presentation.
+*Theopedia* is a community-driven online encyclopedia of biblical Christianity.
 
 ##What is our vision?
 
