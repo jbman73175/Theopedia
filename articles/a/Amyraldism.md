@@ -268,6 +268,4 @@ recognized (more moderate) version of classic Calvinist theology.
     from Elwell Evangelical Dictionary
 -   [A Critical Examination of the Amyraldian View of the Atonement](http://www.cprf.co.uk/articles/amyraldianexamination.htm)
     by Martyn J. McGeown
-
-
-
+-   [Amyraldianism: Theological Criteria for Identification and Comparative Analysis](http://www.chafer.edu/images/images/stories/docs/journal/v11n2/v11n2_5.pdf) (PDF), by David Wenkel
