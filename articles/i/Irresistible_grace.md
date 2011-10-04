@@ -9,25 +9,12 @@ he overcomes their resistance to the call of the
 [gospel](Gospel "Gospel") and irresistibly brings them to a saving
 [faith](Faith "Faith") in [Christ](Jesus "Jesus").
 
-**Multimedia**
+##Multimedia
 
 -   ["Assumptions - Irresistible Grace" TULIP Part 2](http://www.desiringgod.org/ResourceLibrary/MediaPlayer/2279/Video/)
     (MP4), by [John Piper](John_Piper "John Piper")
 -   ["Irresistible Grace - Total Depravity" TULIP Part 3](http://www.desiringgod.org/ResourceLibrary/MediaPlayer/2280/Video/)
     (MP4), by John Piper
-
-## Contents
-
--   [1 The doctrine](#The_doctrine)
-    -   [1.1 Biblical evidence for the doctrine](#Biblical_evidence_for_the_doctrine)
-    -   [1.2 History of the doctrine](#History_of_the_doctrine)
-    -   [1.3 Objections to the doctrine](#Objections_to_the_doctrine)
-
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Pro](#Pro)
-    -   [3.2 Con](#Con)
-
 
 ## The doctrine
 
