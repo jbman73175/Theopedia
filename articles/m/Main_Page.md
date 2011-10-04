@@ -57,13 +57,6 @@
 [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit") —
 [More](Holy_Spirit)
 
-## [Creation](Creation "Creation")
-
-[Genesis creation account](Genesis_creation_account "Genesis creation account") –
-[Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
-[Intelligent design](Intelligent_design "Intelligent design") — 
-[More](Creation)
-
 ## [Church](Church "Church")
 
 [Church government](Church_government "Church government") —
@@ -165,6 +158,13 @@
 - [Dating](Dating "Dating") — [Sex](Sex "Sex") —
 [Homosexuality](Homosexuality "Homosexuality") —
 [Christian hedonism](Christian_hedonism "Christian hedonism")—[More](Christian_living "Christian living")
+
+## [Creation](Creation "Creation")
+
+[Genesis creation account](Genesis_creation_account "Genesis creation account") –
+[Creation ex nihilo](Creation_ex_nihilo "Creation ex nihilo") —
+[Intelligent design](Intelligent_design "Intelligent design") — 
+[More](Creation)
 
 ## [End times](End_times "End times")
 
