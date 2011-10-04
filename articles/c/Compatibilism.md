@@ -1,12 +1,3 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Compatibilism "Talk:Compatibilism")
-or [replace this tag](index.php?title=Compatibilism&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 **Compatibilism**, sometimes called **soft determinism**, is a
 theological term that deals with the topics of
 [free will](Free_will "Free will") and
@@ -19,16 +10,6 @@ and [free will](Free_will "Free will") are compatible. Rather than
 limit the exercise of God's sovereignty in order to preserve man's
 freedom, compatibilists say that there must be a different way to
 define what freedom really means.
-
-## Contents
-
--   [1 Basic beliefs](#Basic_beliefs)
--   [2 God's involvement](#God.27s_involvement)
--   [3 Moral responsibility](#Moral_responsibility)
--   [4 Scriptural support](#Scriptural_support)
--   [5 Argument(s) against libertarian freedom](#Argument.28s.29_against_libertarian_freedom)
--   [6 Notes](#Notes)
--   [7 See also](#See_also)
 
 ## Basic beliefs
 
