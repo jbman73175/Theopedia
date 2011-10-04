@@ -8,7 +8,6 @@ translation of the Scriptures called the
 is also referred to as "Torah", which in Hebrew means teaching,
 instruction, or even law.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## Further reading
 
 -   John Sailhamer, *The Meaning of the Pentateuch*. InterVarsity
