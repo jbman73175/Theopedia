@@ -1,13 +1,3 @@
-[![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
-**This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
-Please discuss this issue on the
-[talk page](http://www.theopedia.com/Talk:Interpretation_of_the_Bible "Talk:Interpretation of the Bible")
-or
-[replace this tag](index.php?title=Interpretation_of_the_Bible&action=edit)
-with a more specific message. Help:
-[How to Contribute](http://www.theopedia.com/Help:How_to_contribute "Help:How to contribute").{{\#if:|  
-This article/section has been tagged since
-**{{{1}}}**.[[Category:Cleanup from {{{1}}}]]|}}
 Part of the series on the  
 **[Bible](Bible "Bible")**
 -   [Old Testament](Old_Testament "Old Testament")
@@ -39,7 +29,7 @@ principles of hermeneutics is to "rightly handle the word of truth"
 (2 Tim. 2:15), striving to accurately discern the meaning of the
 text.
 
-**Multimedia**
+##Multimedia
 
 -   [Hermeneutics](http://www.gordonconwell.edu/audio/dimensions/htsb/htsb04.ram)
     (Real Audio), by Douglas Stuart
@@ -47,41 +37,6 @@ text.
     by Robert Stein (Seminary class with free QuickTime lectures)
 -   [What? Me, Interpret? A basic primer on Bible Interpretation](http://www.gracebellingham.org/index.php?option=com_content&view=article&id=62&Itemid=41)
     (videos), by Grace Church Bellingham
-
-## Contents
-
--   [1 Distinct from exegesis](#Distinct_from_exegesis)
--   [2 Challenges](#Challenges)
--   [3 General rules of hermeneutics](#General_rules_of_hermeneutics)
-    -   [3.1 One original interpretation](#One_original_interpretation)
-        -   [3.1.1 Application](#Application)
-
-    -   [3.2 Regard for genre](#Regard_for_genre)
-    -   [3.3 Regard for literary devices](#Regard_for_literary_devices)
-    -   [3.4 Regard for literal meaning](#Regard_for_literal_meaning)
-
--   [4 Rules specific to the Bible](#Rules_specific_to_the_Bible)
-    -   [4.1 Divine accommodation](#Divine_accommodation)
-    -   [4.2 Progressive revelation](#Progressive_revelation)
-    -   [4.3 Harmony](#Harmony)
-
--   [5 The Chicago Statement on Biblical Hermeneutics](#The_Chicago_Statement_on_Biblical_Hermeneutics)
--   [6 Methods/schools](#Methods.2Fschools)
-    -   [6.1 Allegorical](#Allegorical)
-    -   [6.2 Grammatico-historical](#Grammatico-historical)
-    -   [6.3 Letterism](#Letterism)
-    -   [6.4 Postmodern](#Postmodern)
-
--   [7 Role of the Holy Spirit](#Role_of_the_Holy_Spirit)
--   [8 The hermeneutics of Jesus](#The_hermeneutics_of_Jesus)
--   [9 See also](#See_also)
--   [10 References](#References)
--   [11 Resources](#Resources)
-    -   [11.1 Dictionaries](#Dictionaries)
-
--   [12 External links](#External_links)
-
-
 
 ## Distinct from exegesis
 
