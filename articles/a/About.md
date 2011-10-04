@@ -86,4 +86,5 @@ http://www.christianwebfoundation.org/support-theopedia
 
 * [The Christian Web Foundation](http://www.christianwebfoundation.org/)
 * [How People of Faith Are Using the Internet](http://www.theologicalstudies.citymax.com/page/page/1573597.htm), by Michael J. Vlach
-* [What is the 1% rule?](http://technology.guardian.co.uk/weekly/story/0,,1823959,00.html?gusrc=rss), by Charles Arthur
+* [What is the 1% rule?](http://www.guardian.co.uk/technology/2006/jul/20/guardianweeklytechnologysection2), by Charles Arthur
+* [1% rule (Internet culture)](http://goo.gl/7Zys) (Wikipedia)
