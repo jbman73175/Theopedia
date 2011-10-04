@@ -20,7 +20,7 @@ interactions."
 has been known to be called a
 "[postmodern](Postmodern "Postmodern")" scholar.
 
-**Multimedia**
+##Multimedia
 
 -   [The Gospel in a Frightened Culture](http://fpcknox.org/daily-readings/walter-brueggemann/)
 -   [2004 Emergent Theological Conversation with Walter Brueggemann](http://soupiset.typepad.com/soupablog/Brueggemann_19_Theses.html)
@@ -29,7 +29,6 @@ has been known to be called a
 -   [An Alternative Human Community](http://homepage.mac.com/pwhinson/iblog/Episcopblog/C1527591743/E20060109130501/index.html)
     (streaming audio)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 ## External links
 
 -   [Dr. Walter Brueggemann](http://168.29.224.20/glance/directories/emeriti_info.asp?FID=118)
@@ -51,6 +50,3 @@ has been known to be called a
     written Sept. 12, 2001
 -   [A Journey: Attending to the Abyss](http://www.biblesociety.org.uk/exploratory/articles/bruegge00.pdf)
     (PDF)
-
-
-
