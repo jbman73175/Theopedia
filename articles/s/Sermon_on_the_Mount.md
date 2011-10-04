@@ -28,10 +28,6 @@ generally given this title until around the sixteenth century.
     *The Message of the Sermon on the Mount* (The Bible Speaks Today).
     IVP, 1993.
 
-## Notes
-
-[^1]: Written between 392-396
-
 ## See also
 
 -   [Sermon on the Plain](index.php?title=Sermon_on_the_Plain&action=edit&redlink=1 "Sermon on the Plain (page does not exist)")
@@ -45,5 +41,4 @@ generally given this title until around the sixteenth century.
 -   [Augustine on the Sermon on the Mount](http://www.newadvent.org/fathers/16011.htm)
     (New Advent)
 
-
-
+[^1]: Written between 392-396
