@@ -61,7 +61,7 @@ that is complimentary to the other three Gospels and helps provide
 its readers with a clearer understanding of his divinity and
 pre-existence.
 
-**Multimedia**
+##Multimedia
 
 -   [Complete Gospel of John in the ESV narrated by Max McLean](http://www.gnpcb.org/assets/bibles/mm.32.john.zip)
     (ZIP of MP3s)
@@ -97,48 +97,6 @@ pre-existence.
 -   [The Gospel of John](http://www.desiringgod.org/ResourceLibrary/Sermons/BySeries/86/)
     (Audio & Video), sermon series by
     [John Piper](John_Piper "John Piper")
-
-## Contents
-
--   [1 Author](#Author)
--   [2 Date](#Date)
--   [3 Purpose](#Purpose)
--   [4 Relationship to the Synoptic Gospels](#Relationship_to_the_Synoptic_Gospels)
-    -   [4.1 Narrative Differences](#Narrative_Differences)
-    -   [4.2 Theological Differences](#Theological_Differences)
-    -   [4.3 Similarities](#Similarities)
-
--   [5 Structure](#Structure)
--   [6 Themes](#Themes)
-    -   [6.1 Dualism](#Dualism)
-        -   [6.1.1 Light and darkness, day and night](#Light_and_darkness.2C_day_and_night)
-
-    -   [6.2 I AM statements](#I_AM_statements)
-    -   [6.3 Belief](#Belief)
-    -   [6.4 The "hour"](#The_.22hour.22)
-    -   [6.5 Sabbath](#Sabbath)
-    -   [6.6 Eternal life](#Eternal_life)
-    -   [6.7 Signs](#Signs)
-    -   [6.8 Christology](#Christology)
-        -   [6.8.1 Titles of Jesus](#Titles_of_Jesus)
-        -   [6.8.2 Humanity and Divinity of Jesus](#Humanity_and_Divinity_of_Jesus)
-
-    -   [6.9 Eschatology](#Eschatology)
-    -   [6.10 Trial and Witness](#Trial_and_Witness)
-    -   [6.11 The Holy Spirit](#The_Holy_Spirit)
-
--   [7 Notes](#Notes)
--   [8 Further reading](#Further_reading)
-    -   [8.1 Commentaries](#Commentaries)
-    -   [8.2 Theology](#Theology)
-    -   [8.3 General studies](#General_studies)
-
--   [9 See also](#See_also)
--   [10 External links](#External_links)
-    -   [10.1 Articles](#Articles)
-
-
-
 
 ## Author
 
