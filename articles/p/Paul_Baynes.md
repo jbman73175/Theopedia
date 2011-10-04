@@ -7,7 +7,3 @@ the conversion and instruction of
 [Richard Sibbes](Richard_Sibbes "Richard Sibbes") (1577-1635), who
 himself became one of the most successful preachers of the Puritan
 era.
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-
-
