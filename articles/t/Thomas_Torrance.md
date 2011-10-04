@@ -1,6 +1,3 @@
-[![image](images/c/cd/Torrance.jpg)](http://www.theopedia.com/File:Torrance.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Torrance.jpg "Enlarge")
-Thomas F. Torrance
 **Thomas F. Torrance** (1913 - Dec 2, 2007) was a 20th century
 [Protestant](Protestant "Protestant")
 [Christian](Christian "Christian")
