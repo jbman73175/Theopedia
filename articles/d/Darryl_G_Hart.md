@@ -8,21 +8,19 @@ Among his many roles and responsibilities, he is an elder in the
 and an adjunct faculty member of the
 [Westminster Seminary California](Westminster_Seminary_California "Westminster Seminary California").
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [November 16, 2006 Darryl G. Hart lecture: The Last Dance: Why the Romance Between the Religious Right and American Conservatism May Be Over](http://www.youtube.com/watch?v=5jIaRgJe7C8)
     (YouTube video)
 -   [Deconstructing Evangelicalism, J. Gresham Machen](http://reformedforum.org/category/guests/darryl-hart/)
     (MP3's)
 
-## References
+##References
 
 1.  [↑](#ref-0)
     [Worldcat record](http://www.worldcat.org/search?q=no:024674347)
 
-## External links
+##External links
 
 -   ["The Regulative Principle: Scripture, Tradition, and Culture"](http://www.frame-poythress.org/frame_articles/1998HartDebate.htm)
     (Debate with [John Frame](John_Frame "John Frame"))
