@@ -8,7 +8,3 @@ earliest work that expresses this view in general is the
 [Shepherd of Hermas](Shepherd_of_Hermas "Shepherd of Hermas") (c.
 150 AD). Adherents of this view were declared heretics in the third
 century.
-
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-
-
