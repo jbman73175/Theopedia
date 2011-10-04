@@ -1,5 +1,3 @@
-[![image](images/1/16/Grudem.jpg)](http://www.theopedia.com/File:Grudem.jpg)
-Wayne Grudem
 **Wayne Grudem** is a
 [New Testament](New_Testament "New Testament") scholar turned
 theologian, author, and Research Professor of Bible and Theology at
@@ -33,7 +31,7 @@ gender equality, a post-tribulation premillennialist view of the
 old earth (long days of creation) view of the
 [creation account](Genesis_creation_account "Genesis creation account").
 
-**Multimedia**
+##Multimedia
 
 *All audio is in MP3 format*
 
@@ -50,21 +48,6 @@ old earth (long days of creation) view of the
     [part 3](http://tapecenter.scottsdalebible.com/sermons/082706SysTheo.MP3),
     [part 4](http://tapecenter.scottsdalebible.com/sermons/090306SysTheo.MP3)
 -   **See more [Audio](Wayne_Grudem/Audio "Wayne Grudem/Audio")**
-
-## Contents
-
--   [1 Defining systematic theology](#Defining_systematic_theology)
--   [2 Quotes](#Quotes)
-    -   [2.1 Understanding the Bible](#Understanding_the_Bible)
-    -   [2.2 Women in ministry](#Women_in_ministry)
-    -   [2.3 Church structure and authority](#Church_structure_and_authority)
-
--   [3 Publications](#Publications)
--   [4 Notes](#Notes)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Online writings](#Online_writings)
-
 
 ## Defining systematic theology
 
