@@ -10,7 +10,6 @@ apart from all works and merit of the sinner (cf. Rom 1:18-3:28).
 
 -   [Justification by Faith](http://www.sbts.edu/MP3/Speakers/20000216seifrid.mp3),
     by Mark Seifrid (SBTS)
-
 -   "Justification According to Paul"
     ([Part 1](http://www.sbts.edu/resources/lectures/gheens/justification-according-to-paul-part-1/),
     [Part 2](http://www.sbts.edu/resources/lectures/gheens/justification-according-to-paul-part-2/))
