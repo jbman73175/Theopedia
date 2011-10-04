@@ -51,30 +51,10 @@ evident among early Scottish theologians. For example, see
 (1872) passage: "The old theology of Scotland might be emphatically
 described as a *covenant theology*."^[[1]](#note-0)^
 
-**Multimedia**
+##Multimedia
 
 -   [Covenant Theology](http://biblicaltraining.org/audio/TH503/theology_1_05001.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware") (MP3)
-
-## Contents
-
--   [1 History of Covenant Theology](#History_of_Covenant_Theology)
--   [2 Covenant Theology and the Biblical Covenants](#Covenant_Theology_and_the_Biblical_Covenants)
--   [3 Diversity of Views](#Diversity_of_Views)
-    -   [3.1 Who is in the Covenant of Grace?](#Who_is_in_the_Covenant_of_Grace.3F)
-    -   [3.2 Conditionality of the Covenant of Grace](#Conditionality_of_the_Covenant_of_Grace)
-    -   [3.3 Substance of the Biblical Covenants](#Substance_of_the_Biblical_Covenants)
-
--   [4 Covenant Theology and the sacraments](#Covenant_Theology_and_the_sacraments)
-    -   [4.1 The Lord's Supper](#The_Lord.27s_Supper)
-    -   [4.2 Baptism](#Baptism)
-
--   [5 Criticism of Covenant Theology](#Criticism_of_Covenant_Theology)
--   [6 Historical documents relating to Covenant Theology](#Historical_documents_relating_to_Covenant_Theology)
--   [7 Notes](#Notes)
--   [8 References](#References)
--   [9 See also](#See_also)
--   [10 External links](#External_links)
 
 ## History of Covenant Theology
 
