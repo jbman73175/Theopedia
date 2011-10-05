@@ -1,7 +1,3 @@
-##Multimedia
-
--   [The Role of John the Baptist](https://dtsoe.s3.amazonaws.com/be510/BE510_u002_v004.mp4) (MP4), by J. Dwight Pentecost
-
 **John the Baptist** (also known as John the Baptizer) was the son
 of Elizabeth and Zechariah the priest. According to the
 [Gospel of Luke](Gospel_of_Luke "Gospel of Luke"), He was born to
@@ -38,7 +34,11 @@ that the destruction of this army was sent as a punishment upon
 Herod, and a mark of God's displeasure to him. (Whiston
 Translation)
 [[1]](http://earlychristianwritings.com/text/josephus/ant-18.htm)
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
+##Multimedia
+
+-   [The Role of John the Baptist](https://dtsoe.s3.amazonaws.com/be510/BE510_u002_v004.mp4) (MP4), by J. Dwight Pentecost
+
 ## References
 
 -   [Josephus' Antiquities](http://earlychristianwritings.com/text/josephus/ant-18.htm)
