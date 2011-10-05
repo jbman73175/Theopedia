@@ -8,8 +8,7 @@ universe. No one can hide from Him and nothing escapes His notice."
 
 ##Multimedia
 
--   [The God Who is Everywhere](http://www.ligonier.org/media_player.php?tabID=2&id=2392)
-    (Flash audio), by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
+-   God is Omnipresent - [Part 1](https://dtsoe.s3.amazonaws.com/st102/ST102_u002_v018.mp4), [Part 2](https://dtsoe.s3.amazonaws.com/st102/ST102_u002_v019.mp4) (MP4), by J. Scott Horrell
 
 ## Relevant passages
 
