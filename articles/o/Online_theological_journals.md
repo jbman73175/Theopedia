@@ -17,7 +17,7 @@
 ## Evangelical
 
 -   [Tyndale Bulletin](http://tyndalehouse.com/tynbul/library/00_TyndaleBulletin_ByDate.htm)
--   [Biblical and Theological Paper Library of ETS Papers](http://www.reclaimingthemind.org/taxonomy_dhtml)
+-   [Journal of the Evangelical Theological Society](http://www.etsjets.org/JETS_Online_Archive)
 -   [Denver Journal: An Online Review of Current Biblical and Theological Studies](http://www.denverseminary.edu/dj/),
     from Denver Seminary
 -   [Master's Seminary Journal](http://www.tms.edu/journal.asp)
