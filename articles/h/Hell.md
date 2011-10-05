@@ -42,7 +42,8 @@ righteousness as well as infinite love. While on the one hand he
 bestows infinite grace on those who trust him, he must, on the
 other hand, inflict eternal punishment on those who spurn his
 grace."^[[1]](#note-0)^
-**Multimedia**
+
+##Multimedia
 
 -   [The Biblical Basis of the Doctrine of Eternal Punishment](http://www.desiringgod.org/download.php?file=/media/audio/conferences/bcp1990/19900129_ferguson_1.mp3),
     by [Sinclair Ferguson](Sinclair_Ferguson "Sinclair Ferguson")
@@ -67,32 +68,6 @@ grace."^[[1]](#note-0)^
     (YouTube), by [Francis Chan](Francis_Chan "Francis Chan") & Preston
     Sprinkle
 
-## Contents
-
--   [1 Old Testament teaching](#Old_Testament_teaching)
-    -   [1.1 Relevant passages](#Relevant_passages)
-
--   [2 Intertestamental teaching](#Intertestamental_teaching)
--   [3 New Testament teaching](#New_Testament_teaching)
-    -   [3.1 Terms](#Terms)
-    -   [3.2 Relevant passages](#Relevant_passages_2)
-
--   [4 Apostolic Fathers](#Apostolic_Fathers)
--   [5 Everlasting punishment?](#Everlasting_punishment.3F)
--   [6 Literal fire?](#Literal_fire.3F)
--   [7 Degrees of punishment?](#Degrees_of_punishment.3F)
--   [8 Aberrant views](#Aberrant_views)
-    -   [8.1 Conditional immortality (annihilationism)](#Conditional_immortality_.28annihilationism.29)
-    -   [8.2 Purgatory](#Purgatory)
-
--   [9 Resources](#Resources)
--   [10 See also](#See_also)
--   [11 Quotes](#Quotes)
--   [12 Notes](#Notes)
--   [13 External links](#External_links)
-    -   [13.1 Jonathan Edwards](#Jonathan_Edwards)
-
-
 ## Old Testament teaching
 
 The Old Testament "clearly suggests that the sufferings of the
@@ -107,6 +82,7 @@ not refers to a shadowy holding place (sheol).
 -   Job 21:30-34
 
 *See related article: [Sheol](Sheol "Sheol")*
+
 ## Intertestamental teaching
 
 "In the last four hundred years before Christ there was extensive
@@ -134,6 +110,7 @@ punishment (Matt. 5:22, 29, 30; 10:28; 18:9; 23:15, 33; Mark 9:43,
 *tartaros* is found in 2 Peter 2:4; it is translated 'hell' and
 considered equivalent to *gehenna*"^[[4]](#note-3)^
 *See main articles: [Hades](Hades "Hades"), [Gehenna](Gehenna "Gehenna"), and [Tartarus](Tartarus "Tartarus")*
+
 ### Relevant passages
 
 -   Luke 12:47-48
@@ -171,6 +148,7 @@ And again:
 You threaten with the fire that burns for a time, and is quickly
 quenched, for you do not know the fire which awaits the wicked in
 the judgment to come and in everlasting punishment (11:2).
+
 ## Everlasting punishment?
 
 "In the Old Testament a number of Hebrew words are used to express
@@ -319,6 +297,7 @@ fire:
 ". . . the mistake is to take such pictures as physical
 descriptions, when in fact they are imagery symbolizing realities .
 . . far worse than the symbols themselves."^[[11]](#note-10)^
+
 ## Degrees of punishment?
 
 "Jesus... indicated that punishment in hell would be by degrees,
@@ -362,6 +341,7 @@ their anguish in *gehenna* never ends. This is precisely the point
 mentioned in Matthew and Luke sixty years or so earlier. Hell is a
 dreadful place, but not a place of equal suffering. Some will
 receive lesser punishment, some more."^[[13]](#note-12)^
+
 ## Aberrant views
 
 ### Conditional immortality (annihilationism)
@@ -372,6 +352,7 @@ eventually destroys the souls of the wicked rather than punishing
 them endlessly."^[[14]](#note-13)^
 
 *See main page: [Annihilationism](Annihilationism "Annihilationism")*
+
 ### Purgatory
 
 "[Purgatory] is commonly understood to refer to the state, place,
@@ -384,6 +365,7 @@ existence until the last judgment, at which time there will be only
 heaven and hell."^[[15]](#note-14)^
 
 *See main page: [Purgatory](Purgatory "Purgatory")*
+
 ## Resources
 
 -   *Four Views on Hell*, by John F. Walvoord (Contributor),
@@ -462,6 +444,7 @@ Repay,' Says the Lord", February 27, 2005.
 56, n. 37; cf. pp. 54-55. Quoted in *Four Views on Hell*, p. 48.
 [↑](#ref-17) C.S. Lewis, *The Problem of Pain*, p. 126. Quoted in
 *Four Views on Hell*, pp. 61-62.
+
 ## External links
 
 -   [Hell](http://www.blueletterbible.org/faq/hell.html) (Blue
@@ -512,6 +495,3 @@ Repay,' Says the Lord", February 27, 2005.
 -   [The Eternity of Hell's Torments](http://www.ondoctrine.com/2edw0501.htm)
 -   [The Future Punishment of the Wicked Unavoidable and Intolerable](http://www.ondoctrine.com/2edw0901.htm)
 -   [Wicked Men of the Past are Still in Hell](http://www.ondoctrine.com/2edw1301.htm)
-
-
-
