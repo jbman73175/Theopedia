@@ -38,16 +38,6 @@ and the [Anglican church](Anglicanism "Anglicanism") in England,
 and other diverse elements all of which have evolved into the
 Protestant denominations of today.
 
-## Contents
-
--   [1 Precursors to the Reformation](#Precursors_to_the_Reformation)
--   [2 Prominent figures in the Reformation](#Prominent_figures_in_the_Reformation)
--   [3 Theological Issues of the Reformation](#Theological_Issues_of_the_Reformation)
--   [4 Notes](#Notes)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
 ## Precursors to the Reformation
 
 [John Wycliffe](John_Wycliffe "John Wycliffe") (1330–84) attacked
