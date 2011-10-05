@@ -12,26 +12,11 @@ written in Koine Greek, although
 some^[***[citation\ needed](http://www.theopedia.com/Theopedia:Writing_guide#Reference_your_work\ "Theopedia:Writing\ guide")***]^
 maintain Matthew may have originally been written in Aramaic.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
+-   [The Greek Alphabet](https://dtsoe.s3.amazonaws.com/nt101/NT101_u002_v001.mp4) (MP4), by Michael H. Burer
 -   [Greek New Testament](http://www.ccel.org/a/anonymous/gnt/mp3/)
     (MP3s)
-
-## Contents
-
--   [1 Classical](#Classical)
--   [2 Koine](#Koine)
--   [3 Alphabet](#Alphabet)
--   [4 Resources](#Resources)
-    -   [4.1 Scholarly](#Scholarly)
-    -   [4.2 Students](#Students)
-    -   [4.3 Other](#Other)
-
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Fonts](#Fonts)
-
 
 ## Classical
 
