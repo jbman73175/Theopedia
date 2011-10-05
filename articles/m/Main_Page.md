@@ -134,6 +134,7 @@
 ## [Christian living](Christian_living "Christian living")
 
 [Fruit of the Spirit](Fruit_of_the_Spirit "Fruit of the Spirit") —
+[Love](Love) —
 [Bible study](Bible_study "Bible study") —
 [Legalism](Legalism "Legalism") — [Prayer](Prayer "Prayer") —
 [Suffering](Suffering "Suffering") — [Worship](Worship "Worship") —
