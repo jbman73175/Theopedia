@@ -52,6 +52,3 @@ couple of years in a cage!"
 
 Dr James N. McGuire, 'A Kinder, Gentler Calvinism' -
 [http://rq.rts.edu/summer00/mcguire.html](http://rq.rts.edu/summer00/mcguire.html)
-
-
-
