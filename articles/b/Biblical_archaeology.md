@@ -21,8 +21,6 @@ Part of the series on the
 
 -   [Does Archaeology Really Support the Bible?](http://www.calvarysantafe.org/teachings/audio/20080913_06.mp3)
     (MP3), by Steve Collins
--   [Biblical Archaeology](http://www.mckenziestudycenter.org/bible/audio/Joshua_%20Biblical%20Archaeology%20(Sessio.mp3),
-    by David Crabtree - Conerning Joshua
 
 ## Contents
 
