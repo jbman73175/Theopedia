@@ -27,6 +27,7 @@
     2008"
 -   [Bibliotheca Sacra](http://www.dts.edu/bibsac/) maintained by
     Dallas Theological Seminary (requires paid subscription)
+-   [Evangelical Philosophical Society Online Articles](http://www.epsociety.org/library/default.asp)
 
 ## Baptist
 
