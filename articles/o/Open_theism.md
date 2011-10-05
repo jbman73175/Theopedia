@@ -10,7 +10,8 @@ this would imply that God does not
 exhaustively. Proponents affirm that God is omniscient, but deny
 that this means that God knows everything that will happen.
 
-*"Our rejection of divine timelessness and our affirmation of dynamic omniscience are the most controversial elements in our proposal and the view of foreknowledge receives the most attention. However the watershed issue in the debate is not whether God has exhaustive definite foreknowledge (EDF) but whether God is ever affected by and responds to what we do. This is the same watershed that divides Calvinism from Arminianism"*^[[1]](#note-0)^
+> "Our rejection of divine timelessness and our affirmation of dynamic omniscience are the most controversial elements in our proposal and the view of foreknowledge receives the most attention. However the watershed issue in the debate is not whether God has exhaustive definite foreknowledge (EDF) but whether God is ever affected by and responds to what we do. This is the same watershed that divides Calvinism from Arminianism"^[[1]](#note-0)^
+
 Open Theists argue that people are created to be in meaningful
 relationships with God and others and as moral beings must have the
 ability to make real, responsible choices in their lives. Open
