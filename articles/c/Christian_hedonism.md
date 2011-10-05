@@ -9,7 +9,7 @@ work has generated a renewal movement similar to that of Sonship,
 though with a somewhat different message." -
 [John Frame](http://jollyblogger.typepad.com/jollyblogger/2005/09/machens_warrior.html)
 
-**Multimedia**
+##Multimedia
 
 -   [Resources on Christian Hedonism](http://www.desiringgod.org/ResourceLibrary/TopicIndex/85_Christian_Hedonism/),
     Desiring God Christian Resource Library
