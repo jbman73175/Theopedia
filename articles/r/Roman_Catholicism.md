@@ -33,10 +33,9 @@ significant are:
     [saints](Saint "Saint").
 
 
+##Multimedia
 
-**Multimedia**
-
-**Selections from the Trinity Lecture Series**
+###Selections from the Trinity Lecture Series
 
 -   [Bleating Wolves: Evangelicals & Catholics Together](http://www.trinitylectures.org/MP3/Bleating_Wolves--Evangelicals_and_Catholics_Together,_John_Robbins.mp3),by
     John Robbins (MP3)
@@ -44,16 +43,6 @@ significant are:
     by Richard Bennett (MP3)
 -   [Romanism and the Westminster Confession](http://www.trinitylectures.org/MP3/Romanism_and_the_Westminster_Confession,_James_Bordwine.mp3),
     by James Bordwine (MP3)
-
-## Contents
-
--   [1 Brief Overview](#Brief_Overview)
--   [2 Resources](#Resources)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Favorable](#Favorable)
-    -   [4.2 Critical](#Critical)
-
 
 ## Brief Overview
 
@@ -147,6 +136,3 @@ collections of Roman Catholic theology.^[[1]](#note-0)^
 -   [Articles on Roman Catholicism at C.A.R.M.](http://www.carm.org/catholic.htm)
 -   [Articles on Roman Catholicism](http://www.enjoyinggodministries.com/studies/roman-catholicism/)
     (Enjoying God Ministries; Sam Storms)
-
-
-
