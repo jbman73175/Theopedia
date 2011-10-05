@@ -1,11 +1,7 @@
 The **Baptism of Jesus** simultaneously marks the inauguration of
 [Jesus](Jesus_Christ "Jesus Christ")' earthly ministry as well as
 marking the beginning of the decline of John the Baptist's
-ministry. [MacArthur](John_MacArthur "John MacArthur") is among
-many who consider the baptism of Jesus to be little more than an
-example for us to follow.^[[1]](#note-ftn1)^ Yet it is in fact so
-much more. It is at the baptism that those who are most prone to
-responding to their Messiah are gathered in repentance.
+ministry.
 
 Many in Israel wondered if John might be the Messiah. Yet the last
 prophet declares with assurance that he is not even worthy to untie
