@@ -19,7 +19,7 @@ to Jesus as our brother and co-heir and fellow sufferer, and to the
 Spirit as our leader and pledge (or "down payment") of our
 inheritance in Christ.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Soteriology, Part 7: Adoption](http://www.solidfoodmedia.com/messages/download.php?id=66884575c09d231651b935806a6f915358bd5cff)
