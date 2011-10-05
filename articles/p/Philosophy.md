@@ -44,7 +44,6 @@ this section heading.
     book *Philosophy Made Slightly Less Difficult* (IVP, 2005):
     -   [Where Do I Start?](http://www.ivpress.com/title/exc/2766-1.pdf)
         (pdf)
-
 -   Chapter excerpts from
     [William Lane Craig](William_Lane_Craig "William Lane Craig") and
     [J.P. Moreland](J.P._Moreland "J.P. Moreland")'s book
@@ -53,7 +52,6 @@ this section heading.
         (pdf)
     -   [An Invitation to Christian Philosophy](http://www.ivpress.com/title/exc/2694-I.pdf)
         (pdf)
-
 -   [Advice to Christian Philosophers](http://www.leaderu.com/truth/1truth10.html),
     by [Alvin Plantinga](Alvin_Plantinga "Alvin Plantinga")
 -   [Directory of Open Access Journals: Philosophy](http://www.doaj.org/ljbs?cpid=15)
