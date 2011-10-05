@@ -86,6 +86,4 @@ to Darwinian [evolution theory](Evolution "Evolution").
     by [Mark Driscoll](Mark_Driscoll "Mark Driscoll")
 -   ["In the Beginning..."](http://www.sbts.edu/pdf/sbjt/SBJT_2007Spring6.pdf)
     (The SBJT Forum)
-
-
-
+-   [A Rough Guide to Creation & Evolution](http://www.epsociety.org/library/articles.asp?pid=52&mode=detail), by Peter S. Williams
