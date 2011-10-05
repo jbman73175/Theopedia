@@ -23,9 +23,7 @@ directly affect the [Protestant](Protestant "Protestant") doctrine
 of [Justification](Justification "Justification") by Faith
 ([Sola Fide](Sola_Fide "Sola Fide")).
 
-
-
-**Multimedia**
+##Multimedia
 
 -   [The New Perspective on Paul](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts-public.1379649738.01379649741)
     (iTunes Link) (MP3s), by
@@ -37,9 +35,9 @@ of [Justification](Justification "Justification") by Faith
 -   [A Critical Assessment of the "New Perspective on Paul"](http://www.reformedfellowship.net/mp3audio/Dr.%20Cornel%20Venema%20-%20Rf2004-5%20Venema%20Message.mp3),
     by Cornelis Venema (MP3)
 
-##### [New Perspective on Paul Symposium (Covenant Theological Seminary) (MP3s)](http://www.resourcesforlifeonline.com/series/107/)
+### [New Perspective on Paul Symposium (Covenant Theological Seminary) (MP3s)](http://www.resourcesforlifeonline.com/series/107/)
 
-##### The New Perspective on Justification, by James White (Real Audio)
+### The New Perspective on Justification, by James White (Real Audio)
 
 -   [An Introduction to the New Perspective on Paul](http://www.dsf.org/datafiles/092003-1.mp3)
     ([MP3 in ZIP](http://www.dayspringsermons.org/092003-1.ZIP))
@@ -51,44 +49,6 @@ of [Justification](Justification "Justification") by Faith
     ([MP3 in ZIP](http://www.dayspringsermons.org/092003-3.ZIP))
 
 **[More Audio](New_Perspective_on_Paul/Audio "New Perspective on Paul/Audio")**
-
-## Contents
-
--   [1 New Perspective on Paul Symposium (Covenant Theological Seminary) (MP3s)](#New_Perspective_on_Paul_Symposium_.28Covenant_Theological_Seminary.29_.28MP3s.29)
--   [2 The New Perspective on Justification, by James White (Real Audio)](#The_New_Perspective_on_Justification.2C_by_James_White_.28Real_Audio.29)
--   [3 Background](#Background)
--   [4 Central beliefs to the NPP](#Central_beliefs_to_the_NPP)
-    -   [4.1 Grace in first-century Judaism](#Grace_in_first-century_Judaism)
-    -   [4.2 Pattern of religion: Covenantal Nomism](#Pattern_of_religion:_Covenantal_Nomism)
-    -   [4.3 The pre-Christian Saul](#The_pre-Christian_Saul)
-    -   [4.4 What Paul finds wrong with Judaism](#What_Paul_finds_wrong_with_Judaism)
-
--   [5 Other issues](#Other_issues)
-    -   [5.1 Works of the Law](#Works_of_the_Law)
-    -   [5.2 Boundary Markers](#Boundary_Markers)
-    -   [5.3 The righteousness of God](#The_righteousness_of_God)
-    -   [5.4 Faith vs. works](#Faith_vs._works)
-    -   [5.5 Boasting in Jewish culture](#Boasting_in_Jewish_culture)
-
--   [6 N.T. Wright](#N.T._Wright)
-    -   [6.1 Justification](#Justification)
-    -   [6.2 Denial of imputed righteousness](#Denial_of_imputed_righteousness)
-    -   [6.3 Still in Exile?](#Still_in_Exile.3F)
-
--   [7 Other criticism(s)](#Other_criticism.28s.29)
-    -   [7.1 Justification and Variegated Nomism](#Justification_and_Variegated_Nomism)
-
--   [8 References](#References)
--   [9 Further reading](#Further_reading)
-    -   [9.1 Favorable](#Favorable)
-    -   [9.2 Critical](#Critical)
-
--   [10 See also](#See_also)
--   [11 External links](#External_links)
-    -   [11.1 Bibliographies](#Bibliographies)
-    -   [11.2 Favorable](#Favorable_2)
-    -   [11.3 Critical](#Critical_2)
-
 
 ## Background
 
