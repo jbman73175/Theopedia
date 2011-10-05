@@ -234,7 +234,6 @@ Christianity.
 ## External links
 
 -   [Internet Archive of Related Texts and Documents](http://history.hanover.edu/early/prot.html)
-
 -   [16th Century Reformation Reading Room](http://www.tyndale.ca/seminary/mtsmodular/reading-rooms/history/16th-century):
     Extensive online resources; Arnold Neufeldt-Fast, PhD, Tyndale
     Seminary
@@ -243,6 +242,3 @@ Christianity.
     Westminster Seminary California
 -   [Introduction: the scope of Reformation theology](http://assets.cambridge.org/052177/2249/excerpt/0521772249_excerpt.htm),
     an excerpt from the *Cambridge Companion to Reformation Theology*
-
-
-
