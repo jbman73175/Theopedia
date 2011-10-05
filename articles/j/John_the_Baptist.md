@@ -1,3 +1,7 @@
+##Multimedia
+
+-   [The Role of John the Baptist](https://dtsoe.s3.amazonaws.com/be510/BE510_u002_v004.mp4) (MP4), by J. Dwight Pentecost
+
 **John the Baptist** (also known as John the Baptizer) was the son
 of Elizabeth and Zechariah the priest. According to the
 [Gospel of Luke](Gospel_of_Luke "Gospel of Luke"), He was born to
