@@ -5,27 +5,10 @@ of the church. There are basically three types of church government
 that have developed in the various Christian denominations: the
 episcopal, the presbyterian, and the congregational.
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
-**Multimedia**
+##Multimedia
 
 -   [Baptist and a Plurality of Elders: Why or Why Not?](http://www.sbts.edu/MP3/spring2006/20060503wright.mp3),
     by Dr. Shawn Wright
-
-## Contents
-
--   [1 Does the Bible prescribe a type of church government?](#Does_the_Bible_prescribe_a_type_of_church_government.3F)
-    -   [1.1 Notable quotes](#Notable_quotes)
-
--   [2 Episcopal](#Episcopal)
--   [3 Presbyterian](#Presbyterian)
--   [4 Congregational](#Congregational)
-    -   [4.1 Single elder/pastor led](#Single_elder.2Fpastor_led)
-    -   [4.2 Democratic congregational](#Democratic_congregational)
-    -   [4.3 Plural elder-led](#Plural_elder-led)
-
--   [5 The biblical pattern](#The_biblical_pattern)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
 
 ## Does the Bible prescribe a type of church government?
 
