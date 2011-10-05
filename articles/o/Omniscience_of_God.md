@@ -3,7 +3,6 @@ literally means "all-knowing", understanding God's knowledge to be
 exhaustive of both the past, present, and future.
 
 ##Multimedia
--   God is Omnipresent - [Part 1](https://dtsoe.s3.amazonaws.com/st102/ST102_u002_v018.mp4), [Part 2](https://dtsoe.s3.amazonaws.com/st102/ST102_u002_v019.mp4) (MP4), by J. Scott Horrell
 -   [Attributes of God: The Immensity and Omnipresence of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/091_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
 
