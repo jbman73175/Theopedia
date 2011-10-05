@@ -400,6 +400,7 @@ Holy Spirit are distinct, eternal Persons".
     Answering-Islam
 -   [Think Bigger - There’s not a ‘Trinity verse’ — and that’s a good thing](http://magazine.biola.edu/article/11-winter/think-bigger/),
     by Fred Sanders
+-   [The Doctrine of The Trinity in LDS and "Catholic" Contexts](http://www.smpt.org/docs/owen_element1-1.html), by Paul Owen
 -   [How Do the Father, Son, and Spirit Differ?](http://philgons.com/2011/04/how-do-the-father-son-and-spirit-differ/),
     by Phil Gons
 
