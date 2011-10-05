@@ -57,3 +57,4 @@ this section heading.
 -   [Advice to Christian Philosophers](http://www.leaderu.com/truth/1truth10.html),
     by [Alvin Plantinga](Alvin_Plantinga "Alvin Plantinga")
 -   [Directory of Open Access Journals: Philosophy](http://www.doaj.org/ljbs?cpid=15)
+-   [Trajectories in Philosophy and Apologetics - Two philosophers and apologists reflect on the trends shaping the future of Christian witness](http://www.patheos.com/Resources/Additional-Resources/Trajectories-in-Philosophy-and-Apologetics.html?print=1), by William Lane Craig and Paul Copan
