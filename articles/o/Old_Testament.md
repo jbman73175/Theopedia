@@ -327,7 +327,6 @@ differences."^[[3]](#note-2)^
 -   [Annotated Old Testament Bibliography](http://www.denverseminary.edu/dj/articles2004/0100/0101.php),
     by M. Daniel Carroll R. and Richard S. Hess (Denver Journal, from
     Denver Seminary)
-
 -   [Old Testament Hebrew Lexicon](http://www.biblestudytools.com/lexicons/hebrew/)
 -   [Old Testament Chronology](http://ourworld.compuserve.com/homepages/richardmallett1/OTChron1.html)
 -   [Is Yahweh a Moral Monster? The New Atheists and Old Testament Ethics](http://www.epsociety.org/library/articles.asp?pid=45&ap=1), by [Paul Copan](Paul Copan)
