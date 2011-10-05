@@ -25,7 +25,7 @@ readings, thus allowing students to understand the why behind the
 UBS Greek Text."
 [[1]](http://www.cob-net.org/compare_greektext.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *The Text Of The New Testament: Its Transmission, Corruption, And Restoration*

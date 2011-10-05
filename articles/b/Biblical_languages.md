@@ -8,7 +8,7 @@ Greek.
 -   [Why You Should Learn Biblical Languages](http://ianhughclary.com/2009/09/24/why-you-should-learn-biblical-languages/),
     by Westminster Seminary professor Elizabeth Groves
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Hebrew](Hebrew "Hebrew")

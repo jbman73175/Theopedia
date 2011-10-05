@@ -24,7 +24,7 @@ a confession by some denominations.
 
 *Adapted from "Barmen, Synod of."Encyclopædia Britannica. 2006. Encyclopædia Britannica 2006 Ultimate Reference Suite DVD*
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Karl Barth](Karl_Barth "Karl Barth")

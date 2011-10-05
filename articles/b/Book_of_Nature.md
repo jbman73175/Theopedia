@@ -24,7 +24,7 @@ biological reality--goes hand in hand with the
 [hermeneutical](Hermeneutics "Hermeneutics") understanding of the
 Book of Scripture.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  [↑](#ref-0) *Contra Faustum Manichaean* (Against Faustus the

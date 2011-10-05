@@ -36,7 +36,7 @@ certificate programs. The seminary is accredited by the Association
 of Theological Schools and by the Higher Learning Commission of the
 North central Association of Colleges and Schools.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Bethel Seminary](http://seminary.bethel.edu/) official site

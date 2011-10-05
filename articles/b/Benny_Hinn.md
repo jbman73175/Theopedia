@@ -15,7 +15,7 @@ movement.
 -   [Benny Hinn Conspiracy (fraudulent televangelists)](http://video.google.com/videoplay?docid=-7807584680006648742)
 -   [The Blind and the Dead](http://video.google.com/videoplay?docid=-292748952186052796)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 External links](#External_links)

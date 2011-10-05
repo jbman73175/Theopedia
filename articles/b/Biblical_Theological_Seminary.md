@@ -20,6 +20,6 @@ pastoral, missional, academic, or a combination of these.
 
 -   [Biblical Seminary](http://www.biblical.edu/) Official site.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

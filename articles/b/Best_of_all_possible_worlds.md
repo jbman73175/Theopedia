@@ -19,7 +19,7 @@ best-of-all-possible-worlds."
 -   [Possible worlds](http://biblicaltraining.org/audio/TH601/apologetics_09b.mp3)
     (MP3), by Ron Nash
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Molinism](Molinism "Molinism")

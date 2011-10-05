@@ -11,7 +11,7 @@ Calvinism, specifically the doctrines of
 [predestination](Predestination "Predestination") and
 [total depravity](Total_depravity "Total depravity").^[[3]](#note-2)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

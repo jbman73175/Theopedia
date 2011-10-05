@@ -34,6 +34,6 @@ The Four Noble Truths
 -   [The Real Problem with Buddhism MP3](http://media.christianheritageuk.org.uk.s3.amazonaws.com/1f126e6e-0bb6-41e1-af9f-e52ca18e8259.mp3),
     by Ellis Potter
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -5,7 +5,7 @@ eternal life; and it is they that bear witness about me," (John
 book or scroll itself upon which the text is printed. It is the
 worship of the book rather than the worship of its Divine Author.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Bibliolatry](http://www.challies.com/articles/feedback-files-bibliolatry),

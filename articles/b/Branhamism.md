@@ -18,7 +18,7 @@ Godhead, the Baptismal formula, the Serpent's Seed doctrine,
 attitude toward women and divorce, and eschatology.
 [[1]](http://en.wikipedia.org/wiki/Branhamism)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Doctrine](#Doctrine)
