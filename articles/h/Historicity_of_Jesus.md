@@ -57,7 +57,7 @@ Jesus. In their book *The Case for the Resurrection of Jesus*,
 more than forty sources which mention Jesus within 150 years within
 His life.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 ### Christian

@@ -51,7 +51,7 @@ historiography. This conflict comes from Christian presuppositions
 such as: there is a God, God is in control of history, and history
 has a moral purpose.
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   Conal Furay and Michael J. Salevouris,

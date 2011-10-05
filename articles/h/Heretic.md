@@ -14,7 +14,7 @@ established belief system. For instance,
 leading [Protestants](Protestant "Protestant") of the Reformation
 to be heretics.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Ben Quash, "Prologue," in

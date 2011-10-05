@@ -6,7 +6,7 @@ same substance". It was used against
 same substance, or in other words, were of the same
 [being](Being "Being").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Trinity](Trinity "Trinity")

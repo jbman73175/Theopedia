@@ -20,7 +20,7 @@ Part of the series on
 -   [Resurrection](Resurrection "Resurrection")
 -   [Glorification](Glorification "Glorification")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Recognition in the future life](#Recognition_in_the_future_life)

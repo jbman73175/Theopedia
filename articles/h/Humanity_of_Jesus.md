@@ -18,7 +18,7 @@ Because He understands, coming to Him we "obtain mercy and find
 grace to help in time of need," (Heb. 4:15-16). As man He provided
 for us the pattern for living as men, (1 Pet. 2:21).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Understanding the Humanity of Jesus](http://biologos.org/blog/understanding-the-humanity-of-jesus/),

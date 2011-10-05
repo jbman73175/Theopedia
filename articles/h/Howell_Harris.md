@@ -14,7 +14,7 @@ to spread the word throughout Wales.
 He was effectively the founder of the Presbyterian church of Wales,
 also known as the Calvinistic Methodist church.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 -   Davies, Gwyn (2002),

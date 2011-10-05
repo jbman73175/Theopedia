@@ -19,6 +19,6 @@ based on their behavior during life.
 -   [Hinduism: a Case Study](http://hisdefense.org/LinkClick.aspx?link=Audio/Hazen+-+3+Hinduism+a+Case+Study.ram&tabid=136&mid=955),
     (Real Media) by Craig Hazen
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

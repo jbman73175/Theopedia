@@ -18,7 +18,7 @@ Jesuit faculty near Munich, followed by four years of theology near
 Lyon. Thus he was a licentiate in both philosophy and theology,
 though his doctorate remained only in literature. ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected works](#Selected_works)

@@ -18,7 +18,7 @@ history in which the man [Jesus](Jesus "Jesus"), because of his
 total obedience even to death, may share in the life and rule of
 [God](God "God")." ^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *Christ and the Powers*. Herald Press, 1977.

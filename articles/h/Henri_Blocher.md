@@ -26,7 +26,7 @@ He was a member of the Lausanne Committee on World Evangelization
 (1975-­1980) and recently became the President of the Fellowship of
 European Evangelical Theologians.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Original Sin: Illuminating the Riddle*, InterVarsity Press,

@@ -7,7 +7,7 @@ earth."^[[1]](#note-0)^
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Reference
 
 1.  [↑](#ref-0) [Historicism Network](http://www.historicism.net)

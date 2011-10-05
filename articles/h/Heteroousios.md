@@ -9,7 +9,7 @@ escalated and the result was the
 was affirmed that Jesus and the Father were of the same substance
 ([homoousios](Homoousios "Homoousios")).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Homoousios](Homoousios "Homoousios")

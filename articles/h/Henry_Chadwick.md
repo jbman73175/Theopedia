@@ -6,7 +6,7 @@ theologian. He was a former Dean of Christ Church, Oxford
 Cambridge. Chadwick had a DD from Cambridge and had honorary
 doctorates from Uppsala, Harvard, Yale and Chicago universities.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Resources](#Resources)

@@ -24,6 +24,6 @@ divine creation. It also paved the way for Dr. Morris to help found
 what is now San Diego Christian College in El Cajon in 1970 and to
 launch the Institute for Creation Research in Santee.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

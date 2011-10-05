@@ -20,7 +20,7 @@ million copies, and is still in print. Many of Lindsey's later
 writings are sequels or revisions and extensions of this first
 book.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected writings
 
 -   The Late, Great Planet Earth first edition 1970

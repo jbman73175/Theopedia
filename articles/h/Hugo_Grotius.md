@@ -25,7 +25,7 @@ against Maurice of Nassau . After Maurice gained power he had
 Grotius condemned (1619) to prison for life, but Grotius made a
 daring escape in 1621 and fled to Paris.^[[3]](#note-2)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Bill Uzgalis,

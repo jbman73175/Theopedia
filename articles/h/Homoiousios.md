@@ -11,7 +11,7 @@ the doctrine of [monotheism](Monotheism "Monotheism"). Thus, at the
 [Council of Nicea](Council_of_Nicea "Council of Nicea") the church
 affirmed that Jesus and the Father were of the *same* substance.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Heteroousios](Heteroousios "Heteroousios")

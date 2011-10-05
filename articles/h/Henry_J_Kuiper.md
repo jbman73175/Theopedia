@@ -2,7 +2,7 @@
 Reformed Church weekly the *Banner* from 1944 to 1956. He also
 helped found the Chicago Helping Hand Mission.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 James A De Jong.

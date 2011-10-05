@@ -171,7 +171,7 @@ are new creatures and await the complete restoration of their
 humanity at the final resurrection.
 
 *See main pages: [Sanctification](Sanctification "Sanctification"), [Resurrection](Resurrection "Resurrection"), [New creation](index.php?title=New_creation&action=edit&redlink=1 "New creation (page does not exist)")*
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   [Joel B. Green](Joel_B._Green "Joel B. Green"),

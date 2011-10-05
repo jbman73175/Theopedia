@@ -6,7 +6,7 @@ Used in contrast to [orthodoxy](Orthodoxy "Orthodoxy"), it is
 synonymous with the term "unorthodox" and is even closely tied to
 the word, "[heresy](Heresy "Heresy")".
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Orthodox](Orthodox "Orthodox")

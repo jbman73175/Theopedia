@@ -8,6 +8,6 @@
 -   [Humility: True Greatness](http://www.bclr.org/audio/sermons/2005-09-11_AM2.mp3)
     (MP3), by [C.J. Mahaney](C.J._Mahaney "C.J. Mahaney")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

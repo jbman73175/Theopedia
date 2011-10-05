@@ -55,7 +55,7 @@ and claims of Jesus and his disciples."
     (MP3s), by [Grant Osborne](Grant_Osborne "Grant Osborne") (note:
     very philosophical)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   *The New Testament Documents: Are They Reliable?*, by

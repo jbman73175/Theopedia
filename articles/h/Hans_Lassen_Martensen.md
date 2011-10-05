@@ -9,6 +9,6 @@ Martensen attempted to reconcile
 [Calvinism](Calvinism "Calvinism"), with the philosophy of
 [Georg Wilhelm Friedrich Hegel](http://www.wikipedia.org/wiki/Georg_Wilhelm_Friedrich_Hegel "wikipedia:Georg Wilhelm Friedrich Hegel").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

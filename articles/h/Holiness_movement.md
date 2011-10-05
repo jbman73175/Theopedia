@@ -13,6 +13,6 @@ which Holiness theologians usually refer to as
 notable Holiness bodies are the Church of the Nazarene and the
 Salvation Army.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -5,7 +5,7 @@ Yale University. He is well known for his works in
 *The Eclipse of Biblical Narrative* (1974). In the 1980's Frei
 became associated with post-liberalism.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Quotes](#Quotes)

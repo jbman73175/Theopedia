@@ -18,7 +18,7 @@ Religion and Society at the Rockford Institute and teaches in the
 International Seminar on Jurisprudence and Human Rights in
 Strasbourg, France.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   Protest of a Troubled Protestant (Zondervan 1969)

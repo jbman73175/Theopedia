@@ -31,10 +31,10 @@ Such a dichotomy is false according to orthodox Christian belief.
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## The Quests
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   [Bock, Darrell](Darrell_Bock "Darrell Bock").
