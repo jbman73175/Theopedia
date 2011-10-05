@@ -40,7 +40,7 @@ Scripture" indicating its authority.
 -   [Why We Trust the Bible](http://bit.ly/cHzfTQ) (MP3), by
     Darrell Bock
 
-### [Old Testament](Old_Testament "Old Testament")
+## [Old Testament](Old_Testament "Old Testament")
 
 [Genesis](Genesis "Genesis") - [Exodus](Exodus "Exodus") -
 [Leviticus](Leviticus "Leviticus") -
@@ -81,7 +81,7 @@ Scripture" indicating its authority.
 [Zechariah](Book_of_Zechariah "Book of Zechariah") -
 [Malachi](Book_of_Malachi "Book of Malachi")
 
-### [New Testament](New_Testament "New Testament")
+## [New Testament](New_Testament "New Testament")
 
 [Matthew](Gospel_of_Matthew "Gospel of Matthew") -
 [Mark](Gospel_of_Mark "Gospel of Mark") -
