@@ -141,12 +141,11 @@
 [Child bearing](Child_bearing "Child bearing") —
 [Child training](Child_training "Child training") —
 [Marriage](Marriage "Marriage") —
-[Divorce and remarriage](Divorce_and_remarriage "Divorce and remarriage")
-- [Contraceptives](Contraceptives "Contraceptives") —
+[Divorce and remarriage](Divorce_and_remarriage "Divorce and remarriage") -
+[Contraceptives](Contraceptives "Contraceptives") —
 [Alcohol](Alcohol "Alcohol") —
-[Manhood and womanhood](Manhood_and_womanhood "Manhood and womanhood")
-- [Dating](Dating "Dating") — [Sex](Sex "Sex") —
-[Homosexuality](Homosexuality "Homosexuality") —
+[Manhood and womanhood](Manhood_and_womanhood "Manhood and womanhood") -
+[Dating](Dating "Dating") — [Sex](Sex "Sex") —
 [Christian hedonism](Christian_hedonism "Christian hedonism")—[More](Christian_living "Christian living")
 
 ## [Creation](Creation "Creation")
