@@ -29,7 +29,7 @@ church by [Protestants](Protestantism "Protestantism").
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Biographical overview
 
 Before reaching the age of 20, Athanasius wrote a treatise entitled

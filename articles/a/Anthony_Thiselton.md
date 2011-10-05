@@ -8,7 +8,7 @@ on modern [theology](Theology "Theology"),
 and the application of philosophy of language to
 [biblical studies](Biblical_studies "Biblical studies").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Thiselton's faculty page at The University of Nottingham](http://www.nottingham.ac.uk/theology/lookup/lookup_role.php?id=NTI3MzM0&page_var=personal)

@@ -19,7 +19,7 @@ accountability:
 -   Hebrews 10:24-25
 -   James 5:16
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Age of Accountability](Age_of_Accountability "Age of Accountability")

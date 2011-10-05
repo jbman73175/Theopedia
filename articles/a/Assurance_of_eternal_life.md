@@ -39,7 +39,7 @@ of assurance with the doctrine of
 (or eternal security) which maintains that true believers will not
 fall away from the faith.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 
 **Multimedia**

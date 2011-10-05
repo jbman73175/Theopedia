@@ -12,7 +12,7 @@ an item as a watch. This resembles "exchanging the glory of the
 incorruptible God" for a
 [materialistic idol](Idolatry "Idolatry").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Alcohol](Alcohol "Alcohol")

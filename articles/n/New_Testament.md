@@ -157,7 +157,7 @@ Letters written by the [Apostle](Apostle "Apostle")
 
 ### Historicity of the New Testament
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 *See main article: [Historicity of the New Testament](Historicity_of_the_New_Testament "Historicity of the New Testament")*
 ### New Testament use of the Old Testament
 

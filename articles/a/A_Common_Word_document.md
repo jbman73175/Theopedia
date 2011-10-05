@@ -16,7 +16,7 @@ voice about the true teachings of Islam." ^[[1]](#note-0)^
 -   [A Common Word Between Us?](http://www.desiringgod.org/Blog/1032_a_common_word_between_us/),
     by [John Piper](John_Piper "John Piper")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) [ACommonWord.com](http://www.acommonword.com/)

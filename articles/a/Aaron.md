@@ -19,6 +19,6 @@ Aaron died on Mount Hor, and his son
 succeeded him as high priest. (Numbers 20:25-26; Deuteronomy
 10:4).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

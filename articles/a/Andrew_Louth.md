@@ -5,7 +5,7 @@ England. He has taught at Durham since 1996, and previously taught
 at Oxford and the University of London. Louth is an expert in the
 history and theology of Eastern Christianity.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Select publications
 
 -   *Greek East and Latin West: The Church AD 681-1071*. St

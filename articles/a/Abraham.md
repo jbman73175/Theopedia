@@ -4,7 +4,7 @@ B.C.) was the patriarch of ancient [Israel](Israel "Israel") and
 the one to whom and through whom God promised blessing to all
 nations.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 The account of his life is found in the Book of
 [Bible character::Genesis](http://www.theopedia.com/index.php?title=Bible_character::Genesis&action=edit&redlink=1 "Bible character::Genesis (page does not exist)"),
 beginning in Chapter 11 at the close of a genealogy of the sons of

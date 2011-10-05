@@ -5,6 +5,6 @@ may he work in us what is pleasing to him, through Jesus Christ, to
 whom be glory for ever and ever. Amen. (Hebrews 13:20-21)
 [NIV](NIV "NIV")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -8,7 +8,7 @@ leading the world towards progress and out of a long period of
 doubtful tradition, full of irrationality, superstition, and
 tyranny (which they saw resulting from the "Dark Ages").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Epistemology](#Epistemology)

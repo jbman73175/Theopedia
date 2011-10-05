@@ -19,7 +19,7 @@ also considered this to be the equivalent of the
 [Paradise](index.php?title=Paradise&action=edit&redlink=1 "Paradise (page does not exist)")
 of Luke 23:43.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

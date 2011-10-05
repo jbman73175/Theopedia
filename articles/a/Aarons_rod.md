@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Numbers 17
 
 1 Then the LORD spoke to Moses, saying, 2 “Speak to the sons of

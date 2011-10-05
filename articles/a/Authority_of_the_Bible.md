@@ -39,7 +39,7 @@ fallible collection of religious writings on which the early church
 arbitrarily imposed an authority that evangelical piety has
 continued to uphold" (McDonald, p. 153-54).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   The Authority of Scripture -

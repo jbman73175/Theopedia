@@ -21,7 +21,7 @@ eleventh century, they constructed the present Church of the Holy
 Sepulcher, which covers both the Tomb and the place of the
 crucifixion.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 -   [Where Was Golgotha?](http://www.gospel-mysteries.net/golgotha.html)

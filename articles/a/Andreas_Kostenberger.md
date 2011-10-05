@@ -10,7 +10,7 @@ under [D. A. Carson](D._A._Carson "D. A. Carson"). He also has a
 doctorate from the Vienna University of Economics. He has been
 teaching at SEBTS since 1996.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *God, Marriage, and Family: Rebuilding the Biblical Foundation*

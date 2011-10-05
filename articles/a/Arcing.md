@@ -4,7 +4,7 @@ the text into its propositions and then noting the logical
 relationship between the propositions."
 -[Desiring God Ministries](http://www.desiringgod.org/library/theological_qa/reading_study/arcing.html)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   *Interpreting the Pauline Epistles*, by

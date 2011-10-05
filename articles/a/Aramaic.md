@@ -82,7 +82,7 @@ was opened up to the Western World - widening the gates of
 knowledge and allowing the European Continent to enter into the
 wide realms of knowledge - all because of a language.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  The Samaritan Pentateuch was not very different from that of

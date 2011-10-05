@@ -39,7 +39,7 @@ of religion in several of his books, most notably in
 -   [Alister McGrath’s *Christian Theology* Audio Online](http://phobos.apple.com/WebObjects/MZStore.woa/wa/viewPodcast?id=266300067)
     (iTunes)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Heresy: A History of Defending the Truth* (2009)

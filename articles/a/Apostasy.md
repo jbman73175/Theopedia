@@ -8,6 +8,6 @@ apostasy is called an **apostate**.
     see Apostasy a Fide
 -   [Wikipedia entry](http://en.wikipedia.org/wiki/Apostasy "w:Apostasy")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

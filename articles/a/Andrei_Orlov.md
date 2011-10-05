@@ -7,7 +7,7 @@ Marquette University, Milwaukee WI, where he received his Ph.D. in
 special attention to the formative influences of the Old Testament
 pseudepigrapha and Jewish apocalyptic literature.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *The Enoch-Metatron Tradition* (Texts and Studies in Ancient

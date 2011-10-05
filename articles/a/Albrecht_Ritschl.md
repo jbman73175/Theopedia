@@ -13,7 +13,7 @@ Ritschl's theology attracted other theologians as well, including
 Wilhelm Herrmann and
 [Adolf von Harnack](index.php?title=Adolf_von_Harnack&action=edit&redlink=1 "Adolf von Harnack (page does not exist)").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Select publications](#Select_publications)

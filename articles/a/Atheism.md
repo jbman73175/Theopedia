@@ -11,7 +11,7 @@ reveals to all, Christian or not, that there is a God, and special
 revelation, i.e. God's Word in the Bible, reveals the particular
 Christian, Triune God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## New atheism
 
 *See main article: [New Atheism](New_Atheism "New Atheism")*

@@ -16,7 +16,7 @@ Professor of Bible at Calvin College (1956-58). From 1958 to 1979,
 when he retired, he was Professor of Systematic Theology at Calvin
 Theological Seminary in Grand Rapids, Michigan.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *The Four Major Cults: Christian Science, Jehovah's Witnesses, Mormonism, Seventh-Day Adventism*

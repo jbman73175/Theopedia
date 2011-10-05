@@ -34,7 +34,7 @@ of God, with truth, righteousness, peace, faith, salvation, and
 with the Word of God."
 [[1]](http://www.anabaptistnetwork.com/node/39)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   William R. Estep, *The Anabaptist Story*, Eerdmans Publishing

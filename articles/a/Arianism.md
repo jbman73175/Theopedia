@@ -1,7 +1,7 @@
 **Arianism** is an ancient [heresy](Heresy "Heresy") which denies
 the [divinity of Jesus Christ](Deity_of_Jesus "Deity of Jesus").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Ancient Arianism](#Ancient_Arianism)

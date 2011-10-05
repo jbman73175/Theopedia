@@ -16,7 +16,7 @@ refers to a love towards people in general and is opposed to
 *philadelpheo* ("brotherly love"), which refers to love to other
 members of the body of Christ.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Love](Love "Love")

@@ -33,7 +33,7 @@ Adam was father to
 [Age::930](http://www.theopedia.com/index.php?title=Age::930&action=edit&redlink=1 "Age::930 (page does not exist)")
 years old.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Imputation of Adam's sin](Imputation_of_Adam's_sin "Imputation of Adam's sin")

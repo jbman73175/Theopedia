@@ -15,7 +15,7 @@ theorist. Both before and after assuming the bishopric, Ambrose was
 strongly influenced by the Neoplatonic tradition, and he carried
 those ideas into his theology.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Saint Ambrose. (2009). In Encyclopædia Britannica.

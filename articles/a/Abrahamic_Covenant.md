@@ -13,7 +13,7 @@ In this covenant, God promises (see Genesis 12:1-3; 13:14-18;
     could see.
 -   To give him a sign of the covenant (circumcision).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Covenant](Covenant "Covenant")

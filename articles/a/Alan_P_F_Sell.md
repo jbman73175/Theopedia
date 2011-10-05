@@ -20,7 +20,7 @@ Ursinus College (Pennsylvania) and Acadia University (Nova Scotia),
 and an Honorary Doctorate of Theology from the University of
 Debrecen (Hungary).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *The Great Debate: Calvinism, Arminianism and Salvation*. Baker
