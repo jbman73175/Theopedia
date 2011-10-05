@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a3/Josephsmith2.jpg/180px-Josephsmith2.jpg)](http://www.theopedia.com/File:Josephsmith2.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Josephsmith2.jpg "Enlarge")
-Joseph Smith, founder of Mormonism
 **Mormonism**, also known as
 **The Church of Jesus Christ of Latter-day Saints**, is a religion
 with membership of 12,275,822 as of December 31, 2004, with 6.7
@@ -8,9 +5,10 @@ million residing outside the United States. Their headquarters are
 stationed in Utah, where roughly 65% of the state are Latter-day
 Saints (hereafter "LDS"). In a plethora of ways, Mormonism deviates
 from Biblical, historic Christian beliefs.
-**Multimedia**
 
-**Video**
+##Multimedia
+
+###Video
 
 -   [The Bible vs. The Book of Mormon](http://video.google.com/videoplay?docid=485627468301312983&q=%22The+Bible+vs.+The+Book+of+Mormon%22+playable:true)
     (Video)
@@ -19,7 +17,7 @@ from Biblical, historic Christian beliefs.
 -   [Scientists Address LDS Challenges](http://www.lhvm.org/dna_sci.htm)
     (Videos)
 
-**Audio**
+###Audio
 
 -   [Sharing the Faith With Mormons](http://thinkabouteternity.com/Assets/Sound/13_Timothy_Oliver_Witnessing_to_Mormons.mp3)
     (MP3), by Timothy Oliver
@@ -37,7 +35,7 @@ from Biblical, historic Christian beliefs.
     [Part 2](http://www.waltermartin.org/maze2.ram) (Real Audio), by
     Walter Martin
 
-**Mormon**
+###Mormon
 
 -   [Doctrine & Covenants Series](http://byubroadcasting.org/DandC/)
     (BYU Broadcasting)
@@ -49,31 +47,6 @@ from Biblical, historic Christian beliefs.
 -   [General Conference Reports](http://www.lds.org/conference/display/0,5234,49-1,00.html)
 -   [Robert Millet speaks to Mission Prep Club](http://newsnet.byu.edu/video/18773/video.asx),
     Robert Millet
-
-## Contents
-
--   [1 History](#History)
--   [2 Doctrine](#Doctrine)
--   [3 Historical development](#Historical_development)
--   [4 Culture](#Culture)
--   [5 Evangelism to Mormons](#Evangelism_to_Mormons)
--   [6 Quotes](#Quotes)
--   [7 Books](#Books)
-    -   [7.1 Inter-faith dialogue](#Inter-faith_dialogue)
-    -   [7.2 Favorable](#Favorable)
-    -   [7.3 Critical](#Critical)
-
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-    -   [9.1 Favorable](#Favorable_2)
-        -   [9.1.1 Official](#Official)
-        -   [9.1.2 Unofficial](#Unofficial)
-
-    -   [9.2 Critical or neutral](#Critical_or_neutral)
-        -   [9.2.1 Christian](#Christian)
-        -   [9.2.2 Non-Christian](#Non-Christian)
-
-
 
 ## History
 
@@ -92,6 +65,7 @@ to be (1 Peter 3:15).
 
 *See main pages: [History of the Mormon church](History_of_the_Mormon_church "History of the Mormon church")*
 and *[Joseph Smith](Joseph_Smith "Joseph Smith")*
+
 ## Doctrine
 
 The body of Mormon doctrine is a deep, tangled, and fascinating web
@@ -110,6 +84,7 @@ Lorenzo Snow: "As god once was, man is. As God is, man may
 become."
 
 *See main pages: [Doctrines of Mormonism](Doctrines_of_Mormonism "Doctrines of Mormonism"), [Deprecated doctrines within Mormonism](Deprecated_doctrines_within_Mormonism "Deprecated doctrines within Mormonism"), [Disputed doctrines within Mormonism](Disputed_doctrines_within_Mormonism "Disputed doctrines within Mormonism")*
+
 ## Historical development
 
 Historically, Mormonism highly emphasized theological distinctives
@@ -132,6 +107,7 @@ especially in discussions concerning
 *See main pages: [Development of Mormon theology](Development_of_Mormon_theology "Development of Mormon theology")*
 and
 *[Neo-Mormon theology](Neo-Mormon_theology "Neo-Mormon theology")*
+
 ## Culture
 
 Part of the typical Mormon experience involves a tight-knit family
@@ -144,6 +120,7 @@ Because of this, Mormons often have difficulty understanding the
 significant differences between Mormonism and Christianity.
 
 *See main page: [Mormon culture](Mormon_culture "Mormon culture")*
+
 ## Evangelism to Mormons
 
 A variety of methods are used by evangelical Christians to
@@ -154,6 +131,7 @@ self-understanding of doctrine. 3) The implications of
 enculturation for methods of interacting with the people.
 
 *See main page: [Evangelism to Mormons](Evangelism_to_Mormons "Evangelism to Mormons")*
+
 ## Quotes
 
 -   "[M]ost LDS converts come from nominal Protestant and Catholic
@@ -295,6 +273,3 @@ enculturation for methods of interacting with the people.
     by Peggy Fletcher Stack - "Mormon myth: The belief that the church
     is the fastest-growing faith in the world doesn't hold up"
 -   [Exmormon.org - Recovery from Mormonism](http://www.exmormon.org/)
-
-
-
