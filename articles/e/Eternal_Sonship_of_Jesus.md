@@ -8,10 +8,6 @@ in history, but that it is the essential identity of the second
 person of the Godhead. According to this doctrine, Christ is and
 always has been the Son of God." [^1]
 
-## Notable proponenets
-
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
-
 ## Notable rejectors
 
 ### Walter Martin
