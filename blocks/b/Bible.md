@@ -7,7 +7,7 @@
 	-   [Transmission](Transmission_of_the_Bible "Transmission of the Bible")
 	-   [Archaeology](Biblical_archaeology "Biblical archaeology")
 	-   [Authority](Authority_of_the_Bible "Authority of the Bible")
-	-   **Inspiration**
+	-   [Inspiration](Inspiration_of_the_Bible)
 	-   [Inerrancy](Inerrancy_of_the_Bible "Inerrancy of the Bible")
 	-   [Translation](Translation_of_the_Bible "Translation of the Bible")
 	-   [Interpretation](Interpretation_of_the_Bible "Interpretation of the Bible")
