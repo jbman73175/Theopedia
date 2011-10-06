@@ -14,7 +14,7 @@ the Bible.^[[1]](#note-0)^ In the
 (^*[[Strong's](Strong's_Concordance\ "Strong's\ Concordance")\ [\#1484](http://www.biblestudytools.net/Lexicons/Greek/grk.cgi?number=1484&version=nas)]*^)
 is used more specifically to indicate non-Jews.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Gen 10:5; Isa 11:10; 42:1,6; 49:6,22; 54:3; 60:3,5;

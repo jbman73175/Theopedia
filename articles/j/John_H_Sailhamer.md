@@ -13,7 +13,7 @@ Contrasted with more recognizable interpretations of the
 not many modern scholars have lent their support to this somewhat
 unique view.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Education
 
 -   Ph.D. University of California at Los Angeles

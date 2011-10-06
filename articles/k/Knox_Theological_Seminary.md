@@ -13,7 +13,7 @@ According to a 2002
 survey, the school scored highly in "Doctrinal Soundness,"
 acknowledging their commitment to biblical inerrancy.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Knox Theological Seminary](http://www.knoxseminary.org/)

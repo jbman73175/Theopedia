@@ -18,7 +18,7 @@ bread and wine transforms their substances into those of Jesus'
 body and blood; this doctrine is called
 [transubstantiation](Transubstantiation "Transubstantiation").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 ### Favorable

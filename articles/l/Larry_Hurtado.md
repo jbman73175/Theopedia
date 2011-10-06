@@ -15,7 +15,7 @@ Background of the [New Testament](New_Testament "New Testament"),
 -   [Larry Hurtado - How Did Jesus Become a God?](http://www.youtube.com/watch?v=pLeXpSCLrD8)
     (YouTube)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *How on Earth did Jesus Become a God? Historical Questions about Earliest Devotion to Jesus*

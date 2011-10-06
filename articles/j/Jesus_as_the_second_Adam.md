@@ -12,7 +12,7 @@ fulfilling the covenant of works which Adam failed at, and thus
 Adam is an [antitype](Biblical_typology "Biblical typology") of
 Christ. I Corinthians 15:45 speaks of Jesus as the "last Adam."
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Adam, the Second](http://bible.crosswalk.com/Dictionaries/BakersEvangelicalDictionary/bed.cgi?number=T16),

@@ -16,7 +16,7 @@ did not reject Christianity's Jewish heritage.
 recommended that the Church approve the 27 books which comprise the
 Christian [New Testament](New_Testament "New Testament").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Marcion](Marcion "Marcion")

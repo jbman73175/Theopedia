@@ -21,7 +21,7 @@ evolutionary theories and explanation with empirical observations.
 He developed an interest in creation science, and since devoted his
 efforts to Christian apologetics and creationism.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Related References
 
 -   [BrethrenAssemby.com](http://www.brethrenassembly.com/)

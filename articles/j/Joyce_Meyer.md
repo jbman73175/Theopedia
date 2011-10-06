@@ -14,7 +14,7 @@ example, Kenneth Copeland, Jesse Duplantis, Benny Hinn, and T.D.
 Jakes.
 [[1]](http://www.equip.org/articles/the-teachings-of-joyce-meyer)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 ### Pro

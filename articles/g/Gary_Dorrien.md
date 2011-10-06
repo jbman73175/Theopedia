@@ -11,7 +11,7 @@ of Social Ethics.
 -   [Excerpts from talk on Liberal Theology](https://www.utsnyc.edu/Page.aspx?pid=1042)
     (Union Theological Seminary)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Faculty page at Union](https://www.utsnyc.edu/Page.aspx?pid=351)

@@ -44,7 +44,7 @@ although a different writing style or varying language-use may be
 found, scholars still believe that Moses composed the more
 essential and theological portions of the Pentateuch.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Mosaic authorship of the Pentateuch](Mosaic_authorship_of_the_Pentateuch "Mosaic authorship of the Pentateuch")

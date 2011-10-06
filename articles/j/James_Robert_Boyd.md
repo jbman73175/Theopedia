@@ -2,7 +2,7 @@
 Church and a principal of the Black River Literary and Religious
 Institute both in Watertown, New York.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [*Elements of Rhetoric and Literary Criticism: With Copious Practical*](http://www.archive.org/details/elementsrhetori03boydgoog)

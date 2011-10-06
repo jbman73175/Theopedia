@@ -19,7 +19,7 @@ therefore must be practiced by Christians in all cultures, and
 other strictly cultural expressions of Christianity that can be
 changed and adapted to a different culture.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Biblical Missiology](http://theresurgence.com/files/audio/jeff_vanderstelt_2008-02-27_audio_tnc_biblical_missiology.mp3)

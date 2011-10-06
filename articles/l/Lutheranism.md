@@ -22,7 +22,7 @@ As of 2000 there are roughly seventy million Lutherans worldwide of
 whom between nine and ten million live in the United States and
 Canada. ^[[3]](#note-2)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 History](#History)

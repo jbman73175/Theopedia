@@ -12,7 +12,7 @@ published works are a commentary on *Romans*,
 *Redemption Accomplished and Applied*, *Principles of Conduct*,
 *The Imputation of Adam's Sin, Baptism, and Divorce*.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   [Iain Murray](Iain_Murray "Iain Murray"),

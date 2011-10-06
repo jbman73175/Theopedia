@@ -23,7 +23,7 @@ Tübingen, Germany where he studied under
 
 -   [Love's Memory: Theology and the Art of Remembering](http://www.calvin.edu/publications/stob/speakers/volf.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *The Sun Is Not Afraid of the Darkness: Theological Meditations on the Poetry of Aleksa Santic*,

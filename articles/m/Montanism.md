@@ -21,6 +21,6 @@ The most widely known Montanist was undoubtedly
 coined the term "*Trinity*" but who later rejected Christian
 orthodoxy.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

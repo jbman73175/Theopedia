@@ -19,7 +19,7 @@ University.
 -   [Interviewed about Christianity and postmodernism](http://www.marshillaudio.org/resources/mp3/MHAJ-82-Smith.mp3)
     (MP3), Mars Hill Audio Journal, 2006
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Postmodernism](Postmodernism "Postmodernism")

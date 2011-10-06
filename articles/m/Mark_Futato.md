@@ -11,6 +11,6 @@ He has written several volumes on the Psalms, including most
 recently *Interpreting the Psalms: An Exegetical Handbook* (Kregel,
 2007), as well as *Beginning Biblical Hebrew* (Eisenbrauns, 2003).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

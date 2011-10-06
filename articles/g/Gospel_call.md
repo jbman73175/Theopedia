@@ -5,7 +5,7 @@ similar stress as Christ did on the cost of following Christ, and
 make sinners face it soberly before we urge them to respond to the
 message of free forgiveness." ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Verses linking the Gospel to obedience
 
 -   Matthew 28:18-20

@@ -24,7 +24,7 @@ Lee Laws, a British journalist for the *Watchman-Examiner*, in 1920
 to designate those who were willing to do "battle royal for the
 Fundamentals." [[1]](http://mb-soft.com/believe/text/fundamen.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Fundamentalism versus broader Evangelicalism](#Fundamentalism_versus_broader_Evangelicalism)

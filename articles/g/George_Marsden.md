@@ -7,7 +7,7 @@ of the Century,” by Christianity Today. His
 *Jonathan Edwards: A Life* won the 2004 John Pollock Award for
 Christian Biography.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Education
 
 -   Haverford College, B.A., 1959, honors in history

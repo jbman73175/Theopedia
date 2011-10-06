@@ -11,7 +11,7 @@ His two most notable works were
 *The Office and Work of the Holy Spirit* and
 *The Doctrine of Justification*.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [The doctrine of justification: an outline of its history in the Church](http://www.archive.org/details/doctrinejustifi00buchgoog)

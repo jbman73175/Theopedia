@@ -23,7 +23,7 @@ continuing source of friction between the east and the west and was
 eventually elevated to become one of the "official" causes of the
 [Great Schism](Great_Schism "Great Schism") in 1054 A.D.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Trinity](Trinity "Trinity")

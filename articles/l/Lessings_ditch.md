@@ -11,7 +11,7 @@ acceptable mode of understanding the world," and thus he was
 a source of description of any truth, let alone the truth of
 [God](God "God")."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

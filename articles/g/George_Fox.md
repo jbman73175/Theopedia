@@ -9,7 +9,7 @@ radical and uncompromising approach to the
 text popular even among non-Quakers for its vivid account of his
 personal journey.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Quakers](Quakers "Quakers")

@@ -3,7 +3,7 @@ more weekly attendants. ^[[1]](#note-0)^ "[T]he total number has
 increased from 350 in 1990 to over 600 in 2000 and there are now
 over 1200 megachurches in the US" as of 2008. ^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  [↑](#ref-0) Amy C. Sims,

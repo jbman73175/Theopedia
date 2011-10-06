@@ -7,7 +7,7 @@ covenant, God promises:
 -   To make Israel a kingdom of priests and a holy nation. God
     followed this up with requirements and laws.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Covenant](Covenant "Covenant")

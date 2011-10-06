@@ -4,7 +4,7 @@ flow of involuntary passions. In the words of the Westminster
 Confession of Faith, God is "without body, parts, or passions,
 immutable." ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Various views
 
 It is important to note that the debate regarding the doctrine of

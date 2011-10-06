@@ -13,7 +13,7 @@ Roman-Catholic priest who works in Chile.
 
 The IRTI will continue to publish its own bulletin.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Gerard Mannion, Lewis Seymour

@@ -4,7 +4,7 @@ B.C.^[[1]](#note-AdaYardeniArticle)^ The name,
 *Gabriel's Revelation*, was given to it by Yardeni because of a
 character named "Gabriel" who speaks in the first person.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Gabriel's Revelation](http://www.rfmedia.org/blog/audio/rf_audiocast-2008-07-09-61966.mp3),

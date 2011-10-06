@@ -5,7 +5,7 @@ is always free... He is not bound to the dictates of anyone else.
 He does make promises, to be sure, which obligate him to do certain
 things, but he makes those promises voluntarily." ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) [John Frame](John_Frame "John Frame"),

@@ -15,7 +15,7 @@ conferences. His theology tends to be regarded as
 [postmodern](Postmodern "Postmodern") and
 [postconservative](Postconservative "Postconservative").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [The One and the Many: Toward a Theology of Christian Pluralism](http://www.ptsstudents.org/ptsaudio/special/ecc/03_lecture.mp3)

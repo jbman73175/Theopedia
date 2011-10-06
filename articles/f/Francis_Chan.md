@@ -9,7 +9,7 @@ President of Eternity Bible College.
 
 -   [Francis Chan sermons](http://www.cornerstonesimi.com/getasermon)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   With Danae Yankoski,

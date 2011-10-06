@@ -3,7 +3,7 @@ manifested in the flesh, vindicated by the Spirit, seen by angels,
 proclaimed among the nations, believed on in the world, taken up in
 glory." - 1 Timothy 3:16 [ESV](ESV "ESV")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Birth](#Birth)

@@ -17,7 +17,7 @@ The following is from the
 -   6,584 people groups receive .5% of the Christian money
     worldwide (over a trillion dollars).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Externa links
 
 -   [Joshua Project](http://www.joshuaproject.net/)

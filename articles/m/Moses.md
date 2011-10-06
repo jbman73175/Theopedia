@@ -9,7 +9,7 @@ the first five books of the Bible (known collectively as the
 and most of [Deuteronomy](Deuteronomy "Deuteronomy"). Moses is not
 only important to Christians, but also to Jews and Muslims.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Early life](#Early_life)

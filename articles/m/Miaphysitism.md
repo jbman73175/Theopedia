@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Pope Shenouda III: The Nature of Christ (PDF)](http://www.copticchurch.org/Texts/Spirituals/Natofchr.pdf)

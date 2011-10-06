@@ -27,7 +27,7 @@ Wesleyans and
 have used the term in ways which seem to make it part of the basis
 for final justification.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Imputed righteousness](Imputed_righteousness "Imputed righteousness")

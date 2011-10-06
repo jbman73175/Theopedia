@@ -19,7 +19,7 @@ known as Israel. His twelve male children were
 [Joseph](Joseph "Joseph"), and
 [Benjamin](index.php?title=Benjamin&action=edit&redlink=1 "Benjamin (page does not exist)").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Gentile](Gentile "Gentile")

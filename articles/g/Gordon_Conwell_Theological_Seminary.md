@@ -10,7 +10,7 @@ interdenominational seminary whose constituents are united in the
 belief that the Bible is the infallible, authoritative Word of
 God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Gordon-Conwell Theological Seminary](http://www.gcts.edu/)

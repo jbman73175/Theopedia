@@ -63,7 +63,7 @@ word, that we may be found of him in peace." ^[[1]](#note-0)^
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Judgment Seat
 
 The Judgment Seat of Christ (or *bema seat*) is one of several

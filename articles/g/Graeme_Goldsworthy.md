@@ -19,7 +19,7 @@ and a ThM and PhD from Union Theological Seminary in Virginia.
 -   [The necessity and validity of Biblical Theology](http://www.sbts.edu/MP3/spring2008/20080318goldsworthy.mp3)
     (MP3), at Southern Baptist Theological Seminary (3-18-08)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Biblical theology](Biblical_theology "Biblical theology")

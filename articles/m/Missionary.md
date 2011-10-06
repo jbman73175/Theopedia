@@ -15,7 +15,7 @@ The term is most commonly used to refer to
 [Christian](Christian "Christian") missionaries, although it can
 generally apply to proselytizing of any creed or ideology.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Evangelism](Evangelism "Evangelism")

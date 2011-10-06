@@ -19,7 +19,7 @@ earlier *Limited Commission* of Matthew 10:5-42, in which they were
 to restrict their mission to their fellow Israelites, to whom Jesus
 referred as "the lost sheep of the house of Israel" Matthew 15:24.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Gospel message](Gospel_message "Gospel message")

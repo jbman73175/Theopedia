@@ -15,7 +15,7 @@ His most influential work is the multi-volume
 *The Second Vatican Council and the New Catholicism*; and
 *The Triumph of Grace in the Theology of Karl Barth*.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Berkouwer's works in English and Dutch](http://alexandria.calvin.edu/uhtbin/cgisirsi/WAtfNmP0wt/SIRSI/54480017/88)

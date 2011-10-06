@@ -7,6 +7,6 @@ describes Matthew's call to be a disciple. In the parallel passages
 in Mark and Luke he is referred to as Levi, and Mark adds that he
 was "the son of Alphaeus".
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

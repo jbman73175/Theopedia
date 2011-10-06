@@ -8,7 +8,7 @@ is a leading figure in the
 [openness of God movement](Openness_of_God_movement "Openness of God movement")
 and has written several books on the topic.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   Those Who've Never Heard: A Survey of the Major Views

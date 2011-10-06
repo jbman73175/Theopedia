@@ -13,7 +13,7 @@ terms of liberation, and as a bringer of justice. This is
 interpreted as a call to arms to carry out this mission of justice
 -- literally by some.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Liberation theologians and supporters of liberation theology
 
 -   Hans Kung, Germany (b. 1928)

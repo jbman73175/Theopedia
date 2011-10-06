@@ -2,7 +2,7 @@
 [Science and Religion](Science_and_theology "Science and theology")
 at the University of Oxford.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Science and Religion: Some Historical Perspectives*. Cambridge

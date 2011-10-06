@@ -9,7 +9,7 @@ Africa. His work focuses primarily on the dialogue between
 
 He has a D.Th. from the Free University of Amsterdam.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [God Under the Microscope](http://www.youtube.com/watch?v=XkNAFYLBbxc)

@@ -19,7 +19,7 @@ agreed to what was known as the Common Statement. ^[[3]](#note-2)^
 The World Methodist Council accepted the statement on July 23,
 2006. ^[[4]](#note-3)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

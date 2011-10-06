@@ -4,7 +4,7 @@ Faith-Based and Neighborhood Partnerships by Barack Obama in early
 2009. He had been Obama's religious affairs director during the
 2008 presidential campaign.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Joshua DuBois: Obama's Pastor-in-Chief](http://www.time.com/time/nation/article/0,8599,1877501,00.html)

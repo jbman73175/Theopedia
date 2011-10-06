@@ -13,7 +13,7 @@ the Roman Catholic Church. Francis Beckwith has an MA and PhD from
 Fordham University in Philosophy, and a Master of Juridical Studies
 (MJS) from the Washington University School of Law, St. Louis.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Beckwith's conversion](#Beckwith.27s_conversion)

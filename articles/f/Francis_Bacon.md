@@ -25,7 +25,7 @@ Fall and its consequences, the importance of the earthly vocation,
 the sanctity of work, and the duty to transform
 society."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) *The Fall of Man and the Foundations of Science*.

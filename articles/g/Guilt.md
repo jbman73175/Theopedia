@@ -12,6 +12,6 @@ together, saith the Lord: though your sins be as scarlet, they
 shall be as white as snow; though they be red like crimson, they
 shall be as wool” (Isaiah 1:18)." Lehman Strauss
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -16,7 +16,7 @@ blog in an ongoing discussion between
 [C.J. Mahaney](C.J._Mahaney "C.J. Mahaney"), and
 [Albert Mohler](Albert_Mohler "Albert Mohler").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

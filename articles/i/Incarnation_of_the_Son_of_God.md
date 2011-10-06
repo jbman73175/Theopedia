@@ -39,7 +39,7 @@ nature from the Virgin Mary. These two natures, human and divine,
 were [hypostatically](Hypostatic_union "Hypostatic union") united
 into the one personhood of Jesus Christ.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [Thomas F. Torrance](Thomas_F._Torrance "Thomas F. Torrance"),

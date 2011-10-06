@@ -15,6 +15,6 @@ Theology, Harvard Theological Review, Missiology, and International
 Journal of Systematic Theology, as well as periodicals such as
 Christianity Today, The Christian Century, and Sojourners.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

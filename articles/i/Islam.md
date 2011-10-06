@@ -7,7 +7,7 @@ authoritative. The root of the term *Islam* is "al-silm" which
 means "submission" or "surrender." The largest concentration of
 Muslims live in the [10/40 window](10/40_window "10/40 window").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 **Christian**

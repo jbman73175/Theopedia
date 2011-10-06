@@ -20,7 +20,7 @@ Silva was one of the translators of the
 and the recent
 [English Standard Version](English_Standard_Version "English Standard Version").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Select publications
 
 -   *Has the Church Misread the Bible* (1987)

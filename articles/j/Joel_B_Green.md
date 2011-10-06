@@ -20,7 +20,7 @@ Green is an expert on
 [Theological](Theological_interpretation "Theological interpretation")
 and [Biblical Hermeneutics](Hermeneutics "Hermeneutics").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected works](#Selected_works)

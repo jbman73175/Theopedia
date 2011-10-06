@@ -9,6 +9,6 @@ Lazarus had at least two sisters, [Mary](Mary "Mary") and
 [Martha](index.php?title=Martha&action=edit&redlink=1 "Martha (page does not exist)").
 ^[***[citations\ needed](http://www.theopedia.com/Theopedia:Writing_guide#Reference_your_work\ "Theopedia:Writing\ guide")***]^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

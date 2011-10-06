@@ -13,7 +13,7 @@ is well known for his Cultural-Linguistic approach to
 [Hans Frei](Hans_Frei "Hans Frei"), Paul Holmer and David Kelsey
 have had a major influence on his thought.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Select publications](#Select_publications)

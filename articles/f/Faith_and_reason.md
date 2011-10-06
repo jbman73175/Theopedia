@@ -3,7 +3,7 @@
 -   [Faith and Reason](http://www.desiringgod.org/media/audio/2007/20070315.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   [Paul Helm](Paul_Helm "Paul Helm"), *Faith With Reason*.

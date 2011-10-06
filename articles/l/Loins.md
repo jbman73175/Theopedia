@@ -8,6 +8,6 @@ begat us (James 1:18), since blood and water are associated with
 physical birth. They relate the Old Testament usage of the word
 "loins" for begetting to the rupture of Christ's side.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

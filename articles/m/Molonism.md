@@ -13,7 +13,7 @@ Part of the series on the
 -   [Decrees of God](Decrees_of_God "Decrees of God")
 -   [Order of God's decrees](Order_of_God's_decrees "Order of God's decrees")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 
 **Multimedia**

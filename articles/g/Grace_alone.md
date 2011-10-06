@@ -16,6 +16,6 @@ action or condition provided by man.
     [Windows Media](http://broadcast.ligonier.org/playlists/rym20051103.asx)),
     by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

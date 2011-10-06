@@ -21,7 +21,7 @@ eternal punishment, nor because they are less guilty than others,
 nor because they die in infancy, but simply because God in His
 infinite love has chosen them in Christ before the foundation of
 the world.^[[1]](#note-0)^
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Passages cited in support of infant salvation](#Passages_cited_in_support_of_infant_salvation)

@@ -28,7 +28,7 @@ commission and recently completed a book on
 *The Eucharist and Ecumenism: Let Us Keep the Feast*, published by
 Cambridge University Press in 2008.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Publications](#Publications)

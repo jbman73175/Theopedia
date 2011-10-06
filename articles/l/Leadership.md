@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Recommended Books for Leadership](http://www.denverseminary.edu/dj/articles2006/0600/0601.php),

@@ -8,7 +8,7 @@ selling book in the history of the world and, perhaps more than any
 other book or Bible translation, helped form modern Western
 civilization.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Attributes of the KJV](#Attributes_of_the_KJV)

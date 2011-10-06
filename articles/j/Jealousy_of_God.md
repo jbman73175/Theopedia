@@ -9,7 +9,7 @@ that "God's desire for glory drives his constant
 the lives of his people. He wants to be known, and recognized for
 who he is, so that he will receive his deserved glory (p. 33).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Relevant passages](#Relevant_passages)

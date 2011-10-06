@@ -18,7 +18,7 @@ approximately 10,000 others. Notable alumni include Christian
 comedian and vocalist Mark Lowry, and all the members of Christian
 rock band dc Talk.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Liberty University](http://www.liberty.edu/) official site

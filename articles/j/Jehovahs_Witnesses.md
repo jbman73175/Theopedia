@@ -40,7 +40,7 @@ religious, or political conflicts.
 -   [Keith Walker on the Jehovah's Witnesses](http://www.concordia-impact.com/audio/adultbibleclass/JWandMormons/2007-03-18_JWandMormons_Part1.mp3)
     (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  [↑](#ref-0) *Watchtower*, Apr. 1, 1919; see also *Watchtower*,

@@ -8,7 +8,7 @@ pre-tribulation viewpoint of the end of the world. Published by
 Tyndale House, the series has sold over 60,000,000 copies.
 ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

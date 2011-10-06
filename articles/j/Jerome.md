@@ -5,7 +5,7 @@ biblical text of the
 [Roman Catholic Church](Roman_Catholic_Church "Roman Catholic Church").
 He is recognized by the Vatican as a Doctor of the Church.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [NPNF2-06. Jerome: The Principal Works of St. Jerome](http://www.ccel.org/ccel/schaff/npnf206.html)

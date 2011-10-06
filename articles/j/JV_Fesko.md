@@ -14,7 +14,7 @@ the University of Aberdeen in Scotland.
 -   ["The Reformed Doctrine of Justification"](http://odeo.com/episodes/23470277-The-Reformed-Doctrine-of-Justification)
     (Oct 10, 2008)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   *Justification: Understanding the Classic Reformed Doctrine*.

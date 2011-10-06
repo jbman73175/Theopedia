@@ -14,7 +14,7 @@ God is 'within' the universe in that God is its sustaining cause.
 -   "In Christ all things hold together" (Colossians 1:17)
     *[(see on Colossians 1)](Colossians_1 "Colossians 1")*
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Geisler, p. 527.

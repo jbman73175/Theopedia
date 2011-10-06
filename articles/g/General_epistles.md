@@ -9,6 +9,6 @@ The **General (or Catholic) epistles** include:
 -   [Third Epistle of John](Third_Epistle_of_John "Third Epistle of John")
 -   [Epistle of Jude](Epistle_of_Jude "Epistle of Jude")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

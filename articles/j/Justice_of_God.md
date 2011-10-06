@@ -10,7 +10,7 @@ is mercy, but we never see injustice in God." -
 -   [The Justice of God, or Does God Punish Sin](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/101_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Wrath of God](Wrath_of_God "Wrath of God")

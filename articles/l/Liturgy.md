@@ -5,7 +5,7 @@ readings, and teaching. Liturgies are central to worship in the
 [Anglican](Anglicanism "Anglicanism"), and
 [Lutheran](Lutheran "Lutheran") churches, for example.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Worship](Worship "Worship")

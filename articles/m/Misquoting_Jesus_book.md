@@ -7,7 +7,7 @@ agenda."^[[1]](#note-0)^ He notes that "almost none of the variants
 that Ehrman discusses involve sayings by
 [Jesus](Jesus "Jesus")"^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Variants discussed](#Variants_discussed)

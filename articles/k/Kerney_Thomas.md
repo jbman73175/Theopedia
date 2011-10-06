@@ -10,7 +10,7 @@ administrative assistant under the leadership of Bobby R.
 Henderson." ^[[1]](#note-0)^ His theology and practices have been
 questioned by many and remain biblically suspect.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## False teachings
 
 Thomas teaches that through the use of a "prayer handkerchief" and

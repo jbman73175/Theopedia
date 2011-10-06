@@ -17,7 +17,7 @@ God.
 As Christians, we are released from the condemnation of the Law,
 which exposed our sin and rightly condemned us to hell.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Divine revelation](#Divine_revelation)

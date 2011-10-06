@@ -33,7 +33,7 @@ righteous living. Isaiah writes,
 > Will you call this a fast,   
 > and a day acceptable to the LORD?
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Biblical examples
 
 -   [Moses](Moses "Moses"),

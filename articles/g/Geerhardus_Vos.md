@@ -23,7 +23,7 @@ his 39 years at Princeton, Dr. Vos laid the groundwork for his
 best-known books: *Biblical Theology: Old and New Testaments* and
 *The Pauline Eschatology*.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected works
 
 -   *The Pauline Eschatology*, P & R Publishing Co.,

@@ -29,7 +29,7 @@ the Rights of Man. They dismissed Christianity as a relic of the
 past. During the course of the revolution, they installed the
 Goddess of Reason in Notre Dame Cathedral." ^[1](#References)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  Gene Edward Veith, *Postmodern Times* (Wheaton:Crossway, 1994)

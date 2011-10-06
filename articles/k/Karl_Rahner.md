@@ -22,7 +22,7 @@ The philosophical sources for Rahner's theology include
 aspect of contemporary continental philosophy. Rahner attended
 lectures by Heidegger in Freiburg.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [How to read Karl Rahner](http://www.scriptoriumdaily.com/2007/04/28/how-to-read-karl-rahner/),

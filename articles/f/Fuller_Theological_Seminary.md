@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 "**Fuller Theological Seminary**, embracing the School of Theology,
 School of Psychology, and School of Intercultural Studies, is an
 evangelical, multidenominational, international, and multiethnic

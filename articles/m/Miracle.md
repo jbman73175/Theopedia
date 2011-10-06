@@ -8,7 +8,7 @@ A **miracle**, broadly defined, is any action in time where the
 normal operation of nature is suspended by the agency of a
 supernatural action.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further definitions
 
 > An interference with Nature by supernatural power.

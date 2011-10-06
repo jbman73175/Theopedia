@@ -9,7 +9,7 @@ The text's misleading title is modern; the only connection with
 that he is the only apostle mentioned (at 73,8). The text makes no
 claim to be from Philip.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Gnosticism](Gnosticism "Gnosticism")

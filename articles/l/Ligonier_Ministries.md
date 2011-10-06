@@ -4,6 +4,6 @@ organization the produces materials by
 [John Gerstner](John_Gerstner "John Gerstner") and
 [Keith Mathison](Keith_Mathison "Keith Mathison").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

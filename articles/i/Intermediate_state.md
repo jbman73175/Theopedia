@@ -26,7 +26,7 @@ incompleteness, and all of the promises of God are not fully
 experienced. What the intermediate state consists of is still
 debated, but a few main views persist:
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Views](#Views)

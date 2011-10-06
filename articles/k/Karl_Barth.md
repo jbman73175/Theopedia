@@ -11,7 +11,7 @@ theological [liberalism](Liberalism "Liberalism") and
 [modernism](Modernism "Modernism"), he is sometimes called "the
 Father of [Neo-Orthodoxy](Neo-Orthodoxy "Neo-Orthodoxy")".
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [David Clough on Karl Barth](http://www.youtube.com/watch?v=MLnylZM14w0)

@@ -10,7 +10,7 @@ Wilbur Award three times and has received several prizes from the
 Religion Newswriters Association as well as a Templeton Foundation
 award for his articles on science and religion.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Measure of God: Can We Reconcile Science and Religion](http://www.archive.org/details/MeasureOfGodCanWeReconcileScienceAndReligion)

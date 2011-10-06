@@ -22,7 +22,7 @@
     ([Real](http://broadcast.ligonier.org/playlists/rym20060106.m3u),
     [Win](http://broadcast.ligonier.org/playlists/rym20060106.asx))
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Epistemology](Epistemology "Epistemology")

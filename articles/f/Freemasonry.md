@@ -23,7 +23,7 @@ West^[[5]](#note-4)^^[[6]](#note-5)^^[[7]](#note-6)^^[[8]](#note-7)^.
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) According to the

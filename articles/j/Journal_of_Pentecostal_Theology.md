@@ -16,7 +16,7 @@ the CGC
 Brill announced a portfolio swap, signaling that JPT would now be
 published by Brill no longer by Sage.^[[3]](#note-2)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  [↑](#ref-0) Peter Althouse, Jürgen Moltmann.

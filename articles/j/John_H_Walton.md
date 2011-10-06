@@ -9,7 +9,7 @@ for 20 years. He recieved a Masters in Old Testament Studies from
 Wheaton and a PhD in Hebrew and Cognitive Studies from Hebrew Union
 College-Jewish Institute of Religion.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Old Testament Studies
 
 Walton is an Old Testament Scholar. His major emphasis has been

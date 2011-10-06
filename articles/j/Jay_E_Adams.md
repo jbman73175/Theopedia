@@ -2,7 +2,7 @@
 pioneering efforts in biblical counseling as set forth in his 1970
 book *Competent to Counsel?*.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [David A. Powlison](David_A._Powlison "David A. Powlison").

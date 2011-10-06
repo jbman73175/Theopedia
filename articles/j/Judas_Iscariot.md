@@ -41,7 +41,7 @@ apparent discrepancy between the two accounts, and some depictions
 in art portray Judas hanging himself, but with his stomach
 exploding as he does so.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Apostle](Apostle "Apostle")

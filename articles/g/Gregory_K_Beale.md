@@ -39,7 +39,7 @@ teams.
 -   [The Erosion of Inerrancy in Evangelicalism](http://www.podtrac.com/pts/redirect.mp3?http://www.reformedforum.org/podpress_trac/web/549/0/ctc054.mp3)
     (MP3), an interview
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Theology](#Theology)

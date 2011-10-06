@@ -2,7 +2,7 @@ The **Last Supper** is the meal [Jesus](Jesus "Jesus") had with the
 twelve disciples on the night he was betrayed. The event is
 celebrated in certain denominations on Maundy Thursday.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Events at the Last supper
 
 *(Note: The events below are not necessarily in the order they happened)*

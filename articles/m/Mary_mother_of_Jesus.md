@@ -10,7 +10,7 @@ was also a relative to Elizabeth who bore a son,
 [John the Baptist](John_the_Baptist "John the Baptist") (Luke
 1.36).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Mary Magdalene](Mary_Magdalene "Mary Magdalene")

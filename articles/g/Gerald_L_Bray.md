@@ -13,7 +13,7 @@ visiting fellow at General Theological Seminary in New
 York."^[[1]](#note-0)^ Bray has an M.Litt. and D. Litt. from the
 University of Paris-Sorbonne.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected publications](#Selected_publications)

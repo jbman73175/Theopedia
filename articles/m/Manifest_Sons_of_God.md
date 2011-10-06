@@ -2,7 +2,7 @@ The **Manifest Sons of God** is a false teaching and a defining
 belief of the
 [Latter Rain movement](Latter_Rain_movement "Latter Rain movement").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ##### Claims
 
 -   An elite group of believers will be revealed in the end times

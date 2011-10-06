@@ -69,7 +69,7 @@ Adam's sin was not imputed to Christ (nor was Christ born with a
 sinful nature) because Jesus was born of the virgin Mary. The
 imputation of sin takes place through the federal head.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Original sin](Original_sin "Original sin")

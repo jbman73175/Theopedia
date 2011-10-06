@@ -23,7 +23,7 @@ cooperating with God's grace. For the Protestant, the believer is
 *declared* righteous when he comes to faith, based on the
 righteousness of Christ credited (imputed) to him.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

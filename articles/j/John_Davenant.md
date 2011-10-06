@@ -24,7 +24,7 @@ Synod of Dort and in 1621 was appointed by King James I to be
 Bishop of Salisbury, in which capacity he served until his death in
 1641.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Davenant's theology](#Davenant.27s_theology)

@@ -8,7 +8,7 @@ to be expected of all true followers of Jesus in which all are
 engaged in obeying the
 [Great commission](Great_commission "Great commission").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   Alan J. Roxburgh and M. Scott Boren,

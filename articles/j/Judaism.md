@@ -16,6 +16,6 @@ Judaism. Each denomination believes in the God of the Old Testament
 but, of course, does not believe that Jesus of Nazereth was the
 Messiah, much less the Son of God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

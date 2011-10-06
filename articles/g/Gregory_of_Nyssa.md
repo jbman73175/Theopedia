@@ -23,7 +23,7 @@ influence on the
 seen in its concept of *[theosis](Theosis "Theosis")* or
 "divinization".
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Writings
 
 -   *Why there are not three Gods*

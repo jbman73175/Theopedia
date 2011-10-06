@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Moore Theological College** is the primary training college for
 the clergy of the evangelical [Anglican](Anglicanism "Anglicanism")
 Diocese of Sydney.

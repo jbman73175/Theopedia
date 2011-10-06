@@ -20,7 +20,7 @@ called *Against the Greeks* (or *Against Apion*). As a Roman
 citizen, he took the name Flavius Josephus. He apparently died
 about 100 A.D., at more than sixty years old.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Historicity of Jesus](Historicity_of_Jesus "Historicity of Jesus")

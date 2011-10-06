@@ -7,6 +7,6 @@ a local church. The seminary, located on the same campus as
 in Sun Valley, CA, is known for its biblical, exegetical,
 theological, and expositional emphasis.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

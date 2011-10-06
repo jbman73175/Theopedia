@@ -8,7 +8,7 @@ Moses wrote *all* of the Pentateuch, but that he had a major hand
 in not only its writing and development, but even its composition
 (i.e. how it was put together).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Support for Mosaic authorship](#Support_for_Mosaic_authorship)

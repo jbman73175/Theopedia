@@ -19,7 +19,7 @@ faith^[[4]](#note-3)^ and presents an example of resisting
 [temptation](index.php?title=Temptation&action=edit&redlink=1 "Temptation (page does not exist)")
 (Gen 39).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Joseph in church history
 
 [Justin Martyr](Justin_Martyr "Justin Martyr"),

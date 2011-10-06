@@ -16,7 +16,7 @@ Fellowship, and emphasizes the use of
 [Polemics](Polemics "Polemics") with Muslims, over
 [Apologetics](Apologetics "Apologetics").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [A text of peace: Is Koran or Bible better?](http://www.thonline.com/multimedia/?id=1916)

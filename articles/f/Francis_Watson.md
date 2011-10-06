@@ -9,7 +9,7 @@ respected scholar in the areas of
 [theological interpretation of Scripture](Theological_interpretation_of_Scripture "Theological interpretation of Scripture").
 He has an MA and DPhil from Oxford.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected publications](#Selected_publications)

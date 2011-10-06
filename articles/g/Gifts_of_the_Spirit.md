@@ -9,7 +9,7 @@ Part of the series on the
 -   [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
 -   [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Types of gifts](#Types_of_gifts)

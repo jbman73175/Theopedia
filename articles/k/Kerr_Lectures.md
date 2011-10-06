@@ -48,7 +48,7 @@ Lecture Title
 2008:
 [Paul T. Nimmo](index.php?title=Paul_T._Nimmo&action=edit&redlink=1 "Paul T. Nimmo (page does not exist)")
  ?
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [The Test of Life](http://ext.sagepub.com/cgi/pdf_extract/20/8/344)

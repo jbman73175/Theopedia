@@ -12,7 +12,7 @@ Hebrews 10:29), prayer made to the “throne of grace” (Hebrews
 4:16), and the grace that is given to the saints which enables them
 to build up another (Ephesians 4:7; 1 Peter 4:10)." - Bob
 Deffinbaugh [[1]](http://www.bible.org/page.asp?page_id=1523)
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Quotes](#Quotes)

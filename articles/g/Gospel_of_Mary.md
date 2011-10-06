@@ -15,7 +15,7 @@ no one has yet found an entire manuscript.
 "The Gospel of Mary exalts Mary Magdalene over the male disciples
 of Jesus."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Quotes
 
 -   "All natures, all formed things, all creatures exist in and
