@@ -13,45 +13,6 @@ Protestant Pope," Graham has often advised U.S. presidents and
 continues to be listed as one of the "Ten Most Admired Men in the
 World" in many polls.
 
-## Contents
-
--   [1 Childhood](#Childhood)
--   [2 Conversion](#Conversion)
--   [3 College](#College)
--   [4 Marriage and pastorate](#Marriage_and_pastorate)
--   [5 Full-time evangelism](#Full-time_evangelism)
--   [6 College president](#College_president)
--   [7 Large-scale evangelism](#Large-scale_evangelism)
-    -   [7.1 First citywide campaigns](#First_citywide_campaigns)
-    -   [7.2 Widespread recognition](#Widespread_recognition)
-    -   [7.3 India: Christianity is not a western religion](#India:_Christianity_is_not_a_western_religion)
-    -   [7.4 Marathon crusade in New York City](#Marathon_crusade_in_New_York_City)
-    -   [7.5 All over the world](#All_over_the_world)
-    -   [7.6 Graham preaches only at end of crusades](#Graham_preaches_only_at_end_of_crusades)
-
--   [8 Publishing work](#Publishing_work)
-    -   [8.1 Movies and national radio](#Movies_and_national_radio)
-
--   [9 Confidant to presidents](#Confidant_to_presidents)
-    -   [9.1 Harry Truman](#Harry_Truman)
-    -   [9.2 Dwight Eisenhower](#Dwight_Eisenhower)
-    -   [9.3 John Kennedy](#John_Kennedy)
-    -   [9.4 Lyndon Johnson](#Lyndon_Johnson)
-    -   [9.5 Richard Nixon](#Richard_Nixon)
-    -   [9.6 Gerald Ford](#Gerald_Ford)
-    -   [9.7 Jimmy Carter](#Jimmy_Carter)
-
--   [10 Into Scenes of Conflict](#Into_Scenes_of_Conflict)
-    -   [10.1 Civil Rights in the United States](#Civil_Rights_in_the_United_States)
-    -   [10.2 Catholics vs. Protestants in Ireland](#Catholics_vs._Protestants_in_Ireland)
-    -   [10.3 South Africa](#South_Africa)
-    -   [10.4 In Communist and other Dictatorships](#In_Communist_and_other_Dictatorships)
-
--   [11 Beliefs and Teachings](#Beliefs_and_Teachings)
--   [12 World Emergency Fund](#World_Emergency_Fund)
--   [13 Reference](#Reference)
--   [14 External links](#External_links)
-
 ## Childhood
 
 Billy Graham was born on November 7, 1918, on a dairy farm near

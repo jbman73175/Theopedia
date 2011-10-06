@@ -49,13 +49,6 @@ This article/section has been tagged since **February 2006**.|}}
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-## Contents
-
--   [1 General](#General)
--   [2 Themes](#Themes)
--   [3 Outline](#Outline)
--   [4 Chapters](#Chapters)
--   [5 External Links and References](#External_Links_and_References)
 
 ## General
 

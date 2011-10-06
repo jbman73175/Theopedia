@@ -40,7 +40,7 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Truth and Suffering: A Journey in Job](http://www.veritas.org/mediafiles/VTS-Bunnell-1999-99VFCB11.mp3),
     by Doug Bunnell (MP3)

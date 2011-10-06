@@ -40,7 +40,7 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Lamentations](http://biblicaltraining.org/audio/OT500/ots_16a.mov)
     (QuickTime), by Douglas Stuart

@@ -10,13 +10,6 @@ leaders in denominations with
 *[episcopal](Episcopal_(polity) "Episcopal (polity)")* forms of
 church polity.
 
-## Contents
-
--   [1 Scripture](#Scripture)
--   [2 Early Church & Eastern Orthodoxy](#Early_Church_.26_Eastern_Orthodoxy)
--   [3 Non-Episcopal traditions](#Non-Episcopal_traditions)
--   [4 See also](#See_also)
-
 ## Scripture
 
 -   Acts 20:28 - refers to the episcopal role equated in some way

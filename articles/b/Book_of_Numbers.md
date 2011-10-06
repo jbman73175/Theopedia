@@ -48,17 +48,10 @@ the [Septuagint](Septuagint "Septuagint") gave it the name
 The [Hebrew](Hebrew "Hebrew") name, *bemidbar*, means more properly
 "in the desert".
 
-**Multimedia**
+## Multimedia
 
 -   [Numbers](http://biblicaltraining.org/audio/OT500/ots_04b.mov)
     (QuickTime), by Douglas Stuart
-
-## Contents
-
--   [1 Relationship to the New Testament](#Relationship_to_the_New_Testament)
--   [2 See also](#See_also)
--   [3 References](#References)
--   [4 Chapters](#Chapters)
 
 The beginning of Numbers (1:1 - 10:10) deals with Israel's
 preparation to leave Mount Sinai. Yet, they refused to enter the

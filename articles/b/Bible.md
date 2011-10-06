@@ -117,27 +117,6 @@ Scripture" indicating its authority.
 [Jude](Epistle_of_Jude "Epistle of Jude") -
 [Revelation](Book_of_Revelation "Book of Revelation")
 
-## Contents
-
--   [1 Old Testament](#Old_Testament)
--   [2 New Testament](#New_Testament)
--   [3 Apocrypha](#Apocrypha)
--   [4 Revelation of God](#Revelation_of_God)
--   [5 Development of the canon](#Development_of_the_canon)
--   [6 Transmission](#Transmission)
--   [7 Historicity](#Historicity)
--   [8 Biblical archaeology](#Biblical_archaeology)
--   [9 Authority](#Authority)
--   [10 Inspiration](#Inspiration)
--   [11 Inerrancy](#Inerrancy)
--   [12 Translation](#Translation)
--   [13 Interpretation](#Interpretation)
--   [14 Clarity](#Clarity)
--   [15 Sufficiency](#Sufficiency)
--   [16 Resources](#Resources)
--   [17 See also](#See_also)
--   [18 External links](#External_links)
-
 ### [Apocrypha](Apocrypha "Apocrypha")
 
 Some Protestant Bibles, e.g. some editions of the

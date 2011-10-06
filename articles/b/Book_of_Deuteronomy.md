@@ -57,19 +57,10 @@ as his successor. Theologically, the book of Deuteronomy expounds
 very clearly the [doctrine](Doctrine "Doctrine") of
 [monotheism](Monotheism "Monotheism") (cf. Deut. 6:4ff).
 
-**Multimedia**
+## Multimedia
 
 -   [Numbers](http://biblicaltraining.org/audio/OT500/ots_04c.mov)
     (Deuteronomy), by Douglas Stuart
-
-## Contents
-
--   [1 See also](#See_also)
--   [2 References](#References)
--   [3 Chapters](#Chapters)
--   [4 External resources](#External_resources)
-
-
 
 ## See also
 

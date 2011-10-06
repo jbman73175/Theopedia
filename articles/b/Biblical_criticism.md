@@ -59,22 +59,6 @@ manuscript families and the Bible critic's own reason, this type of
 criticism puts the various texts into a statistical formula to
 derive its text.
 
-## Contents
-
--   [1 Higher criticism](#Higher_criticism)
-    -   [1.1 Historical criticism](#Historical_criticism)
-    -   [1.2 Literary criticism](#Literary_criticism)
-    -   [1.3 Source criticism](#Source_criticism)
-    -   [1.4 Form criticism](#Form_criticism)
-    -   [1.5 Tradition criticism](#Tradition_criticism)
-    -   [1.6 Redaction criticism](#Redaction_criticism)
-
--   [2 Textual criticism, or Lower criticism](#Textual_criticism.2C_or_Lower_criticism)
--   [3 Statistical criticism](#Statistical_criticism)
--   [4 See also](#See_also)
--   [5 Footnotes](#Footnotes)
--   [6 External links](#External_links)
-
 ## Higher criticism
 
 The higher critical methods described below grew out of a German

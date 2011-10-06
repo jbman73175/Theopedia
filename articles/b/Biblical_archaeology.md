@@ -22,12 +22,6 @@ Part of the series on the
 -   [Does Archaeology Really Support the Bible?](http://www.calvarysantafe.org/teachings/audio/20080913_06.mp3)
     (MP3), by Steve Collins
 
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 See also](#See_also)
--   [3 External Links](#External_Links)
-
 ## Quotes
 
 -   "There can be no doubt that archaeology has confirmed the

@@ -7,16 +7,6 @@ for his extreme bravery and godliness while being tortured by
 Communist guerrillas. However, his approach and the response of the
 Motilones was unusual and could be called unorthodox.
 
-
-
-## Contents
-
--   [1 Early Work](#Early_Work)
--   [2 Book and Trip to United States](#Book_and_Trip_to_United_States)
--   [3 Slander and Exoneration](#Slander_and_Exoneration)
--   [4 Captured by Communist Rebels](#Captured_by_Communist_Rebels)
--   [5 Accomplishments of the Motilones](#Accomplishments_of_the_Motilones)
-
 ## Early Work
 
 Bruce Olson arrived in Colombia, South America ca. 1961 with a

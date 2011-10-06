@@ -40,11 +40,6 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-## Chapters
-
-[1](index.php?title=Joel_1&action=edit&redlink=1 "Joel 1 (page does not exist)"),
-[2](index.php?title=Joel_2&action=edit&redlink=1 "Joel 2 (page does not exist)"),
-[3](index.php?title=Joel_3&action=edit&redlink=1 "Joel 3 (page does not exist)")
 
 ## Contents
 

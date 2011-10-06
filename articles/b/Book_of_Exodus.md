@@ -55,7 +55,7 @@ arrangement:
 -   Israel in the desert (Ex. 12:37 - 18:27)
 -   Israel at Mount Sinai (Ex. 19 - 40)
 
-**Multimedia**
+## Multimedia
 
 -   [Exodus](http://biblicaltraining.org/audio/OT500/ots_02.mov)
     (QuickTime), by Douglas Stuart

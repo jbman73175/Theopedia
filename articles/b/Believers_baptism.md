@@ -17,17 +17,6 @@ paedo-baptism, from the Greek word *paido* meaning *child* or
 *infant*). A key concept in believer's baptism is that a credible
 profession of faith must be given by the recipient before baptism.
 
-## Contents
-
--   [1 History](#History)
--   [2 Theology](#Theology)
--   [3 Biblical basis](#Biblical_basis)
--   [4 Age of accountability](#Age_of_accountability)
--   [5 Practice](#Practice)
--   [6 Endnotes](#Endnotes)
--   [7 See also](#See_also)
--   [8 Resources](#Resources)
-
 ## History
 
 When a person professes Jesus Christ as Lord and Savior, the new

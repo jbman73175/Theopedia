@@ -15,20 +15,6 @@ Notable Baptist organizations include:
 -   General Association of Regular Baptist Churches
 -   American Baptist Association
 
-
-
-
-
-
-## Contents
-
--   [1 Baptist origins](#Baptist_origins)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Baptist doctrinal statements](#Baptist_doctrinal_statements)
-
-
 ## Baptist origins
 
 While Baptist churches are generally regarded as being within

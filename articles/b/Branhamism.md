@@ -18,18 +18,6 @@ Godhead, the Baptismal formula, the Serpent's Seed doctrine,
 attitude toward women and divorce, and eschatology.
 [[1]](http://en.wikipedia.org/wiki/Branhamism)
 
-
-## Contents
-
--   [1 Doctrine](#Doctrine)
-    -   [1.1 Modalism](#Modalism)
-    -   [1.2 Baptism in the name of Jesus only](#Baptism_in_the_name_of_Jesus_only)
-    -   [1.3 Serpent's seed](#Serpent.27s_seed)
-    -   [1.4 Annihilationism](#Annihilationism)
-    -   [1.5 William Branham as last days prophet](#William_Branham_as_last_days_prophet)
-
--   [2 External links](#External_links)
-
 ## Doctrine
 
 ### Modalism

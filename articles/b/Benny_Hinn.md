@@ -6,7 +6,7 @@ Benny Hinn
 in line with the [Word of Faith](Word_of_Faith "Word of Faith")
 movement.
 
-**Multimedia**
+## Multimedia
 
 **Video**
 
@@ -14,15 +14,6 @@ movement.
     (YouTube)
 -   [Benny Hinn Conspiracy (fraudulent televangelists)](http://video.google.com/videoplay?docid=-7807584680006648742)
 -   [The Blind and the Dead](http://video.google.com/videoplay?docid=-292748952186052796)
-
-
-## Contents
-
--   [1 External links](#External_links)
-    -   [1.1 Related links](#Related_links)
-    -   [1.2 Critical or Neutral](#Critical_or_Neutral)
-    -   [1.3 Favorable](#Favorable)
-
 
 ## External links
 

@@ -45,7 +45,7 @@ of the [Old Testament](Old_Testament "Old Testament").
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Judges](http://biblicaltraining.org/audio/OT500/ots_06a.mov)
     (QuickTime), by Douglas Stuart

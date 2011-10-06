@@ -7,18 +7,6 @@ order to be followed in church services. Within the United Kingdom,
 it can only be printed by one of the privileged presses, as it is
 under perpetual Crown Copyright.
 
-## Contents
-
--   [1 History of the Prayer Book](#History_of_the_Prayer_Book)
-    -   [1.1 Early Prayer Books](#Early_Prayer_Books)
-    -   [1.2 The 1559 Prayer Book](#The_1559_Prayer_Book)
-    -   [1.3 The 1662 Prayer Book](#The_1662_Prayer_Book)
-    -   [1.4 Further Developments of the English Book of Common Prayer](#Further_Developments_of_the_English_Book_of_Common_Prayer)
-    -   [1.5 Brief Overview of Several Prayer Books](#Brief_Overview_of_Several_Prayer_Books)
-
--   [2 Influence](#Influence)
--   [3 External links](#External_links)
-
 ## History of the Prayer Book
 
 ### Early Prayer Books

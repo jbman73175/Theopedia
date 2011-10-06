@@ -20,21 +20,6 @@ for some other physical city, most likely Rome (1 Pet. 5:13), while
 John appears to use it in Revelation as a symbolic reference to
 some political or religious system of future (e.g. Rev. 14:8).
 
-## Contents
-
--   [1 In History](#In_History)
--   [2 In the Old Testament](#In_the_Old_Testament)
--   [3 In the Revelation](#In_the_Revelation)
-    -   [3.1 Symbolic Interpretations](#Symbolic_Interpretations)
-        -   [3.1.1 Idealist View](#Idealist_View)
-        -   [3.1.2 Preterist View](#Preterist_View)
-        -   [3.1.3 Historicist View](#Historicist_View)
-
-    -   [3.2 Literal Interpretation](#Literal_Interpretation)
-        -   [3.2.1 Futurist View](#Futurist_View)
-
-
-
 ## In History
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*

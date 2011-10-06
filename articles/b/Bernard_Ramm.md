@@ -16,14 +16,6 @@ studies at the University of Pennsylvania, the University of Basel,
 Switzerland, and the Near Eastern School of Theology, Beirut,
 Lebanon.
 
-## Contents
-
--   [1 Career](#Career)
--   [2 Selected publications](#Selected_publications)
-    -   [2.1 Assessment](#Assessment)
-
--   [3 External links](#External_links)
-
 ## Career
 
 Ramm's academic teaching career began in 1943 when he joined the

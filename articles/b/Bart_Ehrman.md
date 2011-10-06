@@ -9,7 +9,7 @@ for his writings on early
 [church history](Church_history "Church history") and the
 [development of the New Testament canon](Development_of_the_NT_canon "Development of the NT canon").
 
-**Multimedia**
+## Multimedia
 
 -   [Interview and Critique of Bart Ehrman's Forgery Theory MP3](http://www.brianauten.com/Apologetics/wilken-ehrman-montgomery-forged.mp3)
     (MP3) - Issues, Etc radio program

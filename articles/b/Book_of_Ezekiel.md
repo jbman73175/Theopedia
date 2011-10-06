@@ -40,7 +40,7 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Ezekiel](http://biblicaltraining.org/audio/OT500/ots_16b.mov)
     (QuickTime), by Douglas Stuart

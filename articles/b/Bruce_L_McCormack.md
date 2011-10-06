@@ -10,7 +10,7 @@ PhD from Princeton Theological Seminary (1989). He specializes in
 the theology of [Karl Barth](Karl_Barth "Karl Barth") and modern
 theology.
 
-**Multimedia**
+## Multimedia
 
 -   [Phil. 2:5-13](http://adam.wheaton.edu/ramgen/wetn-real/chap02-03/mccormack041103.rm)
     (Real Media), Wheaton College Chapel
@@ -22,16 +22,6 @@ Germany. The reward was given for his book
 which was a revised and expanded edition of his dissertation at
 Princeton. McCormack also received an honorary doctorate from the
 Friedrich-Schiller Universität in Jena, Germany.
-
-## Contents
-
--   [1 Selected publications](#Selected_publications)
-    -   [1.1 Edited works](#Edited_works)
-
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
 
 ## Selected publications
 

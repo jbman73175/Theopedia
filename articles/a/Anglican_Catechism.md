@@ -8,23 +8,6 @@ differs from the [Roman](Roman_Catholicism "Roman Catholicism")
 Church, the Catechism provides a more comprehensive statement of
 faith for Anglicans as well as a guide to faithful living.
 
-## Contents
-
--   [1 Contents](#Contents)
-    -   [1.1 The Baptismal Covenant](#The_Baptismal_Covenant)
-    -   [1.2 The Christian Faith](#The_Christian_Faith)
-    -   [1.3 The Commandments](#The_Commandments)
-    -   [1.4 Prayer](#Prayer)
-    -   [1.5 Sacraments](#Sacraments)
-    -   [1.6 The Church](#The_Church)
-    -   [1.7 Rule of Life](#Rule_of_Life)
-
--   [2 External link to the Catechism online](#External_link_to_the_Catechism_online)
-
-## Contents
-
-The Catechism covers the following topics:
-
 ### The Baptismal Covenant
 
 -   "...renounce the devil and all his works, the vain pomp and

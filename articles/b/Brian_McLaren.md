@@ -24,24 +24,12 @@ the purpose and work of Jesus."^[[2]](#note-1)^
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Brian McLaren Library](http://www.off-the-map.org/mediacenter/brian_mclaren_library.html)
 -   [Audio links](http://www.crcc.org/converse/talks.htm) (search
     for "McLaren")
-
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 Notes](#Notes)
--   [3 Books](#Books)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-    -   [5.1 Online works](#Online_works)
-    -   [5.2 Favorable / sympathetic](#Favorable_.2F_sympathetic)
-    -   [5.3 Critical](#Critical)
-
-
+	
 ## Quotes
 
 -   "I can imagine some impassioned critic of this book concluding

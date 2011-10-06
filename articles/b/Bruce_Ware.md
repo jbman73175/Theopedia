@@ -18,7 +18,7 @@ Baptist Seminary, a M.A. from University of Washington, and his
 Ph.D. from
 [Fuller Theological Seminary](Fuller_Theological_Seminary "Fuller Theological Seminary").
 
-**Multimedia**
+## Multimedia
 
 -   [Resurgence Interviews Bruce Ware](http://theresurgence.com/files/audio/bruce_ware_2007-01-12_interview.mp3)
     (MP3), "Dr. Ware talks about his education, how he got where he is

@@ -44,47 +44,6 @@ Reformed doctrine. The translation presented here is based on the
 French text of 1619.
 [[1]](http://www.reformed.org/documents/BelgicConfession.html)
 
-## Contents
-
--   Article 1: The Only God
--   Article 2: The Means by Which We Know God
--   Article 3: The Written Word of God
--   Article 4: The Canonical Books
--   Article 5: The Authority of Scripture
--   Article 6: The Difference Between Canonical and Apocryphal
-    Books
--   Article 7: The Sufficiency of Scripture
--   Article 8: The Trinity
--   Article 9: The Scriptural Witness on the Trinity
--   Article 10: The Deity of Christ
--   Article 11: The Deity of the Holy Spirit
--   Article 12: The Creation of All Things
--   Article 13: The Doctrine of God's Providence
--   Article 14: The Creation and Fall of Man
--   Article 15: The Doctrine of Original Sin
--   Article 16: The Doctrine of Election
--   Article 17: The Recovery of Fallen Man
--   Article 18: The Incarnation
--   Article 19: The Two Natures of Christ
--   Article 20: The Justice and Mercy of God in Christ
--   Article 21: The Atonement
--   Article 22: The Righteousness of Faith
--   Article 23: The Justification of Sinners
--   Article 24: The Sanctification of Sinners
--   Article 25: The Fulfillment of the Law
--   Article 26: The Intercession of Christ
--   Article 27: The Holy Catholic Church
--   Article 28: The Obligations of Church Members
--   Article 29: The Marks of the True Church
--   Article 30: The Government of the Church
--   Article 31: The Officers of the Church
--   Article 32: The Order and Discipline of the Church
--   Article 33: The Sacraments
--   Article 34: The Sacrament of Baptism
--   Article 35: The Sacrament of the Lord's Supper
--   Article 36: The Civil Government
--   Article 37: The Last Judgment
-
 *Go [here](http://www.reformed.org/documents/BelgicConfession.html) for the details of each Article*
 
 ## External links

@@ -28,19 +28,10 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   **Revelation**
 
-**Multimedia**
+## Multimedia
 
 -   [What are We Waiting For?--The Message of Revelation](http://dl.salemweb.net/?mg=43BD321F-0FD9-46EE-A3B8-B339039746DF)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
-
-## Contents
-
--   [1 Author and Date](#Author_and_Date)
--   [2 Genre](#Genre)
--   [3 Blueprint](#Blueprint)
--   [4 Themes](#Themes)
--   [5 Chapters](#Chapters)
--   [6 References](#References)
 
 Mistakenly called "Revelations" (plural), this book of the
 [Bible](Bible "Bible") is correctly known as **Revelation**. It has

@@ -13,30 +13,13 @@ instrumentality of human authors. From an
 theology also assumes that the original autographs of Scripture
 were [inerrant](Inerrancy "Inerrancy").
 
-**Multimedia**
+## Multimedia
 
 -   [Goldsworthy at Southern Seminary on Biblical Theology](http://theologica.blogspot.com/2008/03/goldsworthy-at-southern-seminary-on.html)
 -   [Old Testament Theology](http://biblicaltraining.org/class/ot190),
     by Paul House
 -   [New Testament Theology](http://biblicaltraining.org/class/nt575),
     by Frank Thielman
-
-## Contents
-
--   [1 Biblical theology and systematic theology](#Biblical_theology_and_systematic_theology)
--   [2 Old Testament theology](#Old_Testament_theology)
--   [3 New Testament theology](#New_Testament_theology)
--   [4 Notes](#Notes)
--   [5 Resources](#Resources)
-    -   [5.1 Biblical theology](#Biblical_theology)
-    -   [5.2 Old Testament theology](#Old_Testament_theology_2)
-    -   [5.3 New Testament theology](#New_Testament_theology_2)
-
--   [6 External links](#External_links)
-    -   [6.1 Biblical theology](#Biblical_theology_2)
-    -   [6.2 Old Testament theology](#Old_Testament_theology_3)
-    -   [6.3 New Testament theology](#New_Testament_theology_3)
-
 
 ## Biblical theology and systematic theology
 

@@ -16,20 +16,6 @@ Old is not foreign or peculiar or hidden, but arises naturally out
 of the text due to the relationship of the two Testaments.
 ^[[1]](#note-0)^
 
-## Contents
-
--   [1 Motivation](#Motivation)
--   [2 Classification of types](#Classification_of_types)
-    -   [2.1 Historical types](#Historical_types)
-    -   [2.2 Legal types](#Legal_types)
-    -   [2.3 Prophetic types](#Prophetic_types)
-
--   [3 Survey of perspectives](#Survey_of_perspectives)
--   [4 Issues in the use of Typology](#Issues_in_the_use_of_Typology)
--   [5 Footnotes](#Footnotes)
--   [6 Resources](#Resources)
--   [7 External links](#External_links)
-
 ## Motivation
 
 The study of types, particularly, types of Christ, is motivated by

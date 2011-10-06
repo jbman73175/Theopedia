@@ -14,7 +14,7 @@ creation into eternity, taken as a whole) is the
 best-of-all-possible-worlds."
 [Piper](http://www.desiringgod.org/library/theological_qa/calvinism/seven_points.html)
 
-**Multimedia**
+## Multimedia
 
 -   [Possible worlds](http://biblicaltraining.org/audio/TH601/apologetics_09b.mp3)
     (MP3), by Ron Nash

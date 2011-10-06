@@ -47,20 +47,13 @@ of the Bible.
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Joshua](http://biblicaltraining.org/audio/OT500/ots_05a.mov)
     (QuickTime), by Douglas Stuart
 -   [War God's Way: Joshua](http://www.gordonconwell.edu/audio/lec8.ram)
     (Real Audio), by Douglas Stuart
     ([Study Guide](http://www.gordonconwell.edu/ockenga/dimensions/ot1/pdf/ot1_08.pdf))
-
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Outline](#Outline)
--   [3 Note](#Note)
--   [4 See also](#See_also)
 
 ## Chapters
 

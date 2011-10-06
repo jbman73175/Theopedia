@@ -40,7 +40,7 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   By [D. A. Carson](D._A._Carson "D. A. Carson") (MP3s)
     -   [Jeremiah 1:1–3:5](http://www.atthecastle.org.uk/audio/01_Jeremiah_1v1-3v5.mp3)
@@ -52,10 +52,6 @@
 
 -   [The Role of Jeremiah](http://covenantseminary.inmotionhosting.com/OT215_Lecture_17.mp3)
     (MP3), by Gerard Van Groningen
-
-## Contents
-
--   [1 Chapters](#Chapters)
 
 ## Chapters
 

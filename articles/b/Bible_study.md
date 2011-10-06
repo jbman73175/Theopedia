@@ -1,27 +1,5 @@
 There are several styles of **Bible study**. These include:
 
-## Contents
-
--   [1 Styles of study](#Styles_of_study)
-    -   [1.1 Devotional](#Devotional)
-    -   [1.2 Technical](#Technical)
-    -   [1.3 Topical](#Topical)
-    -   [1.4 Historical](#Historical)
-    -   [1.5 Block-reading](#Block-reading)
-    -   [1.6 Free-form](#Free-form)
-    -   [1.7 Independent](#Independent)
-    -   [1.8 Small-group](#Small-group)
-    -   [1.9 Large-group (aka Sermon)](#Large-group_.28aka_Sermon.29)
-
--   [2 Bible study tools](#Bible_study_tools)
-    -   [2.1 Online study tools](#Online_study_tools)
-    -   [2.2 Online devotionals](#Online_devotionals)
-    -   [2.3 Personal Software](#Personal_Software)
-
--   [3 Books](#Books)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Styles of study
 
 ### Devotional

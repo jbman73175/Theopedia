@@ -52,7 +52,7 @@ interruption. It supplies information on personal, priestly, and
 national holiness that was a necessary and integral part of
 Israel's story (Arnold & Beyer, p. 118).
 
-**Multimedia**
+## Multimedia
 
 -   [Leviticus](http://biblicaltraining.org/audio/OT500/ots_04a.mov)
     (QuickTime), by Douglas Stuart
@@ -65,13 +65,6 @@ Israel's story (Arnold & Beyer, p. 118).
     [Part 6](http://www.covenantseminary.edu/resource/Sklar_MLB20051122.mp3),
     [Part 7](http://www.covenantseminary.edu/resource/Sklar_MLB20051206.mp3),
     by Dr. Jay Sklar
-
-## Contents
-
--   [1 See also](#See_also)
--   [2 References](#References)
--   [3 Chapters](#Chapters)
--   [4 External links](#External_links)
 
 Leviticus receives its name from the
 [Septuagint](Septuagint "Septuagint") and simply means, "relating

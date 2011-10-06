@@ -6,21 +6,6 @@ is considered the last great Princeton theologian before the split
 in 1929 that formed Westminster Seminary and the Orthodox
 Presbyterian Church.
 
-## Contents
-
--   [1 Education](#Education)
--   [2 Ministry](#Ministry)
--   [3 Princeton](#Princeton)
--   [4 Scripture](#Scripture)
--   [5 Calvinism](#Calvinism)
--   [6 Further reading](#Further_reading)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
-    -   [8.1 Essays and Sermons](#Essays_and_Sermons)
-    -   [8.2 Online books](#Online_books)
-    -   [8.3 Online articles](#Online_articles)
-
-
 ## Education
 
 Like many children born into a wealthy family, Warfield's childhood

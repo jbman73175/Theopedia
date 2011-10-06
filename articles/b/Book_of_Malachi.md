@@ -40,7 +40,7 @@
 -   **Malachi**
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Malachi 1:1-2:9 - "Great Is the Lord"](http://www.championforest.org/services/archivedaudio/050911.mp3)
     (MP3), by Jim Hamilton
