@@ -20,18 +20,6 @@ Testament prophecy.
 -   [Introducing... Irenaeus](http://theologynetwork.org/historical-theology/getting-stuck-in/introducing----irenaeus.htm)
     (MP3), lecture by Mike Reeves
 
-## Contents
-
--   [1 Life of Irenaeus](#Life_of_Irenaeus)
--   [2 Writings of Irenaeus](#Writings_of_Irenaeus)
--   [3 Scholarly Critiques of Irenaeus' Writings](#Scholarly_Critiques_of_Irenaeus.27_Writings)
--   [4 Analysis of Works](#Analysis_of_Works)
--   [5 Conclusion](#Conclusion)
--   [6 Notes](#Notes)
--   [7 External links](#External_links)
-
-
-
 ## Life of Irenaeus
 
 **Early Years/Life** The facts about the life of Irenaeus are not
@@ -155,7 +143,9 @@ in an organic view of revelation and the history of redemption, his
 view of the incarnation of God in Jesus, the unity of the Bible,
 and the Recapitulation of all things in Christ Jesus our Lord.
 
-**Unity of the Bible and Unity of God** Irenaeus viewed the
+### Unity of the Bible and Unity of God
+
+Irenaeus viewed the
 Scriptures as organically connected from the Garden of Eden to the
 summing up of all things. He understood that the organic feature of
 revelation is an unfolding drama that leads to the eschatological
@@ -180,7 +170,9 @@ created the sun; and one and the same Lord who both reared the
 stalk of corn, increased and multiplied the wheat, and prepared the
 barn. ” ^[[15]](#note-14)^
 
-**Recapitulation** Irenaeus followed Pauline theology in utilizing
+### Recapitulation
+
+Irenaeus followed Pauline theology in utilizing
 the first and second Adam theme found within the Apostle Paul’s
 writing to the Corinthians and Romans.^[[16]](#note-15)^ Irenaeus
 believed that humanity was represented federally and covenantally
