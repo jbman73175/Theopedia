@@ -23,44 +23,12 @@ and the majority of North American
 [Evangelical](Evangelicalism "Evangelicalism") churches now stand
 with them against it.
 
-**Multimedia**
+##Multimedia
 
 -   [Pro-Life Logic](http://www.peterkreeft.com/audio/19_prolife-philosophy/peter-kreeft_prolife-logic.mp3)
     (MP3), by Peter Kreeft
 -   [Are Young Pro-Life Evangelicals Inconsistent?](http://www.theresurgence.com/3-are-young-pro-life-evangelicals-inconsistent),
     by Randy Alcorn
-
-## Contents
-
--   [1 Biblical background](#Biblical_background)
-    -   [1.1 Issues to consider](#Issues_to_consider)
-
--   [2 Historical background](#Historical_background)
-    -   [2.1 Early Christian](#Early_Christian)
-    -   [2.2 The Church Fathers](#The_Church_Fathers)
-    -   [2.3 The Reformers](#The_Reformers)
-
--   [3 Legal background (US)](#Legal_background_.28US.29)
-    -   [3.1 Roe v. Wade (1973)](#Roe_v._Wade_.281973.29)
-    -   [3.2 Doe v. Bolton (1973)](#Doe_v._Bolton_.281973.29)
-    -   [3.3 Planned Parenthood v. Danforth (1977)](#Planned_Parenthood_v._Danforth_.281977.29)
-    -   [3.4 Webster v. Reproductive Health Services (1989)](#Webster_v._Reproductive_Health_Services_.281989.29)
-    -   [3.5 Planned Parenthood v. Casey (1992)](#Planned_Parenthood_v._Casey_.281992.29)
-
--   [4 Current perspectives](#Current_perspectives)
-    -   [4.1 Mainline churches](#Mainline_churches)
-    -   [4.2 Evangelical churches](#Evangelical_churches)
-    -   [4.3 Roman Catholic](#Roman_Catholic)
-
--   [5 Notes](#Notes)
--   [6 References](#References)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
-    -   [8.1 Favorable / Sympathetic](#Favorable_.2F_Sympathetic)
-    -   [8.2 Critical](#Critical)
-
-
-
 
 ## Biblical background
 
