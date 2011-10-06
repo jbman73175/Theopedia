@@ -34,16 +34,6 @@ Nonetheless, most of the writers come from a Reformed perspective.
 Alternate evangelical and non-evangelical options, however, are
 discussed."
 
-## Contents
-
--   [1 Applicable](#Applicable)
--   [2 Audience](#Audience)
--   [3 Volumes](#Volumes)
-    -   [3.1 Forthcoming volumes](#Forthcoming_volumes)
-
--   [4 Notes](#Notes)
--   [5 See also](#See_also)
-
 ## Applicable
 
 The intent for this series is that the systematic analysis of

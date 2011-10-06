@@ -9,15 +9,6 @@ respected scholar in the areas of
 [theological interpretation of Scripture](Theological_interpretation_of_Scripture "Theological interpretation of Scripture").
 He has an MA and DPhil from Oxford.
 
-
-## Contents
-
--   [1 Selected publications](#Selected_publications)
--   [2 Notes](#Notes)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
-
 ## Selected publications
 
 -   *Text and Truth: Redefining Biblical Theology*. Eerdmans, 1997;

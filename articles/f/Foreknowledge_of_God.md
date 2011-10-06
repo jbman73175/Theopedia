@@ -46,16 +46,6 @@ longer to be given the ultimate credit for our
 [salvation](Salvation "Salvation")" (*Systematic Theology*, p.
 679).
 
-
-## Contents
-
--   [1 Calvinism](#Calvinism)
--   [2 Arminianism](#Arminianism)
--   [3 Molinism](#Molinism)
--   [4 Open theism](#Open_theism)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
 ## Calvinism
 
 *See main page: [Calvinism](Calvinism "Calvinism")*

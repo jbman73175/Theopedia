@@ -27,15 +27,6 @@ also wrote commentaries on several biblical books including the
 and the
 [Epistle to the Hebrews](Epistle_to_the_Hebrews "Epistle to the Hebrews").
 
-## Contents
-
--   [1 Selected publications](#Selected_publications)
-    -   [1.1 Commentaries](#Commentaries)
-    -   [1.2 Edited works](#Edited_works)
-
--   [2 Resources](#Resources)
--   [3 External links](#External_links)
-
 ## Selected publications
 
 -   *The New Testament Documents: Are They Reliable?* Eerdmans,

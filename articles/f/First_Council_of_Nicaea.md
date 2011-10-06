@@ -19,22 +19,7 @@ councils.
 
 -   [Council of Nicaea](http://covenantseminary.inmotionhosting.com/CH310_Lecture_12.mp3),
     by David Calhoun (MP3)
-
-## Contents
-
--   [1 Background and historical setting](#Background_and_historical_setting)
-    -   [1.1 Monarchianism](#Monarchianism)
-    -   [1.2 Origen and Arius](#Origen_and_Arius)
-    -   [1.3 Constantine](#Constantine)
-
--   [2 Aftermath](#Aftermath)
--   [3 Notes](#Notes)
--   [4 Further reading](#Further_reading)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
-
-
+	
 ## Background and historical setting
 
 The main issue set before the Council of Nicaea concerned the

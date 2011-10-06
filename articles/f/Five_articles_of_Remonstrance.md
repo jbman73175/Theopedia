@@ -12,17 +12,6 @@ This document was condemned as heresy by the reformed churches at
 the [Synod of Dort](Synod_of_Dort "Synod of Dort"), 1618-1619.
 [[1]](http://www.apuritansmind.com/Creeds/ArminianArticles.htm)
 
-## Contents
-
--   [1 Article 1](#Article_1)
--   [2 Article 2](#Article_2)
--   [3 Article 3](#Article_3)
--   [4 Article 4](#Article_4)
--   [5 Article 5](#Article_5)
--   [6 Resources](#Resources)
--   [7 See Also](#See_Also)
--   [8 External Links](#External_Links)
-
 ## Article 1
 
 That God, by an eternal and unchangeable purpose in Jesus Christ

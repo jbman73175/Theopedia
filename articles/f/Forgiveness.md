@@ -1,12 +1,3 @@
-
-## Contents
-
--   [1 Quotes](#Quotes)
-    -   [1.1 Scriptural](#Scriptural)
-    -   [1.2 External Sources](#External_Sources)
-
--   [2 External links](#External_links)
-
 ## Quotes
 
 ### Scriptural

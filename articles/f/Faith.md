@@ -23,18 +23,6 @@ covenant of grace," (WCF 14.2).
 -   [Themes from James - The Prayer of Faith](http://broadcast.ligonier.org/podcast-media/rym20090711.mp3)
     (MP3), by [R. C. Sproul](R._C._Sproul "R. C. Sproul")
 
-## Contents
-
--   [1 Faith and justification](#Faith_and_justification)
--   [2 Faith without works](#Faith_without_works)
--   [3 Saving faith, a gift from God](#Saving_faith.2C_a_gift_from_God)
-    -   [3.1 Ephesians 2 textual question](#Ephesians_2_textual_question)
-
--   [4 Faith in the Christian life](#Faith_in_the_Christian_life)
--   [5 The Hall of faith, Hebrews 11](#The_Hall_of_faith.2C_Hebrews_11)
--   [6 Faith and spiritual sight](#Faith_and_spiritual_sight)
--   [7 External links](#External_links)
-
 ## Faith and justification
 
 The Bibles teaches that people are "justified by faith apart from

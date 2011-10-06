@@ -9,13 +9,6 @@ followers) which was formally judged at the
 [Synod of Dort](Synod_of_Dort "Synod of Dort")
 (1618).^[[1]](#note-0)^
 
-## Contents
-
--   [1 Life](#Life)
--   [2 Theology](#Theology)
--   [3 Synod of Dort](#Synod_of_Dort)
--   [4 Notes](#Notes)
-
 ## Life
 
 His parents, having embraced the principles of the

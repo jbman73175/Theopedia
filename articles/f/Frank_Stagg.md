@@ -24,26 +24,6 @@ as a "Teaching Prophet."^[[3]](#note-Talbert)^
 > Seminary^[[4]](#note-1)^{{\#if:|*{{{3}}}*}}
 > }}
 
-## Contents
-
--   [1 Personal](#Personal)
--   [2 A couple endeavor](#A_couple_endeavor)
--   [3 Beliefs](#Beliefs)
--   [4 Library collection](#Library_collection)
--   [5 Recognition and honors](#Recognition_and_honors)
--   [6 Education](#Education)
--   [7 Professional](#Professional)
--   [8 Notes](#Notes)
--   [9 Publications](#Publications)
-    -   [9.1 Books](#Books)
-    -   [9.2 Contributions to other books](#Contributions_to_other_books)
-    -   [9.3 Encyclopedia article](#Encyclopedia_article)
-    -   [9.4 Journal articles](#Journal_articles)
-    -   [9.5 Southern Baptist curriculum and periodical articles](#Southern_Baptist_curriculum_and_periodical_articles)
-    -   [9.6 Book reviews](#Book_reviews)
-
--   [10 Endnotes](#Endnotes)
-
 ## Personal
 
 Dr. Frank Stagg was born October 20, 1911, on his grandfather's

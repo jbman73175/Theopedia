@@ -53,17 +53,6 @@ word, that we may be found of him in peace." ^[[1]](#note-0)^
     [this](http://www.desiringgod.org/ResourceLibrary/Sermons/BySeries/74/847_What_Happens_When_You_Die_All_Appear_Before_the_Judgment_Seat_of_Christ/)
     sermon
 
-## Contents
-
--   [1 Judgment Seat](#Judgment_Seat)
--   [2 White throne judgment](#White_throne_judgment)
--   [3 Notes](#Notes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
-
-
-
 ## Judgment Seat
 
 The Judgment Seat of Christ (or *bema seat*) is one of several

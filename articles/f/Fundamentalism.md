@@ -24,15 +24,6 @@ Lee Laws, a British journalist for the *Watchman-Examiner*, in 1920
 to designate those who were willing to do "battle royal for the
 Fundamentals." [[1]](http://mb-soft.com/believe/text/fundamen.htm)
 
-
-## Contents
-
--   [1 Fundamentalism versus broader Evangelicalism](#Fundamentalism_versus_broader_Evangelicalism)
--   [2 Notes](#Notes)
--   [3 Resources](#Resources)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Fundamentalism versus broader Evangelicalism
 
 The nature of the *Fundamentalist movement*, while originally a

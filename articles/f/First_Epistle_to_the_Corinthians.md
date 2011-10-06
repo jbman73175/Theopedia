@@ -60,35 +60,7 @@
     [15](http://www.esvmedia.org/streams/m3u/mm/46015001-46015058.m3u?key=83e358e9),
     [16](http://www.esvmedia.org/streams/m3u/mm/46016001-46016024.m3u?key=83e358e9)
 
-## Contents
-
--   [1 ESV Narration by Max Mclean (Streaming MP3)](#ESV_Narration_by_Max_Mclean_.28Streaming_MP3.29)
--   [2 Chapters](#Chapters)
--   [3 External links](#External_links)
-
-## Chapters
-
-[1](1_Corinthians_1 "1 Corinthians 1"),
-[2](index.php?title=1_Corinthians_2&action=edit&redlink=1 "1 Corinthians 2 (page does not exist)"),
-[3](index.php?title=1_Corinthians_3&action=edit&redlink=1 "1 Corinthians 3 (page does not exist)"),
-[4](index.php?title=1_Corinthians_4&action=edit&redlink=1 "1 Corinthians 4 (page does not exist)"),
-[5](1_Corinthians_5 "1 Corinthians 5"),
-[6](1_Corinthians_6 "1 Corinthians 6"),
-[7](1_Corinthians_7 "1 Corinthians 7"),
-[8](1_Corinthians_8 "1 Corinthians 8"),
-[9](index.php?title=1_Corinthians_9&action=edit&redlink=1 "1 Corinthians 9 (page does not exist)"),
-[10](index.php?title=1_Corinthians_10&action=edit&redlink=1 "1 Corinthians 10 (page does not exist)"),
-[11](1_Corinthians_11 "1 Corinthians 11"),
-[12](index.php?title=1_Corinthians_12&action=edit&redlink=1 "1 Corinthians 12 (page does not exist)"),
-[13](1_Corinthians_13 "1 Corinthians 13"),
-[14](1_Corinthians_14 "1 Corinthians 14"),
-[15](1_Corinthians_15 "1 Corinthians 15"),
-[16](index.php?title=1_Corinthians_16&action=edit&redlink=1 "1 Corinthians 16 (page does not exist)")
-
 ## External links
 
 -   [1 Corinthians:Introduction](http://www.esvstudybible.org/sb/objects/introduction-to-1-corinthians.html),
     from the [ESV](ESV "ESV") Study Bible
-
-
-

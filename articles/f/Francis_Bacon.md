@@ -4,13 +4,6 @@ and *Novum Organum* (Latin for *New Instrument*, 1620), exerted a
 powerful influence on the development of early modern science and
 early modern thought.
 
-## Contents
-
--   [1 Religious orientation](#Religious_orientation)
--   [2 Notes](#Notes)
--   [3 Further reading](#Further_reading)
--   [4 External links](#External_links)
-
 ## Religious orientation
 
 His mother Anne Bacon held deep orthodox protestant convictions and

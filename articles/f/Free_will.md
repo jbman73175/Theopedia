@@ -45,33 +45,6 @@ unable to sin. True freedom isn't freedom *to* sin, but freedom
 -   [Of Free Will](http://www.trinitylectures.org/MP3/gg._IX_Of_Free_Will.mp3)
     (MP3), by Gordon H. Clark
 
-## Contents
-
--   [1 Definitions](#Definitions)
--   [2 Reasons for believing](#Reasons_for_believing)
-    -   [2.1 Compatibilist freedom](#Compatibilist_freedom)
-    -   [2.2 Libertarian freedom](#Libertarian_freedom)
-
--   [3 Objections](#Objections)
-    -   [3.1 Objections to libertarian freedom](#Objections_to_libertarian_freedom)
-    -   [3.2 Objections to compatibilistic freedom](#Objections_to_compatibilistic_freedom)
-
--   [4 Theological framework and the will of man](#Theological_framework_and_the_will_of_man)
-    -   [4.1 Augustinianism / Calvinism](#Augustinianism_.2F_Calvinism)
-    -   [4.2 Arminianism](#Arminianism)
-    -   [4.3 Semi-Pelagianism and Pelagianism](#Semi-Pelagianism_and_Pelagianism)
-
--   [5 Quotes](#Quotes)
--   [6 References](#References)
--   [7 See also](#See_also)
--   [8 Resources](#Resources)
-    -   [8.1 Calvinist](#Calvinist)
-    -   [8.2 Arminian](#Arminian)
-
--   [9 External links](#External_links)
-
-
-
 ## Definitions
 
 The Compatibilist believes that free will is "compatible" with

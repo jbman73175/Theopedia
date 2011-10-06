@@ -32,20 +32,6 @@ is most likely the list of Solas came about later.^[[1]](#note-0)^
 -   [Soli Deo Gloria](http://www.reformedsermons.org/mp3-16/Ross_Isa42_1to25.mp3)
 -   [Sola Gratia: Grace Alone](http://www.reformedsermons.org/mp3-16/Ross_Eph2_1to10.mp3)
 
-## Contents
-
--   [1 Faith alone (Sola Fide)](#Faith_alone_.28Sola_Fide.29)
--   [2 Scripture alone (Sola Scriptura)](#Scripture_alone_.28Sola_Scriptura.29)
--   [3 Christ alone (Solus Christus)](#Christ_alone_.28Solus_Christus.29)
--   [4 Grace alone (Sola Gratia)](#Grace_alone_.28Sola_Gratia.29)
--   [5 Glory to God alone (Soli Deo Gloria)](#Glory_to_God_alone_.28Soli_Deo_Gloria.29)
--   [6 Notes](#Notes)
--   [7 Resources](#Resources)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-
-
-
 The following summary of the Five Solas is adapted from the modern
 restatement in
 [The Cambridge Declaration of the Alliance of Confessing Evangelicals](The_Cambridge_Declaration_of_the_Alliance_of_Confessing_Evangelicals "The Cambridge Declaration of the Alliance of Confessing Evangelicals")

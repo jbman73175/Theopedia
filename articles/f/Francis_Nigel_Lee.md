@@ -1,19 +1,6 @@
 Francis Nigel Lee, born in 1934, is a Preacher, theologian, lawyer,
 educationist, historian, philosopher and author.
 
-## Contents
-
--   [1 Family background and childhood](#Family_background_and_childhood)
--   [2 Theology](#Theology)
--   [3 Ministry](#Ministry)
--   [4 Academic life and qualifications](#Academic_life_and_qualifications)
-    -   [4.1 Earned Doctorates](#Earned_Doctorates)
-    -   [4.2 Other Degrees](#Other_Degrees)
-
--   [5 Publications](#Publications)
--   [6 See also](#See_also)
--   [7 References](#References)
-
 ## Family background and childhood
 
 Dr. Lee's father was an Atheist, who married a

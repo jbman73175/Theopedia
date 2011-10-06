@@ -45,30 +45,6 @@
 -   [When Things Get Tough--The Message of 1 Peter](http://dl.salemweb.net/?mg=1F2EC5A4-76AF-4387-8312-13D7210C7A6D)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Authorship](#Authorship)
-    -   [2.1 Arguments for Petrine authorship](#Arguments_for_Petrine_authorship)
-    -   [2.2 Arguments for pseudonymnity](#Arguments_for_pseudonymnity)
-    -   [2.3 Rejoinders to arguments for pseudonymnity](#Rejoinders_to_arguments_for_pseudonymnity)
-
--   [3 Place of Writing](#Place_of_Writing)
--   [4 Date of Composition](#Date_of_Composition)
--   [5 Original Recipients](#Original_Recipients)
--   [6 Canonicity](#Canonicity)
--   [7 See also](#See_also)
--   [8 External Links](#External_Links)
--   [9 Sources](#Sources)
-
-## Chapters
-
-[1](index.php?title=1_Peter_1&action=edit&redlink=1 "1 Peter 1 (page does not exist)"),
-[2](index.php?title=1_Peter_2&action=edit&redlink=1 "1 Peter 2 (page does not exist)"),
-[3](1_Peter_3 "1 Peter 3"),
-[4](index.php?title=1_Peter_4&action=edit&redlink=1 "1 Peter 4 (page does not exist)"),
-[5](index.php?title=1_Peter_5&action=edit&redlink=1 "1 Peter 5 (page does not exist)")
-
 ## Authorship
 
 The author of this epistle identifies himself as

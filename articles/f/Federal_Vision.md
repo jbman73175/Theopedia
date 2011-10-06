@@ -41,19 +41,6 @@ claim to solve.
 -   [The Auburn Avenue Theology](http://www.trinitylectures.org/MP3/AubAveTheo_Collection13.MP3)
     (MP3)
 
-## Contents
-
--   [1 Background](#Background)
--   [2 Areas of concern](#Areas_of_concern)
--   [3 Federal Vision and the New Perspective on Paul](#Federal_Vision_and_the_New_Perspective_on_Paul)
--   [4 Quotes](#Quotes)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Favorable](#Favorable)
-    -   [7.2 Critical](#Critical)
-
-
 ## Background
 
 According to Dr. R. Scott Clark, the current Federal Vision

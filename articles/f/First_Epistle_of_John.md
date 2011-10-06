@@ -36,21 +36,6 @@ counter false teaching.
 -   [Christianity and the Flesh--The Message of 1 John](http://dl.salemweb.net/?mg=C617B685-C4F0-44C8-9646-14AAF91F2AA4)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Author and Date](#Author_and_Date)
--   [3 Blueprint](#Blueprint)
--   [4 Themes](#Themes)
-    -   [4.1 Sin](#Sin)
-    -   [4.2 Love](#Love)
-    -   [4.3 Family of God](#Family_of_God)
-    -   [4.4 Truth and Error](#Truth_and_Error)
-    -   [4.5 Assurance](#Assurance)
-
--   [5 References](#References)
--   [6 External links](#External_links)
-
 ## Chapters
 
 [1](1_John_1 "1 John 1"), [2](1_John_2 "1 John 2"),
