@@ -116,6 +116,8 @@ principles:^[[2]](#note-Doyler364f)^
 -   Justification by faith alone, and
 -   Priesthood of the believer.
 
+### Sola Scriptura
+
 **Sola Scriptura** (*by Scripture alone*) was one of the watchwords
 of the Reformation. This doctrine maintains that Scripture, as
 contained in the [Bible](Bible "Bible"), is the only authority for
@@ -124,6 +126,8 @@ and traditions of the church are to be completely subordinate to
 the Scriptures. Roman Catholicism, on the other hand, holds
 Scripture and Tradition to be of the same inspired
 *Deposit of Faith*.
+
+### Sola Fide
 
 **Sola Fide** (*by faith alone*) was the other watchword of the
 Reformation. This doctrine maintains that we are justified before
@@ -136,6 +140,8 @@ Reformers were calling the church back to the basic teaching of
 Scripture where the apostle Paul states that we are "saved by grace
 through faith and that not of ourselves, it is the gift of God,"
 Eph. 2:8.
+
+### Priesthood of all believers
 
 The third great principle of the Reformation was the
 **priesthood of all believers**. The Scriptures teach that
