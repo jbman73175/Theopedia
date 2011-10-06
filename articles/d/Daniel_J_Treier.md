@@ -1,6 +1,3 @@
-[![image](images/thumb/6/68/Treier.jpg/180px-Treier.jpg)](http://www.theopedia.com/File:Treier.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Treier.jpg "Enlarge")
-Daniel Treier
 **Daniel Treier** (b. 1972) is an American
 [Presbyterian](Presbyterian "Presbyterian")
 [theologian](Theologian "Theologian") and is Associate Professor of
@@ -23,14 +20,6 @@ Treier is an expert in
 and is the associate editor for the
 *Dictionary for Theological Interpretation of the Bible*
 (2005).^[[2]](#note-1)^
-
-## Contents
-
--   [1 Publications](#Publications)
-    -   [1.1 Edited works](#Edited_works)
-
--   [2 Notes](#Notes)
--   [3 External links](#External_links)
 
 ## Publications
 
@@ -72,6 +61,3 @@ and is the associate editor for the
 -   [Treier's faculty page](http://www.wheaton.edu/Theology/Faculty/treier/)
 -   [Interview with Daniel J. Treier on his book *Introducing Theological Interpretation of Scripture*](http://www.bakeracademic.com/Media/MediaManager/TreierInterviewPDF.pdf)
     (PDF)
-
-
-
