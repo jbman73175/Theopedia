@@ -1,25 +1,7 @@
-Part of the series on the  
-**[Holy Spirit](Holy_Spirit "Holy Spirit")**
--   [Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit")
--   [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit")
--   [Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit")
--   [Gifts](Gifts_of_the_Spirit "Gifts of the Spirit")
--   [Baptism](Baptism_of_the_Holy_Spirit "Baptism of the Holy Spirit")
--   **Indwelling**
--   [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
--   [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit")
-
 ## Multimedia 
 
 -   [The Holy Spirit's Work in Indwelling](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/075_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
-
-## Contents  
-
--   [1 In the Old Testament](#In_the_Old_Testament)
--   [2 Relevant passages](#Relevant_passages)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## In the Old Testament
 
