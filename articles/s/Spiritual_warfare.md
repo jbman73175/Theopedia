@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Spiritual Warfare Topics](http://www.desiringgod.org/ResourceLibrary/Sermons/ByTopic/33/)

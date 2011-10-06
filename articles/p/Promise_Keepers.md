@@ -4,7 +4,7 @@ Jesus Christ and help them grow in Him. The focus is on
 responsibility, leadership in the family, and the Seven Promises.
 Their main avenue of teaching is through conferences.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Look at the Promise Keepers](http://www.mtio.com/articles/aissar105.htmInside),

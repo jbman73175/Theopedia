@@ -17,7 +17,7 @@ has served as Consulting Editor for
 *Cultural Encounters A Journal for the Theology of Culture*."
 [[1]](http://www.culturalencounters.org/Volumes/volume1/vol1-2-Molnar.html)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Thomas F. Torrance: Theologian of the Trinity*. Great

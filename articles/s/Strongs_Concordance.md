@@ -13,7 +13,7 @@ other
 [translations of the Bible](Translation_of_the_Bible "Translation of the Bible")
 besides the KJV.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  [↑](#ref-0) *Strong's Exhaustive Concordance of the Bible*,

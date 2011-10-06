@@ -3,7 +3,7 @@ interchangeably with the term, celibacy. Some singles are called
 with a special and purposeful gifting by God to remain single for
 the advancement of the "kingdom of heaven."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Flourishing in Singleness](http://www.scriptoriumdaily.com/2009/05/03/flourishing-in-singleness/),

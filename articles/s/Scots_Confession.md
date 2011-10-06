@@ -8,6 +8,6 @@ accompanying documents were truly the product of the joint effort
 of the six Johns, its authorship is customarily attributed to
 [John Knox](John_Knox "John Knox").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

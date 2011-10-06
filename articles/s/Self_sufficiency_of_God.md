@@ -25,6 +25,6 @@ of male goats?" -Psalm 50:12-13
 > —{{{2}}}{{\#if:|*{{{3}}}*}}
 > }}
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

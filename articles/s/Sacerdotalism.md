@@ -26,6 +26,6 @@ Christ Jesus," (1 Tim. 2:5 ESV).
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -122,7 +122,7 @@ some Replacement Theologians have likewise attacked
 Dispensationalism (of all kinds) by characterizing the entire
 movement by its fringe elements.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Noted
 
 1.  [↑](#ref-0) Replacement theology is usually a pejorative term

@@ -6,7 +6,7 @@ chapter 2. Pentecostalism is similar to the
 [Charismatic](Charismatic "Charismatic") movement, but developed
 earlier and separated from the mainstream church.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Theology
 
 Theologically, most Pentecostal denominations are aligned with

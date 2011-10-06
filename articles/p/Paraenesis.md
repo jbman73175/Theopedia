@@ -5,7 +5,7 @@ The term **paraenesis** or **parenesis**, derived from the Greek
 composition.﻿" In modern usage it denotes material characterized by
 ethical instruction and exhortation.^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

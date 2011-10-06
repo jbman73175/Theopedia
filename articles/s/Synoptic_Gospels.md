@@ -14,7 +14,7 @@ seeing) to indicate that the contents of these three Gospels can be
 viewed side-by-side, whether in a vertical parallel column
 synopsis, or a horizontal synoptic alignment.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 -   [Synoptic Gospels](http://www.wikipedia.org/wiki/Synoptic_Gospels "wikipedia:Synoptic Gospels")

@@ -20,7 +20,7 @@ seems necessary (Giet 1963), though the work could have been
 composed by one person over a long period of time (Joly 1958).
 Graydon F. Snyder (*The Anchor Bible Dictionary*, v. 3, p. 148)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Apostolic Fathers](Apostolic_Fathers "Apostolic Fathers")

@@ -12,7 +12,7 @@ and [Eastern Orthodoxy](Eastern_Orthodoxy "Eastern Orthodoxy")),
 Protestantism represents a diverse range of theological and social
 perspectives, denominations and related organizations.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Protestant denominations
 
 ### Protestant families of denominations

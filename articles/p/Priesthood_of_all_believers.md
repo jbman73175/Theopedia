@@ -37,7 +37,7 @@ had cried out again in a loud voice, he gave up his spirit. (51) At
 that moment the curtain of the temple was torn in two from top to
 bottom. The earth shook and the rocks split." (Mat. 27:50-51, NIV)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Soul competency](Soul_competency "Soul competency")

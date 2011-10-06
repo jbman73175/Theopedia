@@ -37,7 +37,7 @@ believed that the Son was subordinate in function within the
 Godhead, but not in any way inferior in nature, being God of very
 God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Eternal generation of the Son](Eternal_generation_of_the_Son "Eternal generation of the Son")

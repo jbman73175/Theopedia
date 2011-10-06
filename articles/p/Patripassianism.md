@@ -3,6 +3,6 @@ that God the Father became incarnate, was born of a virgin, and
 suffered and died on the Cross."
 [[1]](http://www.basictheology.com/definitions/Patripassianism/)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -6,6 +6,6 @@ Ryken received his B. A. at Wheaton College (1988), his M.Div. from
 Westminster Theological Seminary PA (1992), and earned a Ph.D. from
 the University of Oxford UK (1995).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

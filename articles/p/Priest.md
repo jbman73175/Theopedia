@@ -5,7 +5,7 @@
 -   [The Inauguration Ceremony of The New Workshop for Priestly Garments](http://universaltorah.com/programming/podpress_trac/web/620/0/2008-07-03-0000-Bigdei-Kehuna-Inauguration-%201tammuz.wmv)
     (.WMV)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Priesthood of Jesus](#Priesthood_of_Jesus)

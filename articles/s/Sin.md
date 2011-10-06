@@ -16,7 +16,7 @@ supreme arrogance in that the creature vaunts his own wisdom above
 that of the Creator, challenges divine omnipotence with human
 impotence, and seeks to usurp the rightful authority of the cosmic
 Lord."^[[2]](#note-1)^
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [The Doctrine of Sin](http://www.biblicaltraining.org/audio/TH503/theology_1_27001.mp3)

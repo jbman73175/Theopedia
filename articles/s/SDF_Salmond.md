@@ -7,7 +7,7 @@ minister in the Free Church of Scotland in 1865.^[[1]](#note-0)^ In
 1901 Yale University presented him with an honorary Doctor of
 Divinity.^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   [Fourteen of Salmond's works](http://www.archive.org/search.php?query=creator:%22Salmond,%20S.%20D.%20F.%20(Stewart%20Dingwall%20Fordyce),%201838-1905%22)

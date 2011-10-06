@@ -27,7 +27,7 @@ to indicate that he is divine in nature, just as the title 'Son of
 Man,' among other things, indicates that he is human." - Walter
 Elwell, *Theological Dictionary of the Bible*, 411.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Sonship in the OT](#Sonship_in_the_OT)

@@ -22,6 +22,6 @@ forgiven.'" (Mark 4:10-12)
 -   [The Good Samaritan](Parable_of_the_Good_Samaritan "Parable of the Good Samaritan")
 -   [The Prodigal Son](index.php?title=Parable_of_the_Prodigal_Son&action=edit&redlink=1 "Parable of the Prodigal Son (page does not exist)")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -10,7 +10,7 @@ infralapsarianism and sublapsarianism is whether God decreed to
 provide salvation through Jesus Christ and then decreed to choose
 some to be saved, or vice-versa.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Order of God's decrees](Order_of_God's_decrees "Order of God's decrees")

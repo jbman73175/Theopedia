@@ -50,7 +50,7 @@ effect and implies that Jabez was honorable because he figured out
 the right way to pray. Wilkinson's emphasis is on Jabez finding the
 correct method, instead of on God and His Sovereignty.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## References
 
 1.  Bruce Wilkinson, *The Prayer of Jabez* (Multnomah, 2000)

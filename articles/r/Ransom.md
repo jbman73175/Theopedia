@@ -26,7 +26,7 @@ is Origen (ca. 185-254) who raises the question to whom the ransom
 was paid, and denies that it was paid to God, affirming that it was
 paid to the Devil.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) R. W. Lyon, *Elwell Evangelical Dictionary*, s.v.

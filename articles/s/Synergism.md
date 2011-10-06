@@ -34,7 +34,7 @@ Christ, but rather flows out of God's divine decree of election.
 may choose to resist the work of the Holy Spirit. ^[[7]](#note-6)^
 ^[[8]](#note-7)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

@@ -15,7 +15,7 @@ exchange for the supernatural ability of transmitting the Holy
 Spirit (Acts 8:14-19). Peter then condemned Simon and rebuked him
 so that he might repent (Acts 8:20-24).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Encyclopedia Britannica entry on Simon Magnus](http://www.britannica.com/EBchecked/topic/545225/Simon-Magus)

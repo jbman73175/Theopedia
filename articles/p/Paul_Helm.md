@@ -14,7 +14,7 @@ from 1993-2000. Helm earned his BA and MA from Oxford.
 -   [John Calvin: What's the Big Idea?](http://www.htc.uhi.ac.uk/audlist/jnmurray2007.mp3)
     (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Calvin at the Centre*. Oxford, 2010.

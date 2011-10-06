@@ -18,7 +18,7 @@ the
 thus undermining the importance of its founding Baptist theology
 and biblical doctrine.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 ## See also

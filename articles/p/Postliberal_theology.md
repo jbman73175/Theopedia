@@ -23,7 +23,7 @@ upon the importance of tradition and their associated historical
 communities in the shaping of experience and thought."
 ^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Resources](#Resources)

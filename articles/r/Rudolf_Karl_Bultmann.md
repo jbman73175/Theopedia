@@ -24,7 +24,7 @@ now knew (from the results of historical criticism) was not
 historically true in the Gospels and, therefore, to adjust their
 Christian appeal to a new existentialist theology.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *History of the Synoptic Tradition*, Harper San Francisco,

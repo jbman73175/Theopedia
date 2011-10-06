@@ -19,7 +19,7 @@ and as president of the
 [Evangelical Theological Society](Evangelical_Theological_Society "Evangelical Theological Society")
 in 1990.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Faculty profile page](http://www.tms.edu/facprofile.asp?profid=6)

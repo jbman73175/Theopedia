@@ -19,7 +19,7 @@ to being less literal than the [NIV](NIV "NIV"), which in turn is
 less literal than the [ESV](ESV "ESV"), which in turn is less
 literal than the [NASB](NASB "NASB").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Critique](#Critique)

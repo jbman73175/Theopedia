@@ -10,7 +10,7 @@
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## To God alone
 
 [R. C. Sproul](R._C._Sproul "R. C. Sproul") explains that "prayer

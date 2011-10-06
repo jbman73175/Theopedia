@@ -11,6 +11,6 @@ articles and books including *The Unity of the Twelve* (1990),
 a commentary on Lamentations in The Word Biblical Commentary
 (2003).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

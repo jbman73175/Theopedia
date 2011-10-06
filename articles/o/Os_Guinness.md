@@ -44,7 +44,7 @@ historical precedents set by William Wilberforce."
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Quotes
 
 -   "By our uncritical pursuit of relevance we have actually

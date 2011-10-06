@@ -31,7 +31,7 @@ that the idea of the Absolute permits no differentiations.'
 -   [God without Parts: The Doctrine of Divine Simplicity](http://www.youtube.com/watch?v=-davnzphHdc&feature=feedf),
     by James Dolezal
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 
 ## Contents

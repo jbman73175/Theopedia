@@ -8,7 +8,7 @@ about 20. Past and present professors include
 [John G. Stackhouse, Jr.](John_G._Stackhouse,_Jr. "John G. Stackhouse, Jr."),
 and [Clark Pinnock](Clark_Pinnock "Clark Pinnock").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Regent College](http://www.regent-college.edu) official site

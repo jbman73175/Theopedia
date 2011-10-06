@@ -16,7 +16,7 @@ the Holy See (*Sancta Sedes*). Roman Catholics worldwide consider
 each pope to be [Jesus](Jesus "Jesus")' representative on Earth.
 The current pope is [Benedict XVI](Benedict_XVI "Benedict XVI").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Origin](#Origin)

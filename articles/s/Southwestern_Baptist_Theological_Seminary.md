@@ -7,7 +7,7 @@ social work to approximately 3,500 students. It is accredited by
 the Association of Theological Schools (ATS), and by the Southern
 Association of Colleges and Schools (SACS).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Southwestern Baptist Theological Seminary](http://www.swbts.edu/)

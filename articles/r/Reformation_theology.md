@@ -3,7 +3,7 @@
 from the [Reformation](Reformation "Reformation") era (1400 -
 1650).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   David Bagchi and David C. Steinmetz, eds.,

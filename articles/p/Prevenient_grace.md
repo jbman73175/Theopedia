@@ -31,7 +31,7 @@ same meaning.
     assisting grace which aids people who choose to co-operate in
     justifying themselves. See Council of Trent (Sess. VI, cap. v).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Common grace](Common_grace "Common grace")

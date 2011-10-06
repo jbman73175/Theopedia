@@ -17,7 +17,7 @@ Part of the series on
 -   [Great Flood](Great_Flood "Great Flood")
 -   [Tower of Babel](Tower_of_Babel "Tower of Babel")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Who Were the Nephilim?](http://www.youtube.com/watch?v=RLiOqUR5Ma0),

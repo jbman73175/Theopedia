@@ -42,7 +42,7 @@ influence of Christians is increased."^[[2]](#note-1)^
 -   Gary North
 -   [Iain Murray](Iain_Murray "Iain Murray")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Millennial Kingdom](Millennial_Kingdom "Millennial Kingdom")

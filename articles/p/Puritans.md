@@ -9,7 +9,7 @@ theological writing that is unsurpassed in
 writings were both polemic and devotional treatments of theology."
 [[1]](http://www.spurgeon.org/~phil/puritans.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [History and Theology of the Puritans](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1167851904.01167851909),

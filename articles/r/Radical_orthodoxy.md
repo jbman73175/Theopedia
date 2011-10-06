@@ -11,7 +11,7 @@ Catherine Pickstock and Graham Ward." ^[[1]](#note-0)^
 -   [Radical Orthodoxy](http://www.theologyphilosophycentre.co.uk/docs/mp3/ideas_20070604_2421.mp3)
     (Quicktime), a podcast with John Milbank and Catherine Pickstock
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Resources](#Resources)

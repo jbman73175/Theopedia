@@ -18,7 +18,7 @@ work entitled *Arminian Theology: Myths And Realities* defends his
 admitting it is [synergistic](Synergism "Synergism") in its view of
 [salvation](Salvation "Salvation").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *God in Dispute: "Conversations" among Great Christian Thinkers*.

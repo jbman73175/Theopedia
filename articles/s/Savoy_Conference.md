@@ -11,6 +11,6 @@ in attendance.
 The 1662 [Act of Uniformity](Act_of_Uniformity "Act of Uniformity")
 soon followed.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

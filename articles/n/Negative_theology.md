@@ -30,7 +30,7 @@ prominent in
 Gregory Palamas) where apophatic statements are crucial to much of
 their theology, and is used to balance cataphatic theology.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   [Colin Gunton](Colin_Gunton "Colin Gunton"), *Act and Being*

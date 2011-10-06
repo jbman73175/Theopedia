@@ -14,7 +14,7 @@ movement.
 -   [Rick McKinley: Imagination](http://www.youtube.com/watch?v=8geCU-HLoa8)
     (YouTube)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *This Beautiful Mess: Practicing the Presence of the Kingdom of God*.

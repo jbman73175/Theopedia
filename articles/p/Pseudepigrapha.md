@@ -41,6 +41,6 @@ The following documents are referred to as "pseudepigrapha."
 -   The Greek Apocalypse of Baruch (aka: 3 Baruch)
 -   Fragments of a Zadokite work (aka: The Damascus Document)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

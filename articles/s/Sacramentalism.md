@@ -19,7 +19,7 @@ to the Church, by which divine life is dispensed to us. the visible
 rites by which the sacraments are celebrated signify and make
 present the graces proper to each sacrament.^[3](#bib_3)^"
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Bibliography
 
 [1.](#bib_1_back) Dictionary.com, "Sacramentalism,"

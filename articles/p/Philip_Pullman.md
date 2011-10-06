@@ -9,7 +9,7 @@ his books are "about killing God"^[[2]](#note-1)^ and that he is
 belief."^[[3]](#note-2)^ The movie, "The Golden Compass," is based
 on his first book from the *Dark Materials* trilogy.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Resources](#Resources)

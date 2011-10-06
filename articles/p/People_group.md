@@ -28,7 +28,7 @@ etc." -Ed Dayton
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Unreached people groups
 
 An unreached people group is "a people group among which there is

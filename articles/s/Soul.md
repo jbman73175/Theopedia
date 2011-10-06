@@ -5,7 +5,7 @@ self. In theology, the soul is further defined as that part of the
 individual which partakes of divinity and often is considered to
 survive the death of the body."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Soul vs Spirit](#Soul_vs_Spirit)

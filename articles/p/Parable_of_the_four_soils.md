@@ -5,7 +5,7 @@ to explain to them the reason why people were rejecting him. It was
 not because there was anything wrong with Jesus himself or the
 things he was doing, it was a matter of the heart of the person.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) It is more commonly referred to as the

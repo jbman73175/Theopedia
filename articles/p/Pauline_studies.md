@@ -7,7 +7,7 @@ Was there a center to his theology? What is the background to his
 letters and thought? What was his knowledge of
 [Jesus](Jesus "Jesus")?
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Paul's letters](#Paul.27s_letters)

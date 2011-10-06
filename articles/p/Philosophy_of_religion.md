@@ -4,7 +4,7 @@ methods of philosophy to communicate, evaluate, and
 article the methods of philosophy of religion are viewed in
 accordance with historic Christianity.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   Philosophy of Religion

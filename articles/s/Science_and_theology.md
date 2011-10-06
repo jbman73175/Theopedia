@@ -26,7 +26,7 @@ essentially new material found in another recent work
 *The Oxford handbook of religion and science* (2006) edited by
 Philip Clayton and Zachary R. Simpson.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Further reading](#Further_reading)

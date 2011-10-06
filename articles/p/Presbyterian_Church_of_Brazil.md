@@ -12,7 +12,7 @@ and [Calvinist](Calvinist "Calvinist") theology. As of 2008, there
 are approximately 3,840 churches in all states of Brazil,
 representing about 503,500 members.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External Links
 
 -   [Igreja Presbiteriana do Brasil](http://www.ipb.org.br/),

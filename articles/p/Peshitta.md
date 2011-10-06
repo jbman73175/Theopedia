@@ -1,7 +1,7 @@
 The **Peshitta** is the standard version of the
 [Bible](Bible "Bible") in the Syriac language.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [The Peshitta Institute Leiden](http://www.leidenuniv.nl/gg/vakgroepen/peshitta/pil_menu.html).

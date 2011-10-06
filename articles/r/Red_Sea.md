@@ -37,7 +37,7 @@ the kingdom.
 A more extensive list may be found
 [here.](http://www.biblegateway.com/keyword/index.php?search=%22red+sea%22&searchtype=all&version1=31&spanbegin=1&spanend=73)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Quotes
 
 -   "The crossing of Israel . . . cannot be explained as a wading

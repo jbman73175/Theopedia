@@ -29,6 +29,6 @@ him as a person and his era (the "days of Noah"):
     by John D. Morris
 -   [Brief Chronology of Noah's Ark Depictions](http://www.worldwideflood.com/general/ark_history.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -11,6 +11,6 @@ an understanding of salvation by works; i.e., humanity is not saved
 by Christ but by their obedience to Christ through their faith and
 repentance.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -9,6 +9,6 @@ follows Reformed tradition, including
 founded in Jackson, Mississippi and also has campuses in Orlando,
 Florida and Charlotte, North Carolina.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

@@ -22,6 +22,6 @@ Toleration (1689), which exempted nonconformists who had taken the
 oaths of allegiance from penalties for nonattendance at the
 services of the Church of England.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

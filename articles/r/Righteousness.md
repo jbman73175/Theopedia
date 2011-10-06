@@ -6,7 +6,7 @@ The term **righteousness** is employed both in the
 connoted as a kind of moral attribute and quality while not
 diminishing the term's legal nature and status.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Righteousness in the OT
 
 Righteousness in the Old Testament is most often employed in books

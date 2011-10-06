@@ -13,7 +13,7 @@ equally important matters such as poverty, AIDS and other social
 issues. Campolo has written a book, *Red Letter Christians*, that
 seeks to explain the movenent.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   *[Red Letter Christians, A Citizen's Guide to Faith and Politics](http://www.amazon.com/gp/reader/0830745297/ref=sib_dp_pt#reader-link)*.

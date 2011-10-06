@@ -16,7 +16,7 @@ the author of two epistles. Tradition has also found Peter to be
 the source for the
 [Gospel of Mark](Gospel_of_Mark "Gospel of Mark").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Peter the Apostle](http://www.ccel.org/s/schaff/encyc/encyc08/htm/ii.xiv.ii.htm)

@@ -8,7 +8,7 @@ has published in the area of Mormon theology where he seeks to make
 an impact in Christian apologetics to
 [Mormonism](Mormonism "Mormonism").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Owen's faculty page](http://www.montreat.edu/bible/faculty.asp)

@@ -17,7 +17,7 @@ resurrection of the human body; belief in the existence of a spirit
 world; immortality of the soul; predestination; future rewards and
 punishments based upon works.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 Pharisaism had its beginnings in the Maccabean times (approx. 165
 BC) when the threat of persecution was driving many Jews to
 relinquish their distinctive manner of life and accept Greek ways.

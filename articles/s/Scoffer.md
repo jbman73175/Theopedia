@@ -3,6 +3,6 @@
 arrogant people. "'Scoffer' is the name of the arrogant, haughty
 man who acts with arrogant pride." -Proverbs 21:24
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

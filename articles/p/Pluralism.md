@@ -31,7 +31,7 @@ tolerance and relativism."
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Proponents
 
 [John Hick](index.php?title=John_Hick&action=edit&redlink=1 "John Hick (page does not exist)"),

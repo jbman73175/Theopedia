@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 A *seal* in Scripture can refer to a royal signet ring, used to
 enact a decree (cf. Esther 8:10).
 

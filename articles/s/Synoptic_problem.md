@@ -20,7 +20,7 @@ similarities are even more asounding. In some places, the
 Evangelists have identical parenthetical material," (Williams,
 *Two Gospels From One*, p. 22-23).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Synoptic theories](#Synoptic_theories)

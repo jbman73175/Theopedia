@@ -16,7 +16,7 @@ documents, then as now. It was not an 'acceptable literary practice
 of that era' as some might lead [others] to believe."
 [Ben Witherington](http://benwitherington.blogspot.com/2006/04/gospel-of-judas-part-two.html)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Gospel of Thomas](Gospel_of_Thomas "Gospel of Thomas")

@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Jonathan Edwards and Revival, Part 1](http://media.desiringgod.org/audio/1995/19950813_edwards.mp3),

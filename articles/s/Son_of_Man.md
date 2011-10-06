@@ -22,7 +22,7 @@ foremost heir to a throne. ^[[1]](#note-0)^ Therefore, it can be
 seen as a strong claim to
 [divinity](Deity_of_Jesus "Deity of Jesus").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 In the Gospels](#In_the_Gospels)

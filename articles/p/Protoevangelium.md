@@ -9,6 +9,6 @@ seed and her seed; He shall bruise you on the head, and you shall
 bruise him on the heel," (Gen. 3:15 [NASB](NASB "NASB")).
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

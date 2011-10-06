@@ -19,6 +19,6 @@ especially holy (as used by the Roman church), but is a simple
 reference to Christians -- emphasizing that they have been set
 apart by God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

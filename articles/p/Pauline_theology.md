@@ -15,7 +15,7 @@ non-Christian scholars, claim to see a Pauline distinctive
 different from that found elsewhere in the New Testament, a
 distinctive that unduly influenced later Christianity.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   David B. Capes, et al.

@@ -10,7 +10,7 @@ NY (1972) and a Ph.D. from Duke University (1976). Muller is an
 expert on Reformation theology, especially the life and thought of
 [John Calvin](John_Calvin "John Calvin").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected works
 
 -   *Christ and the Decree: Christology and Predestination in Reformed Theology from Calvin to Perkins*.

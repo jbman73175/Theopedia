@@ -20,7 +20,7 @@ Father (in parental relationship to humanity), in His Son (in human
 flesh), and as the Holy Spirit (in spiritual action). (Malachi
 2:10; Luke 1:35; 2 Corinthians 3:17-18; 1 Timothy 2:5).
 (*The United Pentecostal Church International*,[[1]](http://www.watchman.org/profile/onenesspro.htm#16))
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Trinity](Trinity "Trinity")

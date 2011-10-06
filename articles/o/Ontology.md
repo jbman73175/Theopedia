@@ -4,7 +4,7 @@ In philosophy, **ontology** is the most fundamental branch of
 thereof. It has strong implications for the conceptions of
 reality.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Ontology](http://en.wikipedia.org/wiki/Ontology) (Wikipedia)

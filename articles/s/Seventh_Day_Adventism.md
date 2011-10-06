@@ -13,7 +13,7 @@ seems to be that "...it is perfectly possible to be a Seventh-day
 Adventist and be a true follower of Jesus Christ despite heterodox
 concepts..."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Church History Lecture \#11](http://www.archive.org/download/ChurchHistory/ChurchHistory11.mp3),

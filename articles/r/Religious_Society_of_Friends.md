@@ -13,7 +13,7 @@ previously called *Children of the Light* and
 Derby first used the term *Quakers* in 1650 after witnessing the
 trembling of Friends under religious fervour.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [http://www.quaker.org/](http://www.quaker.org/)

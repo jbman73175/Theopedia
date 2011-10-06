@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Old covenant](index.php?title=Old_covenant&action=edit&redlink=1 "Old covenant (page does not exist)")

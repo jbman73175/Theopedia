@@ -31,7 +31,7 @@ God, for it is he who gives you the ability to produce wealth, and
 so confirms his covenant, which he swore to your forefathers, as it
 is today."
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Mercy](Mercy "Mercy")

@@ -26,7 +26,7 @@ this event, and it is solemnly observed as the birthday of the
 church and the feast of the
 [Holy Spirit](Holy_Spirit "Holy Spirit").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Pentecostalism](Pentecostalism "Pentecostalism")

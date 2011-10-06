@@ -13,7 +13,7 @@ Father, even the Spirit of truth, which proceedeth from the Father,
 he shall bear witness of me.' "
 -[Loraine Boettner](Loraine_Boettner "Loraine Boettner")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 See also](#See_also)

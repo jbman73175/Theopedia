@@ -17,7 +17,7 @@ decree to permit the fall logically preceded His decree of
 election. So when God chose the elect and passed over the
 non-elect, He was contemplating them all as fallen creatures.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Order of God's decrees](Order_of_God's_decrees "Order of God's decrees")

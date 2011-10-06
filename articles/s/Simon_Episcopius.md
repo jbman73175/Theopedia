@@ -4,7 +4,7 @@ Simon Episcopius
 **Simon Episcopius** (1583-1643), the Latin form of the name of
 Simon Bischop, a Dutch theologian born at Amsterdam.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Five articles of Remonstrance](Five_articles_of_Remonstrance "Five articles of Remonstrance")

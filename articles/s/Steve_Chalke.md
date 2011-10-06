@@ -18,7 +18,7 @@ NT Wright has strongly supported Chalke and claims that he does
 after all believe in PSA despite an article by Chalke which denies
 this categorically.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Penal substitution theory of the atonement](Penal_substitution_theory_of_the_atonement "Penal substitution theory of the atonement")

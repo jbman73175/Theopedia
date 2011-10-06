@@ -13,7 +13,7 @@ blameless, pure, set apart from sinners, exalted above the heavens"
 Corinthians 5:21). Even Jesus himself asked those around him, "Can
 any of you prove me guilty of sin?" (John 8:46).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Sinless yet human
 
 One problem arises from a study of the sinlessness of Jesus. Some

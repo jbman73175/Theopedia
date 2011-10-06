@@ -10,7 +10,7 @@ criterion of truth. In 1901 he became principal of Hackney
 Congregational College and in 1905 chairman of the Congregational
 Union."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected works](#Selected_works)

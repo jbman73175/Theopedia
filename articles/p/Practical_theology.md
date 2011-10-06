@@ -4,7 +4,7 @@ from [divine revelation](Revelation_of_God "Revelation of God") and
 focuses on the church's life and its ongoing growth in
 [Jesus Christ](Jesus_Christ "Jesus Christ").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   David John Atkinson & David Field, eds.

@@ -39,7 +39,7 @@ who style themselves as rejectors of "supersessionism" or
 "replacement theology", and thus they are using the terms in a way
 that is distinctive to their expectation of future events.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Dispensationalism](Dispensationalism "Dispensationalism")

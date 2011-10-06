@@ -2,7 +2,7 @@
 should be rendered “Sea of Reeds.” "
 [[1]](http://www.christiancourier.com/archives/redSeaMiracle.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Red Sea](Red_Sea "Red Sea")

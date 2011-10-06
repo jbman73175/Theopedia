@@ -19,7 +19,7 @@ of a text, the genre and context should never be ignored. As the
 saying goes, "a text without a context is a pretext for a proof
 text."
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Resources](#Resources)

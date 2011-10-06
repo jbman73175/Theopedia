@@ -30,7 +30,7 @@ that miracles do not happen, that prayer isn’t answered and that
 most things “fall out” according to the functioning of impersonal
 and unchangeable laws."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Providence in Calvin's Institutes](http://covenantseminary.inmotionhosting.com/CH523_Lecture_06.mp3)

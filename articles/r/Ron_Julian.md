@@ -7,7 +7,7 @@ of
 *Righteous Sinners: The Believer's Struggle With Faith, Grace, and Works*
 (1998).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [McKenzie Study Center](http://www.mckenziestudycenter.org/)

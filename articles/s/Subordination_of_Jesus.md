@@ -32,7 +32,7 @@ spake the Law and was the Law-giver."
 (*Epistle of Cyril to Nestorius with the XII Anathematisms*)
 [[2]](http://www.catholic-forum.com/saints/stc15004.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Subordinationism](Subordinationism "Subordinationism")

@@ -3,7 +3,7 @@ The doctrine of **separation**, also known as the doctrine of
 church should be separate from the world and not have association
 with those who are of the world.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Ecumenism](Ecumenism "Ecumenism")

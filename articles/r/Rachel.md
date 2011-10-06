@@ -7,6 +7,6 @@ She is the younger sister of
 Jacob's first wife, and both are daughters of
 [Laban](index.php?title=Laban&action=edit&redlink=1 "Laban (page does not exist)").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

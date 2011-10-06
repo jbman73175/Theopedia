@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Reconciliation to God in Christ
 
 "For if, when we were God's enemies, we were reconciled to him

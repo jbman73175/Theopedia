@@ -18,7 +18,7 @@ such as [Paul Tillich](Paul_Tillich "Paul Tillich"),
 [Robert Jenson](Robert_Jenson "Robert Jenson"), and possibly
 [Karl Rahner](Karl_Rahner "Karl Rahner").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

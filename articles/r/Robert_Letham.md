@@ -15,7 +15,7 @@ Baltimore / Washington DC.
 Letham received his MAR and ThM at Westminster Theological Seminary
 (Philadelphia) and PhD from Aberdeen University in Scotland.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected writings
 
 -   *Through Western Eyes: Eastern Orthodoxy, A Reformed Perspective*.

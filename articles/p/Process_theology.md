@@ -12,7 +12,7 @@ is apart from the universe, yet also *in* it. As the world is in
 the process of changing, so is God, and he is in the *process* of
 becoming all that he can be.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Process theology and God
 
 In Process theology, God has two poles:

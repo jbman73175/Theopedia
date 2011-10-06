@@ -85,7 +85,7 @@ of faith in all the ancient creeds:
     an account of their deeds"
     [Athanasian Creed](Athanasian_Creed "Athanasian Creed").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Ephesians 1:13-14

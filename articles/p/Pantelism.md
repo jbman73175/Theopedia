@@ -36,7 +36,7 @@ endless utopian bliss of Heaven. No, Christ's Coming, also known as
 'the Parousia' was all about the ending of the Mosaic world of the
 Law for righteousness, followed by the ageless world of the Gospel
 of Grace – our present time Rev 14:6. ^[[2]](#note-1)^
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) C. Jonathan Seraiah,
