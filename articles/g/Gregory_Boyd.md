@@ -1,6 +1,3 @@
-[![image](images/thumb/7/79/GregBoyd.jpg/135px-GregBoyd.jpg)](http://www.theopedia.com/File:GregBoyd.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GregBoyd.jpg "Enlarge")
-Gregory Boyd
 "**Gregory Boyd** is the preaching pastor at Woodland Hills Church
 in St. Paul, Minn., and the author of *God of the Possible* and
 *Across the Spectrum*, among several books."

@@ -1,6 +1,3 @@
-[![image](images/d/de/Vos.jpg)](http://www.theopedia.com/File:Vos.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Vos.jpg "Enlarge")
-Geerhardus Vos
 **Geerhardus Vos** (1862-1949), a Reformed theologian and one of
 the most distinguished representatives of the Princeton Theology,
 he is sometimes called the father of Reformed Biblical Theology.

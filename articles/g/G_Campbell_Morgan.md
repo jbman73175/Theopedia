@@ -1,6 +1,3 @@
-[![image](images/thumb/6/6f/Morgan.jpg/180px-Morgan.jpg)](http://www.theopedia.com/File:Morgan.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Morgan.jpg "Enlarge")
-G. Campbell Morgan
 **G. Campbell Morgan** (1863-1945) was born on a farm in Tetbury,
 England, the son of a Baptist minister. When Campbell was 10 years
 old, [D. L. Moody](D._L._Moody "D. L. Moody") came to England for

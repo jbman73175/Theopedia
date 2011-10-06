@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a9/VonRad.jpg/180px-VonRad.jpg)](http://www.theopedia.com/File:VonRad.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:VonRad.jpg "Enlarge")
-Gerhard von Rad
 **Gerhard von Rad** (1901-1971) was a prominent German
 [Old Testament](Old_Testament "Old Testament") scholar whose work
 brought back focus to the Old Testament. He was educated at the

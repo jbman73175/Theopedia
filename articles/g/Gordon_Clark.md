@@ -1,6 +1,3 @@
-[![image](images/thumb/d/d0/Clark2.jpg/180px-Clark2.jpg)](http://www.theopedia.com/File:Clark2.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Clark2.jpg "Enlarge")
-Gordon H. Clark
 **Gordon Haddon Clark** (1902-1985) was a philosopher and
 [Calvinist](Calvinist "Calvinist")
 [theologian](Theologian "Theologian") and taught
@@ -30,22 +27,6 @@ know, and how they know what they know." (Dr. C. Matthew McMahon
 
 -   [The Trinity Lectures](http://www.trinitylectures.org/MP3_downloads.php)
 
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 The Clark-Van Til controversy](#The_Clark-Van_Til_controversy)
--   [3 Publications](#Publications)
-    -   [3.1 Philosophy](#Philosophy)
-    -   [3.2 Theology](#Theology)
-    -   [3.3 Commentaries](#Commentaries)
-
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-    -   [5.1 Miscellaneous articles](#Miscellaneous_articles)
-
-
-[![image](images/thumb/4/48/GordonHaddonClark.jpg/180px-GordonHaddonClark.jpg)](http://www.theopedia.com/File:GordonHaddonClark.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GordonHaddonClark.jpg "Enlarge")
 Gordon Clark early in his career
 ## Biographical sketch
 

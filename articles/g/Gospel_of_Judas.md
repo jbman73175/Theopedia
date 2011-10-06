@@ -1,6 +1,3 @@
-[![image](images/thumb/0/0d/Gospel_of_Judas.jpg/180px-Gospel_of_Judas.jpg)](http://www.theopedia.com/File:Gospel_of_Judas.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Gospel_of_Judas.jpg "Enlarge")
-One page from the Gospel of Judas
 The **Gospel of Judas** is part of an ancient Coptic (Egyptian)
 codex which dates from around the third century AD. Although
 discovered in the 1970s, the portion called the *Gospel of Judas*

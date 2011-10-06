@@ -1,6 +1,3 @@
-[![image](images/thumb/6/64/GELadd.jpg/180px-GELadd.jpg)](http://www.theopedia.com/File:GELadd.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GELadd.jpg "Enlarge")
-George Eldon Ladd
 **George Eldon Ladd** (1911-1982) was an
 [evangelical](Evangelical "Evangelical")
 [New Testament](New_Testament "New Testament") scholar and

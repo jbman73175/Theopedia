@@ -1,6 +1,3 @@
-[![image](images/thumb/1/12/Hunsinger1.jpg/180px-Hunsinger1.jpg)](http://www.theopedia.com/File:Hunsinger1.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Hunsinger1.jpg "Enlarge")
-George Hunsinger
 **George Hunsinger** is an ordained
 [Presbyterian](Presbyterian "Presbyterian") minister and
 [theologian](Theologian "Theologian"). He is currently the Hazel

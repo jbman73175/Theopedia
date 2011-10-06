@@ -1,6 +1,3 @@
-[![image](images/a/a7/Graeme.jpg)](http://www.theopedia.com/File:Graeme.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Graeme.jpg "Enlarge")
-Graeme Goldsworthy
 **Graeme Goldsworthy** is an Australian
 [Anglican](Anglican "Anglican") and
 [Old Testament](Old_Testament "Old Testament") scholar. Now

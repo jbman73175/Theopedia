@@ -1,6 +1,3 @@
-[![image](images/thumb/1/14/GaryEGilley.jpg/150px-GaryEGilley.jpg)](http://www.theopedia.com/File:GaryEGilley.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GaryEGilley.jpg "Enlarge")
-Gary Gilley
 **Gary E. Gilley** has pastored
 [Southern View Chapel](http://www.svchapel.org/) in Springfield,
 Illinois, for over 33 years. He has authored several books and is

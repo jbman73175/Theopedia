@@ -1,6 +1,3 @@
-[![image](images/thumb/8/87/Habermas.jpg/200px-Habermas.jpg)](http://www.theopedia.com/File:Habermas.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Habermas.jpg "Enlarge")
-Gary Habermas
 **Gary Habermas** (b. 1950) is an American Christian apologist,
 [theologian](Theologian "Theologian"), and philosopher of religion.
 He is Distinguished Professor of Apologetics and Philosophy and

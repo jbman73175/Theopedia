@@ -1,6 +1,3 @@
-[![image](images/e/e9/Bahnsen.jpg)](http://www.theopedia.com/File:Bahnsen.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Bahnsen.jpg "Enlarge")
-Greg Bahnsen
 **Greg Bahnsen** (1948-1995) was the scholar in residence at The
 Southern California Center for Christian Studies where he taught
 [Apologetics](Apologetics "Apologetics") from a distinctly

@@ -1,6 +1,3 @@
-[![image](images/a/ac/Bray.jpg)](http://www.theopedia.com/File:Bray.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Bray.jpg "Enlarge")
-Gerald Bray
 **Gerald Lewis Bray** is an Evangelical theologian, writer, and
 research professor for Samford University. He previously taught at
 Beeson Divinity School, where he continues to teach specialized

@@ -1,6 +1,3 @@
-[![image](images/thumb/4/47/Whitefield.jpg/200px-Whitefield.jpg)](http://www.theopedia.com/File:Whitefield.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Whitefield.jpg "Enlarge")
-George Whitefield
 **George Whitefield** was a minister in the
 [Church of England](Church_of_England "Church of England") and one
 of the leaders of the [Methodist](Methodist "Methodist") movement.

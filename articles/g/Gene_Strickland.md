@@ -1,6 +1,3 @@
-[![image](images/thumb/8/8b/Gene.JPG/175px-Gene.JPG)](http://www.theopedia.com/File:Gene.JPG)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Gene.JPG "Enlarge")
-Gene Strickland
 **Gene Strickland** (b. 1963 in Suffolk, Virginia) is the founder,
 president, and lead-evangelist of Evangelism International.
 Strickland studied and earned his degree in Biblical Studies at

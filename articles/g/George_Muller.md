@@ -1,6 +1,3 @@
-[![image](images/f/f7/GMuller.jpg)](http://www.theopedia.com/File:GMuller.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:GMuller.jpg "Enlarge")
-George Müller
 **George Muller**, or Müller or Mueller^[[1]](#note-0)^
 (1805-1898), a Prussian-born English evangelist and philanthropist.
 Especially known for his work in establishing orphanages in Bristol
