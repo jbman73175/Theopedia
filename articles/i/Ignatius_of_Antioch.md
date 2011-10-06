@@ -1,6 +1,3 @@
-[![image](images/2/27/Ignatius.jpg)](http://www.theopedia.com/File:Ignatius.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Ignatius.jpg "Enlarge")
-Ignatius of Antioch
 **Ignatius of Antioch** (ca. 50 - 110) was the third bishop of
 Antioch, after [Peter](Peter "Peter") and Euodius, whom Ignatius
 succeeded around AD 68. Ignatius, who also called himself

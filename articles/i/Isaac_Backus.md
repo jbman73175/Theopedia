@@ -1,6 +1,3 @@
-[![image](images/thumb/5/57/Backus.jpg/180px-Backus.jpg)](http://www.theopedia.com/File:Backus.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Backus.jpg "Enlarge")
-Isaac Backus
 **Isaac Backus** (1724-1806), born in Norwich, Conn., was a
 [Baptist](Baptist "Baptist") leader in colonial America and a
 defender of religious freedom. He became a Christian in 1741 during

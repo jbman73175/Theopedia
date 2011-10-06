@@ -1,6 +1,3 @@
-[![image](images/6/69/Kant.jpg)](http://www.theopedia.com/File:Kant.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Kant.jpg "Enlarge")
-Immanuel Kant
 **Immanuel Kant** (April 22, 1724 – February 12, 1804) was a German
 philosopher and scientist (astrophysics, mathematics, geography,
 anthropology) from East Prussia, generally regarded as one of

@@ -1,6 +1,3 @@
-[![image](images/d/de/IHMarshall.jpg)](http://www.theopedia.com/File:IHMarshall.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:IHMarshall.jpg "Enlarge")
-I. Howard Marshall
 **I. Howard Marshall** is Emeritus Professor of New Testament
 Exegesis and Honorary Research Professor at the University of
 Abderdeen (Scotland), specifically in the department of Divinity

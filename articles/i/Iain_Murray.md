@@ -1,6 +1,3 @@
-[![image](images/5/58/Iain_murray.jpg)](http://www.theopedia.com/File:Iain_murray.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Iain_murray.jpg "Enlarge")
-Iain Murray
 **Iain H. Murray**, born in Lancashire, England in 1931 is a
 [Reformed](Reformed "Reformed") theological historian and
 co-founder of Banner of Truth Trust, which reprints many classic
