@@ -124,6 +124,7 @@ through prophets, apostles, and most fully in his
 preserved in the Bible.
 
 *See main page: [Revelation of God](Revelation_of_God "Revelation of God")*
+
 ## Development of the canon
 
 The development of the canon deals with how the Bible came to be.
@@ -138,6 +139,7 @@ authored."
 [[1]](http://www.valleybible.net/resources/AdultEducationClasses/Doctrine/Bibliology/canonicity.shtml)
 
 *See main page: [Development of the canon](Development_of_the_canon "Development of the canon")*
+
 ## Transmission
 
 "After the original biblical text was penned by the authors (or by
@@ -147,6 +149,7 @@ process of copying is known as transmission."
 [[2]](http://www.valleybible.net/resources/AdultEducationClasses/Doctrine/Bibliology/transmission.shtml)
 
 *See main page: [Transmission of the Bible](Transmission_of_the_Bible "Transmission of the Bible")*
+
 ## Historicity
 
 The historicity of the Old Testament seeks to establish the
@@ -156,10 +159,12 @@ the reliability of those who were involved with writing and putting
 the OT together.
 
 *See main page: [Historicity of the Old Testament](Historicity_of_the_Old_Testament "Historicity of the Old Testament") and [Historicity of the New Testament](Historicity_of_the_New_Testament "Historicity of the New Testament")*
+
 ## Biblical archaeology
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 *See main page: [Biblical archaeology](Biblical_archaeology "Biblical archaeology")*
+
 ## Authority
 
 Throughout history, a major contention has been the authority of
@@ -173,6 +178,7 @@ Scripture is the "only rule of faith and practice."
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 *See main page: [Authority of the Bible](Authority_of_the_Bible "Authority of the Bible")*
+
 ## Inspiration
 
 Inspiration establishes that the Bible is not only a human but also
@@ -185,6 +191,7 @@ with man's pen" ([J.I. Packer](J.I._Packer "J.I. Packer"),
 *The Origin of the Bible*, p. 31).
 
 *See main page: [Inspiration of the Bible](Inspiration_of_the_Bible "Inspiration of the Bible")*
+
 ## Inerrancy
 
 "Inerrancy is the view that when all the facts become known, they
@@ -197,10 +204,12 @@ was most recently and thoroughly articulated in 1978 in the
 [Chicago Statement on Biblical Inerrancy](Chicago_Statement_on_Biblical_Inerrancy "Chicago Statement on Biblical Inerrancy").
 
 *See main page: [Inerrancy of the Bible](Inerrancy_of_the_Bible "Inerrancy of the Bible")*
+
 ## Translation
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 *See main page: [Translation of the Bible](Translation_of_the_Bible "Translation of the Bible")*
+
 ## Interpretation
 
 The interpretation of the bible, also called "hermeneutics",
@@ -212,6 +221,7 @@ examining the actual biblical text as it came from each writer and
 to discover how they communicated God's truth.
 
 *See main page: [Interpretation of the Bible](Interpretation_of_the_Bible "Interpretation of the Bible")*
+
 ## Clarity
 
 The "meanings of the text can be clear to the ordinary reader,
@@ -222,6 +232,7 @@ and extend a great deal of effort to make it available to those who
 do not yet have it in their possession.
 
 *See main page: [Clarity of Scripture](Clarity_of_Scripture "Clarity of Scripture")*
+
 ## Sufficiency
 
 *[Sola Scriptura](Five_Solas "Five Solas")* is the teaching that
@@ -237,6 +248,7 @@ principles. For example, the New Testament gives little direct
 information about church government.
 
 *See main page: [Scripture alone](Scripture_alone "Scripture alone")*
+
 ## Resources
 
 -   [Gordon Fee](Gordon_Fee "Gordon Fee") and Douglas Stuart,
