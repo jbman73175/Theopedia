@@ -10,7 +10,7 @@ and earned doctorates from both Harvard and Boston Universities.
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Neo-evangelicalism](Neo-evangelicalism "Neo-evangelicalism")

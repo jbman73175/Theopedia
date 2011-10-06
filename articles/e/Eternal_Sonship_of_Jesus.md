@@ -9,7 +9,7 @@ person of the Godhead. According to this doctrine, Christ is and
 always has been the Son of God."
 [[1]](http://www.gotquestions.org/eternal-Sonship.html)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notable proponenets](#Notable_proponenets)

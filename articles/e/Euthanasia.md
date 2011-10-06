@@ -22,7 +22,7 @@ extraordinary medical treatment.
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Euthanasia](http://www.tms.edu/tmsj/tmsj11j.pdf) (PDF), by

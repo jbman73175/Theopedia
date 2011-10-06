@@ -10,7 +10,7 @@
 -   [Biblical Ethics](http://www.trinitylectures.org/MP3/Ethics_Biblical_Answers.mp3)
     (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Morality
 
 Morality, in Christian theology, ultimately finds its standard in

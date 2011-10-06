@@ -19,7 +19,7 @@ view was officially deemed heresy by the
 [Council of Chalcedon](Council_of_Chalcedon "Council of Chalcedon")
 in 451 CE.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Monophysitism](Monophysitism "Monophysitism")

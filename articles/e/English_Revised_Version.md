@@ -20,6 +20,6 @@ This English Revised Version was the basis for the later
 [American Standard Version](American_Standard_Version "American Standard Version")
 (1901).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

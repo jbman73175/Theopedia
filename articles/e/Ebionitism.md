@@ -6,6 +6,6 @@ emphasized Jewish law and rejected the teachings of the Apostle
 Later use of this term refers to anyone who minimizes the divinity
 of Christ.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

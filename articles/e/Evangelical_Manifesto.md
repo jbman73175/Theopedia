@@ -18,7 +18,7 @@ high calling of being Evangelical followers of Jesus Christ."
 -   ["Debate with Dr. Bock about the Evangelical Manifesto" – JJL](http://jerryjohnsonlive.wordpress.com/2008/05/09/a-debate-with-darrell-bock-about-“an-evangelical-manifesto”/)
 -   ["Discussion about 'An Evangelical Manifesto'" – JJL](http://jerryjohnsonlive.wordpress.com/2008/05/09/a-critique-of-“an-evangelical-manifesto”/)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Steering committee](#Steering_committee)

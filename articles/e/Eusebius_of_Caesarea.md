@@ -13,7 +13,7 @@ also a productive writer. His writing is considered the best source
 of early Christian history, due to the information it contains on
 events and people that is not recorded elsewhere.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Early church fathers](Early_church_fathers "Early church fathers")

@@ -13,6 +13,6 @@ representing about 70,000 members.
 -   [Book of Order](http://www.epc.org/general-assembly/BkOrder-2006Web.pdf)
 -   [Wikipedia article on the Evangelical Presbyterian Church (United States)](http://en.wikipedia.org/wiki/Evangelical_Presbyterian_Church_(United_States) "w:Evangelical Presbyterian Church (United States)")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

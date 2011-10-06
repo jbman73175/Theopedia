@@ -22,7 +22,7 @@ the recent Lutheran-Vatican
 and ecumenical activities such as found in
 [Promise Keepers](http://www.promisekeepers.org/about).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Co-belligerence](Co-belligerence "Co-belligerence")

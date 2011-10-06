@@ -11,7 +11,7 @@ The Episcopal Church came into existence as an independent
 denomination after the American Revolution when it was forced to
 break with the Church of England on political grounds.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Church Polity
 
 *See main page: [Episcopal (polity)](Episcopal_(polity) "Episcopal (polity)")*

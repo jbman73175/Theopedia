@@ -11,6 +11,6 @@ and
 [Loyola University](index.php?title=Loyola_University&action=edit&redlink=1 "Loyola University (page does not exist)").
 Lutzer was also on the Advisory Council for the [ESV](ESV "ESV").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

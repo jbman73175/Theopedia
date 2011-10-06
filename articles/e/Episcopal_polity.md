@@ -11,7 +11,7 @@ Denominations which operate with this form of polity include
 [Methodism](Methodism "Methodism"), and
 [Lutheranism](Lutheranism "Lutheranism").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Scripture
 
 **Timothy and Titus**

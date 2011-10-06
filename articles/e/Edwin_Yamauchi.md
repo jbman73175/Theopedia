@@ -11,7 +11,7 @@ active supporter of the Inter Varsity Christian Fellowship
 throughout his career, especially at the campus of Miami
 University.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Resume' at Evangelical Theological Society](http://www.etsjets.org/?q=officers/20)

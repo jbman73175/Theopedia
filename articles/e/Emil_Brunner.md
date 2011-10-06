@@ -23,7 +23,7 @@ revelation. Brunner refused to accept the radical divorce between
 grace and human consciousness that Barth
 proposed."^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

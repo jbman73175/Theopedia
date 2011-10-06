@@ -59,7 +59,7 @@ end of the world, resurrection of the dead,
 [Heaven](Heaven "Heaven") and [Hell](Hell "Hell"), and new
 creation.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   The Doctrine of Last Things -

@@ -18,7 +18,7 @@ the only true way to God. This is contrary to today's pluralistic
 environment, which would suggest that, as in the old saying "all
 roads lead to Rome", so all faiths indeed lead to God.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Must People Believe the Gospel to be Saved?](http://216.176.228.162:9037/ramgen/collconf2003/Wellum.rm)

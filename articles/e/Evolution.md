@@ -37,7 +37,7 @@ Darwin in his 1859 book
 -   [Irreducible Complexity: The Biochemical Challenge to Darwinism](http://webcast.ucsd.edu:8080/ramgen/UCSD_TV/6441IrrComBioCha.rm),
     (Real Media Video) by Michael Behe
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Natural Selection](#Natural_Selection)

@@ -24,7 +24,7 @@ ordained to such an office.
     (MP3), by Tope Koleoso (a sermon preached at
     [Jubilee Church London](http://www.jubilee-church.org))
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 New Testament](#New_Testament)
