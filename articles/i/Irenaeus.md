@@ -22,7 +22,9 @@ Testament prophecy.
 
 ## Life of Irenaeus
 
-**Early Years/Life** The facts about the life of Irenaeus are not
+### Early Years/Life
+
+The facts about the life of Irenaeus are not
 extremely clear or plentiful. We do know that he was born somewhere
 in Asia Minor—probably in Smyrna, as it is written that he studied
 under Polycarp of Smyrna in his youth. At some point before 177
@@ -40,7 +42,9 @@ Irenaeus wrote against Gnosticism and Marcionism—both heresies that
 had cropped up in many places of the empire, influencing and
 leading astray many individuals.
 
-**Death** Irenaeus died around the year 200 AD. There is a later
+### Death
+
+Irenaeus died around the year 200 AD. There is a later
 tradition of Irenaeus being martyred under Septimus Severus. Jerome
 in one passage called Irenaeus a martyr, but no other early author
 gave that title to Irenaeus.^[[2]](#note-1)^ The next time that
