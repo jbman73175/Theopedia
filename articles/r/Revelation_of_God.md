@@ -73,7 +73,6 @@ the [Bible](Bible "Bible"). Such revelation is sufficient to
 communicate the gospel, unlike general revelation, and thus
 salvation is possible only through special revelation.
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 ## The nature of revelation
 
 The nature of revelation depends on whether revelation is given or
