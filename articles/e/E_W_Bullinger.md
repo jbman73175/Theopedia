@@ -1,6 +1,3 @@
-[![image](images/2/2c/Bullinger.jpg)](http://www.theopedia.com/File:Bullinger.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Bullinger.jpg "Enlarge")
-E. W. Bullinger
 **Ethelbert William Bullinger** (December 15, 1837 - June 6, 1913)
 was a Vicar of the
 [Church of England](Church_of_England "Church of England"),

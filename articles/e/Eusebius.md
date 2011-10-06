@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a2/Eusebius.jpg/200px-Eusebius.jpg)](http://www.theopedia.com/File:Eusebius.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Eusebius.jpg "Enlarge")
-Eusebius of Caesarea
 **Eusebius of Caesarea** (circa 275 to 339) was bishop of Caesarea
 in Palestine and is often referred to as the father of church
 history because of his work in recording the history of the early

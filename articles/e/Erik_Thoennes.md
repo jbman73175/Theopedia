@@ -1,6 +1,3 @@
-[![image](images/5/58/Thoennes.jpeg)](http://www.theopedia.com/File:Thoennes.jpeg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Thoennes.jpeg "Enlarge")
-Erik Thoennes
 **Erik Thoennes** is currently Associate Professor of Biblical
 Studies and Theology at Talbot School of Theology at
 [Biola University](Biola_University "Biola University") in La

@@ -1,6 +1,3 @@
-[![image](images/9/9b/Brunner.jpg)](http://www.theopedia.com/File:Brunner.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Brunner.jpg "Enlarge")
-Emil Brunner
 **Emil Brunner** (1889-1966) was a highly influential Swiss
 theologian who, along with [Karl Barth](Karl_Barth "Karl Barth"),
 is associated with [Neo-Orthodoxy](Neo-Orthodoxy "Neo-Orthodoxy")
@@ -22,15 +19,6 @@ system, came into conflict with Barth over the question of natural
 revelation. Brunner refused to accept the radical divorce between
 grace and human consciousness that Barth
 proposed."^[[1]](#note-0)^
-
-
-## Contents
-
--   [1 Notes](#Notes)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
 
 ## Notes
 
