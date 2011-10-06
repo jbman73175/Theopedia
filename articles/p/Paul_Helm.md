@@ -1,6 +1,3 @@
-[![image](images/c/c8/Helm.jpg)](http://www.theopedia.com/File:Helm.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Helm.jpg "Enlarge")
-Paul Helm
 **Paul Helm** is a [Calvinist](Calvinist "Calvinist") theologian
 and Teaching Fellow at Regent College in Canada since 2005. Helm
 has also taught at Highland Theological College since 2007 and was

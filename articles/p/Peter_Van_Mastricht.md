@@ -1,6 +1,3 @@
-[![image](images/thumb/d/d2/Van_Mastricht.jpg/180px-Van_Mastricht.jpg)](http://www.theopedia.com/File:Van_Mastricht.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Van_Mastricht.jpg "Enlarge")
-Peter Van Mastricht
 **Peter Van Mastricht** (1630-1706) was a German-Dutch theologian
 who studied at Utrecht under Gisbert Voetius. He held pastorates in
 Germany and Denmark before accepting a position as professor of

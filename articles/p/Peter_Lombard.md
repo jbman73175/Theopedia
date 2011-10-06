@@ -1,6 +1,3 @@
-[![image](images/5/54/Lombard.jpg)](http://www.theopedia.com/File:Lombard.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Lombard.jpg "Enlarge")
-Peter Lombard
 **Peter Lombard** (ca. 1095 – 1160), also known as the "Master of
 the Sentences" or "the Lombard", was a
 [scholastic](Scholasticism "Scholasticism") theologian and bishop

@@ -1,6 +1,3 @@
-[![image](images/6/62/Toon.jpg)](http://www.theopedia.com/File:Toon.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Toon.jpg "Enlarge")
-Dr. Peter Toon
 **Peter Toon**, born in 1939 in Yorkshire, England, is an
 [Anglican](Anglican "Anglican") theologian and author. He is a
 graduate of King's College, London, and Christ Church, Oxford, with

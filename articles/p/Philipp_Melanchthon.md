@@ -1,7 +1,3 @@
-[![image](images/thumb/b/b8/Melanchthon.jpg/180px-Melanchthon.jpg)](http://www.theopedia.com/File:Melanchthon.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Melanchthon.jpg "Enlarge")
-Portrait of Philipp Melanchthon, by Lucas Cranach the Elder. Oil on
-panel.
 **Philipp Melanchthon** (1497 - 1560) German author of the
 [Augsburg Confession](Augsburg_Confession "Augsburg Confession") of
 the Lutheran Church (1530), humanist, theologian, and educator.

@@ -1,6 +1,3 @@
-[![image](images/thumb/2/21/Tillich.jpg/180px-Tillich.jpg)](http://www.theopedia.com/File:Tillich.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Tillich.jpg "Enlarge")
-Paul Tillich
 **Paul Johannes Tillich** (1886-1965) was a German-American
 theologian and Christian
 [existentialist](Existentialism "Existentialism") philosopher.

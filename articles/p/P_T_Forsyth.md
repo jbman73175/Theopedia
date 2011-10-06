@@ -1,5 +1,3 @@
-[![image](images/6/63/Forsyth.jpg)](http://www.theopedia.com/File:Forsyth.jpg)
-P. T. Forsyth
 **Peter Taylor Forsyth** (1848-1921), a Scottish theologian,
 graduated from the University of Aberdeen and then studied under
 Albrecht Ritschl in Germany. "During successive Congregational

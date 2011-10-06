@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a5/Fairbairn.jpg/180px-Fairbairn.jpg)](http://www.theopedia.com/File:Fairbairn.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Fairbairn.jpg "Enlarge")
-Patrick Fairbairn
 **Patrick Fairbairn** (1805-1874) was born in Berwickshire,
 Scotland, studied at Edinburgh University, and was an outstanding
 scholar among Scottish

@@ -1,6 +1,3 @@
-[![image](images/0/0e/Vermigli.jpg)](http://www.theopedia.com/File:Vermigli.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Vermigli.jpg "Enlarge")
-Peter Martyr Vermigli
 **Peter Martyr Vermigli**, generally known as Peter Martyr
 (1500-1562), was a [theologian](Theologian "Theologian") of the
 Reformation period born in Florence, Italy.

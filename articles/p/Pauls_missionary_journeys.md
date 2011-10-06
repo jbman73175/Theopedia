@@ -1,13 +1,3 @@
-
-[![image](images/thumb/c/c2/Paul1.gif/300px-Paul1.gif)](http://www.theopedia.com/File:Paul1.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Paul1.gif "Enlarge")
-Paul's first missionary journey - click to enlarge
-[![image](images/thumb/4/48/Paul2.gif/300px-Paul2.gif)](http://www.theopedia.com/File:Paul2.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Paul2.gif "Enlarge")
-Paul's second missionary journey - click to enlarge
-[![image](images/thumb/6/60/Paul3.gif/300px-Paul3.gif)](http://www.theopedia.com/File:Paul3.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Paul3.gif "Enlarge")
-Paul's third missionary journey - click to enlarge
 ## External links
 
 -   [Journeys of Paul](http://www.luthersem.edu/ckoester/Paul/Main.htm)

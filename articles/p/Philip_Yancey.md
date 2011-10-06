@@ -1,6 +1,3 @@
-[![image](images/thumb/5/5a/Yancey.jpg/150px-Yancey.jpg)](http://www.theopedia.com/File:Yancey.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Yancey.jpg "Enlarge")
-Philip Yancey
 Philip Yancey is the author of more than a dozen books and hundreds
 of columns and is an editor-at-large for *Christianity Today*. He
 earned graduate degrees in Communications and English from

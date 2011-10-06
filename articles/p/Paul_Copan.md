@@ -1,6 +1,3 @@
-[![image](images/a/a5/Copan.jpg)](http://www.theopedia.com/File:Copan.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Copan.jpg "Enlarge")
-Paul Copan
 **Paul Copan** is a Christian philosopher, apologist, and author.
 Copan holds the prestigious Pledger Family Chair of Philosophy and
 Ethics at [Palm Beach Atlantic University](http://pba.edu). He has

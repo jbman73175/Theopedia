@@ -1,6 +1,3 @@
-[![image](images/thumb/4/41/Polycarp.jpg/200px-Polycarp.jpg)](http://www.theopedia.com/File:Polycarp.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Polycarp.jpg "Enlarge")
-Polycarp, Bishop at Smyrna
 **Polycarp** is a celebrated figure in the
 [history of Christianity](Church_history "Church history"). A
 direct pupil of the apostle [John](John "John"), Polycarp lived
