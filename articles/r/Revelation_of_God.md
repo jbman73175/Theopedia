@@ -4,35 +4,6 @@ words, how he has made himself known. Theologians generally
 distinguish God's revelation in two ways: General, and Special
 revelation.
 
-**Multimedia**
-
-**General Revelation**
-
--   Introduction to Revelation
-    ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051112.m3u),
-    [Windows Media](http://broadcast.ligonier.org/playlists/rym20051112.asx)),
-    by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
--   [General Revelation](http://hisdefense.org/LinkClick.aspx?link=Audio/Reynolds+-+General+Revelation.ram&tabid=136&mid=956),
-    (Real Media) by John Mark Reynolds
-
-## Contents
-
--   [1 General revelation](#General_revelation)
-    -   [1.1 Physical nature](#Physical_nature)
-    -   [1.2 Human nature](#Human_nature)
-    -   [1.3 History](#History)
-
--   [2 Special revelation](#Special_revelation)
--   [3 The nature of revelation](#The_nature_of_revelation)
--   [4 Notes](#Notes)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 General revelation](#General_revelation_2)
-    -   [7.2 Special revelation](#Special_revelation_2)
-    -   [7.3 The nature of revelation](#The_nature_of_revelation_2)
-
-
 ## General revelation
 
 Also known as Universal revelation, general revelation deals with
