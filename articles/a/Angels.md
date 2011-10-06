@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   Angels, by [R.C. Sproul](R.C._Sproul "R.C. Sproul")
     -   Part 1

@@ -57,7 +57,7 @@ in order to see the meaning for what it is.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Timothy George on the Perspecuity of Scripture](http://thegospelcoalition.org/blogs/justintaylor/2010/09/30/timothy-george-on-the-perspecuity-of-scripture/)
     (video)

@@ -157,7 +157,7 @@ should be ordained neither as a pastor nor as an evangelist, while
 others believe that it is acceptable for women to be evangelists
 but not pastors.^[[13]](#note-9)^
 
-**Multimedia**
+## Multimedia
 
 -   Doctrine of Man – Manhood and Womanhood in Creation and
     Marriage

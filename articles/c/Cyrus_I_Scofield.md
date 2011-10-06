@@ -6,15 +6,6 @@ C. I. Scofield
 was an American theologian, minister and author of the Scofield
 Reference Bible.
 
-## Contents
-
--   [1 Biographical Sketch](#Biographical_Sketch)
--   [2 Biblical studies](#Biblical_studies)
-    -   [2.1 Quotation:](#Quotation:)
-
--   [3 Resources](#Resources)
--   [4 External links](#External_links)
-
 ## Biographical Sketch
 
 Scofield was born in Lenawee County, Michigan, on August 19, 1843.

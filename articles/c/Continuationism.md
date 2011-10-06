@@ -10,7 +10,7 @@ to continuationism are called continuationists or
 non-cessationists.
 
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+## Multimedia
 
 -   Doctrine of Miracles, by Wayne Grudem (MP3), Scottsdale Bible
     Church

@@ -6,7 +6,7 @@ not a Christian.
 
 "And in Antioch the disciples were first called Christians." (Acts
 11:26b)
-**Multimedia**
+## Multimedia
 
 -   [What is a Biblical Christian?](http://www.sermonaudio.com/sermoninfo.asp?sermonID=62602132823),
     by Pastor Albert N. Martin

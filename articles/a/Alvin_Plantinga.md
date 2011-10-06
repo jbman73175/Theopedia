@@ -15,7 +15,7 @@ orthodox Protestant philosopher of God."
 He is known for his free will defense, modal ontological argument,
 and evolutionary argument against naturalism.
 
-**Multimedia**
+## Multimedia
 
 -   [Evolutionary Arguments against Naturalism](http://hisdefense.org/LinkClick.aspx?link=Audio/Plantinga+-+Evolutionary+Arguments+against+Naturalism.ram&tabid=136&mid=939),
     (Real Media)

@@ -10,7 +10,7 @@ the "Prince of Preachers."
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Charles Spurgeon: Preaching Through Adversity](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/08_spurgeon.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional

@@ -17,7 +17,7 @@ bestowed by God. In this sense, it is distinguished from the
 Calvinistic understanding of "special" or "saving" grace, which
 extends only to those whom God has chosen to redeem.
 
-**Multimedia**
+## Multimedia
 
 -   [The Doctrine of Common Grace](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/043_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

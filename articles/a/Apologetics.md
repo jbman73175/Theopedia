@@ -23,7 +23,7 @@ to refute error or provide correctives.
 There are many different ways to approach apologetics, most of
 which are outlined below.
 
-**Multimedia**
+## Multimedia
 
 -   [What is Apologetics?](http://biblicaltraining.org/audio/TH601/apologetics_01_MSTR.mov)
     (QuickTime), by Ron Nash

@@ -22,7 +22,7 @@ of the Christian faith are expressed in the
 [Apostles' Creed](Apostles'_Creed "Apostles' Creed") and the
 [Nicene Creed](Nicene_Creed "Nicene Creed").
 
-**Multimedia**
+## Multimedia
 
 -   [God's Story From Creation to Eternity](http://video.google.com/videoplay?docid=-5907330498400109190&hl=en)
     (ChristianAnswers.net)

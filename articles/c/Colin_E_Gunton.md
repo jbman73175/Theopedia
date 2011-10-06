@@ -6,7 +6,7 @@ United Reformed systematic [theologian](Theologian "Theologian").
 He taught at King's College, London from 1969 until his death in
 the Spring of 2003.
 
-**Multimedia**
+## Multimedia
 
 -   [Trinity and Creation](http://www.regentaudio.com/trinity_and_creation?category_id=0&search_string=gunton&search_category_id=0),
     a class at Regent College, 1998 (available for purchase)

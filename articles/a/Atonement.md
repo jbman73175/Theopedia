@@ -15,7 +15,7 @@ mainly used to translate the [Hebrew](Hebrew "Hebrew") word
 modern translations render this word "reconciliation" in its other
 occurrences throughout the N.T.
 
-**Multimedia**
+## Multimedia
 
 -   The Work of Christ and Aspects of the Atonement -
     [Part 1](http://www.biblicaltraining.org/audio/TH504/theology_2_05_QT-high.mov),

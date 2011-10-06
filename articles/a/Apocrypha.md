@@ -39,7 +39,7 @@ of Religion says of them "the Church doth read for example of life
 and instruction of manners; but yet doth it not apply them to
 establish any [doctrine](Doctrine "Doctrine")".
 
-**Multimedia**
+## Multimedia
 
 -   [Reasons why the Apocrypha does not belong in the Bible](http://www.youtube.com/watch?v=zNbtyn0jxKo)
     (YouTube), by Ryan Turner

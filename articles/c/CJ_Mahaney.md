@@ -24,7 +24,7 @@ and
 *Sex, Romance, and the Glory of God: What Every Christian Husband Needs to Know*
 (Crossway).
 
-**Multimedia**
+## Multimedia
 
 -   C. J. Mahaney's Testimony
     ([YouTube](http://www.youtube.com/watch?v=jlTLE41OMFY) or

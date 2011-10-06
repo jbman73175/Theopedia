@@ -6,7 +6,7 @@ by the death and [resurrection](Resurrection "Resurrection") of
 [Jesus Christ](Jesus_Christ "Jesus Christ").
 
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+## Multimedia
 
 -   Christ Alone: Part 1
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051104.m3u),

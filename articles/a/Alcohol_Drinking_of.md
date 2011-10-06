@@ -3,7 +3,7 @@ is wine. Another term that is used is *strong drink*; however this
 is still to be understood as wine. The [NIV](NIV "NIV") uses the
 term "beer" (i.e. Proverbs 20:1), but this is a loose translation.
 
-**Multimedia**
+## Multimedia
 
 -   [Alcohol and Ministry: A Forum](http://www.sbts.edu/MP3/Mohler/Alcohol&Ministry.mp3)
     (MP3) - Forum at The Southern Baptist Theological Seminary

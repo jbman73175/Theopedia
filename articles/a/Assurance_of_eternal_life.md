@@ -42,7 +42,7 @@ fall away from the faith.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Can I Know that I Am Saved?, or the Doctrine of Assurance](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/051_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

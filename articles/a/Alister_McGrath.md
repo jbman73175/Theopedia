@@ -28,7 +28,7 @@ biology professor and one of the most outspoken
 of religion in several of his books, most notably in
 *Dawkins Delusion* published in 2007 by SPCK and IVP.
 
-**Multimedia**
+## Multimedia
 
 -   [Is God a Delusion? Atheism and the Meaning of Life](http://www.citychurchsf.org/openforum/Audio/OF_Alister_McGrath.mp3)
     (MP3)

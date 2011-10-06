@@ -11,7 +11,7 @@ medieval literature and for his Christian
 [apologetics](Apologetics "Apologetics") and fiction, especially
 *The Chronicles of Narnia*.
 
-**Multimedia**
+## Multimedia
 
 -   [C.S. Lewis Audio Lectures](http://www.veritas.org/media/topics/9)
     (The Veritas Forum)

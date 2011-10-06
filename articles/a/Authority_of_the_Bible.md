@@ -40,7 +40,7 @@ arbitrarily imposed an authority that evangelical piety has
 continued to uphold" (McDonald, p. 153-54).
 
 
-**Multimedia**
+## Multimedia
 
 -   The Authority of Scripture -
     [Part 1](http://tapecenter.scottsdalebible.com/sermons/091805SysTheo.MP3),

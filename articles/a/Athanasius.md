@@ -8,7 +8,7 @@ and the [Eastern Orthodox](Eastern_Orthodox "Eastern Orthodox")
 Church, and recognized as a great leader and doctor of the early
 church by [Protestants](Protestantism "Protestantism").
 
-**Multimedia**
+## Multimedia
 
 -   [Contending for Our All: The Life and Ministry of Athanasius](http://www.desiringgod.org/media/mp3/conferences/bcp2005/04_20050201_piper.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional

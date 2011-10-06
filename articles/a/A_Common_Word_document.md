@@ -11,7 +11,7 @@ their *Open Letter to the Pope* for the first time in recent
 history, Muslim scholars from every branch of Islam spoke with one
 voice about the true teachings of Islam." ^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [A Common Word Between Us?](http://www.desiringgod.org/Blog/1032_a_common_word_between_us/),
     by [John Piper](John_Piper "John Piper")

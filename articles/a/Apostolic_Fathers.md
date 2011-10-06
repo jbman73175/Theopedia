@@ -10,7 +10,7 @@ later generation of Christian
 [apologists](index.php?title=Apologists&action=edit&redlink=1 "Apologists (page does not exist)")
 and defenders of Christian [orthodoxy](Orthodoxy "Orthodoxy").
 
-**Multimedia**
+## Multimedia
 
 -   [Introducing... the Apostolic Fathers](http://theologynetwork.org/historical-theology/getting-stuck-in/introducing----the-apostolic-fathers.htm)
     (MP3), two lectures by Mike Reeves

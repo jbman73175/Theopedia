@@ -2,7 +2,7 @@
 reasoning with the hope that an individual will come to the
 conclusion that [God](God "God") exists.
 
-**Multimedia**
+## Multimedia
 
 -   [Does God Exist?](http://www.veritas.org/media/talks/147), by
     [William Lane Craig](William_Lane_Craig "William Lane Craig")

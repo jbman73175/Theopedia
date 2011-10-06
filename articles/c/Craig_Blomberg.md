@@ -5,7 +5,7 @@ Craig Blomberg
 Denver Seminary in Colorado. He joined the faculty of Denver
 Seminary in 1986.
 
-**Multimedia**
+## Multimedia
 
 **MP3s**
 

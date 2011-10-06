@@ -58,7 +58,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [The Book of Acts](http://www.gordonconwell.edu/audio/dimensions/htsb/htsb06.ram)
     (Real Audio), by Douglas Stuart

@@ -20,7 +20,7 @@ Spirit as our leader and pledge (or "down payment") of our
 inheritance in Christ.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Soteriology, Part 7: Adoption](http://www.solidfoodmedia.com/messages/download.php?id=66884575c09d231651b935806a6f915358bd5cff)
     (MP3), by R.W. Glenn
