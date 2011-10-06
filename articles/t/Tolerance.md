@@ -2,7 +2,7 @@
 between those who hold different worldviews. Today it has come to
 be defined as uncritically accepting all worldviews.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Pluralism](Pluralism "Pluralism")

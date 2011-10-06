@@ -23,7 +23,7 @@ serving since 1992. [[2]](http://www.talbot.edu/about/history.cfm)
 -   [Michael J. Wilkins](Michael_J._Wilkins "Michael J. Wilkins")
 -   [Clint Arnold](index.php?title=Clint_Arnold&action=edit&redlink=1 "Clint Arnold (page does not exist)")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Biola University](Biola_University "Biola University")

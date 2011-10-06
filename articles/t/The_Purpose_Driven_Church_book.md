@@ -1,5 +1,5 @@
 [![Purposedrivenchurch.jpg](images/6/61/Purposedrivenchurch.jpg)](http://www.theopedia.com/File:Purposedrivenchurch.jpg)
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Quotes](#Quotes)

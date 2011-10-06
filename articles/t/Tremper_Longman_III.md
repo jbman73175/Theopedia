@@ -18,7 +18,7 @@ read" books on Genesis, Exodus, Psalms, and Proverbs. He also wrote
 bibliography of OT commentaries which is reworked and republished
 every couple of years.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Longman's faculty page](http://www.westmont.edu/_academics/pages/departments/religious_studies/pages/longman.html)

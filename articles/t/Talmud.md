@@ -10,7 +10,7 @@ transmitted orally until the Middle Ages when
 were being persecuted and killed in significant numbers. Fearing
 that it would be lost, rabbis committed the Talmud to print.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Form
 
 The form of modern editions of the text follows a fairly regular

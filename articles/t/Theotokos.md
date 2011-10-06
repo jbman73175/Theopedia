@@ -16,7 +16,7 @@ asserted that Mary was truly the mother of God. The
 [hypostatic union](Hypostatic_union "Hypostatic union") (of
 Christ’s human and divine natures).^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0) Theotokos, in *Encyclopædia Britannica*. Retrieved

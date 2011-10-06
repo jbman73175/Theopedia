@@ -10,7 +10,7 @@ tradition.
     (1566),
 -   [Canons of Dort](Canons_of_Dort "Canons of Dort") (1619).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Reformed churches](Reformed_churches "Reformed churches")

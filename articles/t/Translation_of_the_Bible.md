@@ -60,7 +60,7 @@ reading. (Nehemiah 8:7-8)
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Timeline of Bible Translation History
 
 The following timeline presents some of the key events in

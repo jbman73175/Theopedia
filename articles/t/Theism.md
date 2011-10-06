@@ -24,7 +24,7 @@ belief in only one God, it is usually associated with
 [Monotheism](Monotheism "Monotheism") rather than
 [Polytheism](Polytheism "Polytheism").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Atheism](Atheism "Atheism")

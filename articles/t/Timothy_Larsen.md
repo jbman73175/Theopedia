@@ -10,7 +10,7 @@ Stirling, Scotland (1997). He is a Fellow of the Royal Historical
 Society and has been elected a Visiting Fellow, Trinity College,
 Cambridge.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   Ed. with [Daniel Treier](Daniel_Treier "Daniel Treier"),

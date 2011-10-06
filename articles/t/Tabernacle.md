@@ -8,6 +8,6 @@ It is also used as the name for a meeting place by some
 the reserved [sacrament](Sacrament "Sacrament") or consecreted
 bread may be kept.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

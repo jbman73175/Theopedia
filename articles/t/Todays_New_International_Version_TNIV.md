@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [TNIV Bible Translation](http://www.pbs.org/wnet/religionandethics/week825/feature.html)

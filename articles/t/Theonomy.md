@@ -5,7 +5,7 @@ the [Old Testament](Old_Testament "Old Testament") are applicable
 to modern society, including the Standing Laws of the Old
 Testament, as well as its general ethical principles.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 See also](#See_also)

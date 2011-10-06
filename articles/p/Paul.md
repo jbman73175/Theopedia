@@ -76,7 +76,7 @@ situations (Philippians 4:11-13).
 
 ## Apostle to the Gentiles
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 Acts 22:21 "And he said to me, 'Go, for I will send you far away to
 the Gentiles.'"
 
@@ -122,7 +122,7 @@ The following is taken from
 -   **64** - Great fire of Rome
 -   **?65** - Death of Paul
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   Michael F. Bird,

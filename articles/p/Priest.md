@@ -15,11 +15,11 @@
 
 ## Priesthood of Jesus
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Priesthood of all believers
 
 *See main page: [Priesthood of all believers](Priesthood_of_all_believers "Priesthood of all believers")*
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Temple Institute](index.php?title=Temple_Institute&action=edit&redlink=1 "Temple Institute (page does not exist)")

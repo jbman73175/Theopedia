@@ -5,7 +5,7 @@ embrace the influence of theology (corporate and personal; past and
 present) upon the interpreter's enquiry, context, and method."
 ^[[1]](#note-0)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

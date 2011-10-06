@@ -5,7 +5,7 @@ The **Trilemma argument** states that if the Biblical statements
 about [Jesus](Jesus "Jesus") are taken seriously, then Jesus can
 only be thought of as Lord, Liar, or Lunatic.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Evangelistic use
 
 Despite its limitations of directly proving that Jesus Christ is

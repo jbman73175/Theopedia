@@ -3,7 +3,7 @@
 as well as an associate professor of religion and Greek at Grove
 City College (Grove City, Pennsylvania).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Further reading
 
 -   *Why Johnny Can't Preach*. P&R Pub, 2009.

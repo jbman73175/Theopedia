@@ -53,7 +53,7 @@ distinctive properties to cause them to act as they do"
 ([Wayne Grudem](Wayne_Grudem "Wayne Grudem")'s Systematic
 Theology).
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Notes
 
 1.  [↑](#ref-0)

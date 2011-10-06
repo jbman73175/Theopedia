@@ -7,7 +7,7 @@ rooted in harvest festivals and feasts celebrated by early settlers
 and explorers and particularly in the well-documented Thanksgiving
 held by the colonists at Plymouth in 1621.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Christmas](Christmas "Christmas")

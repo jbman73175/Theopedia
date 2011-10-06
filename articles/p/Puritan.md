@@ -53,7 +53,7 @@ nebulous term "Puritan."
 
 ## History
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Beliefs
 
 The central tenet of Puritanism was God's supreme authority over

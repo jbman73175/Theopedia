@@ -12,7 +12,7 @@ To affirm God's transcendence and deny his immanence is to arrive
 at [deism](Deism "Deism"). To deny his transcendence and affirm his
 immanence is to arrive at [pantheism](Pantheism "Pantheism").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Resources
 
 -   William Placher,

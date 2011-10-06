@@ -84,7 +84,7 @@ clear the reality of our guilt and the required penalty."
 
 See main article on [Propitiation](Propitiation "Propitiation").
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Relation to other doctrines
 
 The principle of penal substitution is held, by many of its

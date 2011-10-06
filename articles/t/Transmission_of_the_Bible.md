@@ -17,7 +17,7 @@ Part of the series on the
 -   [Biblical criticism](Biblical_criticism "Biblical criticism")
 -   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")

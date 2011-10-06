@@ -17,7 +17,7 @@ Elijah at Horeb (1 Kgs 19:8). However, this time it is *Jesus'*
 glory that is present and, by calling Jesus "my Son", the text
 reveals that he supersedes both Moses and Elijah.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Glory of Jesus](Glory_of_Jesus "Glory of Jesus")

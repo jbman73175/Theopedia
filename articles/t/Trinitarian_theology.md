@@ -7,7 +7,7 @@ stated, "it is difficult to point to any one area of theological
 reflection that is not potentially affected by being viewed from a
 trinitarian perspective." [^1]
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

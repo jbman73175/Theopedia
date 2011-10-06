@@ -51,13 +51,13 @@ commonality."^[[1]](#note-0)^
     from the classic criticisms of [modernism](Modernism "Modernism").
 -   A reaction against [modernism](Modernism "Modernism").
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ### Postmodern*ity*
 
 Although there is a technical difference between *Postmodernity*
 and Postmodernism, they are often used interchangeably.
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Reactions to the Postmodern Era
 
 ### Evangelical reactions
@@ -92,7 +92,7 @@ return to particular *ism*, but to return to a Biblical
 
 ### Other reactions
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Criticisms
 
 "Faced with such opposition and the pressure it brings,

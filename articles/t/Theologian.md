@@ -9,7 +9,7 @@ See the
 for a list of professional theologians that have articles at
 Theopedia.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Pastors](http://www.theopedia.com/Category:Pastors "Category:Pastors")

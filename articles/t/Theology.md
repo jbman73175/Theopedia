@@ -10,7 +10,7 @@ the [Bible](Bible "Bible").
 A person who pursues the study of theology is called a
 [theologian](http://www.theopedia.com/Category:Theologians "Category:Theologians").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Biblical justification](#Biblical_justification)

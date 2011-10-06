@@ -17,7 +17,7 @@ and other priests should offer His Body and Blood."
 This doctrine should not be confused with the Lutheran doctrine of
 [Consubstantiation](Consubstantiation "Consubstantiation").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [James White on Transubstantiation](http://www.youtube.com/watch?v=q6SUtFCZQpA)

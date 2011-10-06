@@ -22,7 +22,7 @@ Ejection he suffered along with other
 [Puritans](Puritan "Puritan"). He died October 18th, 1677 and his
 body was interred in the church at Stoke Newington.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Complete Writings of Thomas Manton](http://www.newblehome.co.uk/manton/writings.html)

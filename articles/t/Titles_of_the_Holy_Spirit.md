@@ -36,7 +36,7 @@ Part of the series on the
 -   John 16:7
 -   1 John 2:1
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Paraclete](http://www.newadvent.org/cathen/11469a.htm)

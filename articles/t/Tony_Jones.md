@@ -18,7 +18,7 @@ theology.
 -   [Smack-down Plato vs. Aristotle](http://media.libsyn.com/media/emergent/ep-2007-03-31-Jones-Smackdown.mp3)
     (MP3)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Emerging Church](Emerging_Church "Emerging Church")

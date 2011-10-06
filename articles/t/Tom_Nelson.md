@@ -11,7 +11,7 @@ Biblical Studies from
 -   [All multimedia from Tommy Nelson at DTS](http://www.dts.edu/media/people/?namekey=Tommy_Nelson)
     (Flash)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Publications
 
 -   *The Book of Romance: What Solomon Says About Love, Sex, and Intimacy*.

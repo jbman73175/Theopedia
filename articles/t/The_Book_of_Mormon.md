@@ -79,7 +79,7 @@ Lamanites as, "the principal ancestors of the American Indians."
     and Director of the New World Archeological Foundation, BYU)
     [[5]](http://www.tungate.com/clark.htm)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [History of the Mormon church](History_of_the_Mormon_church "History of the Mormon church")

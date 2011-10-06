@@ -19,7 +19,7 @@ distinct persons of the Godhead. To pray to creatures is
 [idolatry](Idolatry "Idolatry"),"
 (*Essentials of the Christian Faith*, p. 192).
 
-*This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ## Relationship with God's sovereignty
 
 "The Scripture teaches both the sovereign foreordination of God and
