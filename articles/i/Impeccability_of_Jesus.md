@@ -6,8 +6,7 @@ as to whether or not He could have sinned.
 ##Multimedia
 
 -   Was it possible for Jesus to sin?
-    ([MP3](http://www.desiringgod.org/download.php?file=http://media.desiringgod.org/audio/q_and_a/4246_was_it_possible_for_jesus_to_sin.mp3)
-    and
+    ([YouTube](http://www.youtube.com/watch?v=GVEicUXx7xc), [MP3](http://www.desiringgod.org/download.php?file=http://media.desiringgod.org/audio/q_and_a/4246_was_it_possible_for_jesus_to_sin.mp3),
     [MP4](http://www.desiringgod.org/download.php?file=http://media.desiringgod.org/video/q_and_a/4246_was_it_possible_for_jesus_to_sin.m4v)),
     by John Piper
 
