@@ -14,7 +14,7 @@ Part of the series on the
 -   [The Holy Spirit's Work in Indwelling](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/075_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson
 
-## Contents
+## Contents 
 
 -   [1 In the Old Testament](#In_the_Old_Testament)
 -   [2 Relevant passages](#Relevant_passages)
