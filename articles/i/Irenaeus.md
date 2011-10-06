@@ -282,12 +282,8 @@ path of the true Gospel of Jesus Christ our Lord.
     -   [Book II, ch. 22](http://www.ccel.org/fathers2/ANF-01/anf01-59.htm#P7011_1802900),
         where Irenaeus argues his unconventional views about the age of
         Jesus and the length of his ministry.
-
 -   [Excerpts from Irenaeus](http://www.geocities.com/hashanayobel/christwrit/irenaeus.htm)
 -   [Irenaeus of Lyons](http://www.earlychurch.org.uk/irenaeus.php)
     Bio Sketch and extensive bibliography at Earlychurch.org.uk.
 -   [A Biographical Sketch](http://justus.anglican.org/resources/bio/194.html)
     by James Kiefer
-
-
-
