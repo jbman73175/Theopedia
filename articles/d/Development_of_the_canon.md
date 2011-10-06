@@ -12,19 +12,8 @@ Greek."
 
 -   [Illumination; Canonicity](http://biblicaltraining.org/audio/TH503/theology_1_10001.mp3),
     by [Bruce Ware](Bruce_Ware "Bruce Ware") (MP3)
--   Canonicity
-    ([Real](http://broadcast.ligonier.org/playlists/rym20060114.m3u),
-    [Win](http://broadcast.ligonier.org/playlists/rym20060114.asx)), by
-    [R.C. Sproul](R.C._Sproul "R.C. Sproul")
--   [the Canon Reliable?](http://www.youtube.com/watch?v=pVNNQ976dnYIs)
+-   [Is the Canon Reliable?](http://www.youtube.com/watch?v=pVNNQ976dnYIs)
     (YouTube video), by Greg Koukl
-
-## Contents
-
--   [1 Development of the OT canon](#Development_of_the_OT_canon)
--   [2 Development of the NT canon](#Development_of_the_NT_canon)
--   [3 Resources](#Resources)
--   [4 External links](#External_links)
 
 ## Development of the OT canon
 
@@ -45,6 +34,7 @@ the Jewish Scriptures, which we refer to today as the Old
 Testament.
 
 *See main page: [Development of the NT canon](Development_of_the_NT_canon "Development of the NT canon")*
+
 ## Resources
 
 -   [F. F. Bruce](F._F._Bruce "F. F. Bruce"),
@@ -56,6 +46,3 @@ Testament.
     (Baker Evangelical Dictionary of Biblical Theology)
 -   [The Bible: The Holy Canon of Scripture](http://www.bible.org/page.asp?page_id=697),
     by J. Hampton Keathley, III (bible.org)
-
-
-
