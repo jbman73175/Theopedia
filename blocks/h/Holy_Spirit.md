@@ -1,4 +1,4 @@
-* Holy Spirit
+* [Holy Spirit](Holy Spirit)
 	- [Personhood](Personhood_of_the_Holy_Spirit "Personhood of the Holy Spirit")
 	- [Deity](Deity_of_the_Holy_Spirit "Deity of the Holy Spirit")
 	- [Titles](Titles_of_the_Holy_Spirit "Titles of the Holy Spirit")
