@@ -1,19 +1,8 @@
-[![image](images/thumb/1/16/Mcdowell.jpg/180px-Mcdowell.jpg)](http://www.theopedia.com/File:Mcdowell.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Mcdowell.jpg "Enlarge")
-Josh McDowell
 **Josh McDowell**, born 1939 in Union City (Battle Creek),
 Michigan, is a Christian [apologist](Apologetics "Apologetics"),
 evangelist, and author. Of his numerous books, his best known
 titles are *More Than A Carpenter*,
 *Evidence That Demands A Verdict*, and *Right from Wrong*.
-
-## Contents
-
--   [1 Biographical sketch](#Biographical_sketch)
--   [2 Works](#Works)
-    -   [2.1 Biography](#Biography)
-
--   [3 External links](#External_links)
 
 ## Biographical sketch
 

@@ -1,6 +1,3 @@
-[![image](images/thumb/7/7a/Joycemeyer.jpg/160px-Joycemeyer.jpg)](http://www.theopedia.com/File:Joycemeyer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Joycemeyer.jpg "Enlarge")
-Joyce Meyer
 **Joyce Meyer**, born in 1943, is a popular
 [Pentecostal](Pentecostal "Pentecostal") preacher living outside of
 St. Louis, MO, who has been in fulltime ministry since 1980. She is

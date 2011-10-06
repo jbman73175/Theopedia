@@ -1,6 +1,3 @@
-[![image](images/8/82/Jonathan_edwards.jpg)](http://www.theopedia.com/File:Jonathan_edwards.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Jonathan_edwards.jpg "Enlarge")
-Jonathan Edwards
 **Jonathan Edwards** (1703–1758) was a [Puritan](Puritan "Puritan")
 [theologian](Theologian "Theologian"), pastor, and devout
 [Calvinist](Calvinist "Calvinist") and was the most significant

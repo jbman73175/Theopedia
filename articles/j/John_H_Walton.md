@@ -1,6 +1,3 @@
-[![image](images/f/f3/Walton.jpg)](http://www.theopedia.com/File:Walton.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Walton.jpg "Enlarge")
-John H. Walton
 **John H. Walton** is a Professor of Old Testament at
 [Wheaton College](Wheaton_College "Wheaton College") and former
 professor of Old Testament at

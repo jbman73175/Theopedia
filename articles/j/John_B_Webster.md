@@ -1,6 +1,3 @@
-[![image](images/d/d8/Webster.jpeg.pagespeed.ce.5EdN5p_lUj.jpg)](http://www.theopedia.com/File:Webster.jpeg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Webster.jpeg "Enlarge")
-John Webster
 **John Bainbridge Webster** (b. 1955) is a British
 [Anglican](Anglican "Anglican")
 [systematic theologian](Systematic_theology "Systematic theology")

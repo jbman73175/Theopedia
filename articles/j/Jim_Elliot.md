@@ -1,6 +1,3 @@
-[![image](images/thumb/3/3e/Elliot.jpg/200px-Elliot.jpg)](http://www.theopedia.com/File:Elliot.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Elliot.jpg "Enlarge")
-Jim Elliot
 **Philip James Elliot** (October 8, 1927 – January 8, 1956) was a
 Christian missionary to Ecuador, where he was killed by Huaorani
 Indians.

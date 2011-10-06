@@ -1,6 +1,3 @@
-[![image](images/thumb/5/5c/JohnMacArthur.jpg/150px-JohnMacArthur.jpg)](http://www.theopedia.com/File:JohnMacArthur.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JohnMacArthur.jpg "Enlarge")
-John MacArthur
 **John MacArthur** (June 14 1939 - ) is the pastor-teacher of
 [Grace Community Church](http://www.gracechurch.org) in Sun Valley,
 California, as well as an author, conference speaker, president of

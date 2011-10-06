@@ -1,6 +1,3 @@
-[![image](images/thumb/8/83/Josephus.jpg/180px-Josephus.jpg)](http://www.theopedia.com/File:Josephus.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Josephus.jpg "Enlarge")
-Josephus
 **Josephus** (c. 37 – c. 100 A.D.), also known as Flavius Josephus,
 was a 1st century Jewish historian and apologist of priestly and
 royal ancestry who survived and recorded the Destruction of

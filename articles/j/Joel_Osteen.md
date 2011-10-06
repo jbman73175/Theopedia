@@ -1,6 +1,3 @@
-[![image](images/8/86/Joelosteen.jpg)](http://www.theopedia.com/File:Joelosteen.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Joelosteen.jpg "Enlarge")
-Joel Osteen
 **Joel Scott Osteen** (b. 1963) is the senior pastor of Lakewood
 Church in Houston, Texas, and author of the New York Times
 bestselling book *Your Best Life Now*. He is a proponent of the

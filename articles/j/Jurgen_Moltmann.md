@@ -1,6 +1,3 @@
-[![image](images/thumb/c/c7/Moltmann.jpeg/180px-Moltmann.jpeg)](http://www.theopedia.com/File:Moltmann.jpeg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Moltmann.jpeg "Enlarge")
-Jürgen Moltmann
 **Jürgen Moltmann** (April 8, 1926 -) is a German
 [theologian](Theologian "Theologian") and Professor Emeritus of
 [Systematic Theology](Systematic_Theology "Systematic Theology") at

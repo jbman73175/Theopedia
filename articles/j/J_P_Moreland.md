@@ -1,6 +1,3 @@
-[![image](images/b/be/Moreland.jpg.pagespeed.ce.qdCAn11RjP.jpg)](http://www.theopedia.com/File:Moreland.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Moreland.jpg "Enlarge")
-J. P. Moreland
 **James Porter Moreland** is a Christian apologist, theologian, and
 philosopher of religion. Moreland is currently distinguished
 professor of philosophy at

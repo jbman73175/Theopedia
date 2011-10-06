@@ -1,6 +1,3 @@
-[![image](images/thumb/8/86/Gerstner.jpg/150px-Gerstner.jpg.pagespeed.ce.VcUBqqS24h.jpg)](http://www.theopedia.com/File:Gerstner.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Gerstner.jpg "Enlarge")
-John Gerstner
 **John H. Gerstner** (1914-1996) was Professor of Church History at
 Pittsburgh Theological Seminary and an authority on the life and
 theology of

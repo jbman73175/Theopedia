@@ -1,6 +1,3 @@
-[![image](images/6/66/JWFletcher.jpg)](http://www.theopedia.com/File:JWFletcher.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JWFletcher.jpg "Enlarge")
-John Fletcher
 **John William Fletcher** (1729-1785) was a contemporary of
 [John Wesley](John_Wesley "John Wesley"), a key interpreter of
 Wesleyan (or Arminian) theology in the 18th century, and one of

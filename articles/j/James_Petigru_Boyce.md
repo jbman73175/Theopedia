@@ -1,6 +1,3 @@
-[![image](images/thumb/0/0d/Boyce.jpg/180px-Boyce.jpg)](http://www.theopedia.com/File:Boyce.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Boyce.jpg "Enlarge")
-James P. Boyce
 **James Petigru Boyce** (1827–1888) was a
 [Baptist](Baptist "Baptist") theologian,
 [Calvinist](Calvinist "Calvinist"), and seminary professor. Boyce

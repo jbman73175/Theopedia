@@ -1,6 +1,3 @@
-[![image](images/a/af/Arminius.jpg)](http://www.theopedia.com/File:Arminius.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Arminius.jpg "Enlarge")
-Jacobus Arminius
 **Jacobus Arminius**^[[1]](#note-0)^ (1560-1609), was a Dutch
 [Reformed](Reformed_churches "Reformed churches") theologian and
 professor of theology at the University of Leiden. He is most noted

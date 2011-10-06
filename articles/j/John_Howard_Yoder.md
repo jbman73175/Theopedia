@@ -1,6 +1,3 @@
-[![image](images/0/00/Yoder.gif)](http://www.theopedia.com/File:Yoder.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Yoder.gif "Enlarge")
-John H. Yoder
 **John Howard Yoder** (1927 - 1997) was a Christian theologian,
 ethicist, and Biblical scholar best known for his radical Christian
 pacifism, his mentoring of future theological giants such as

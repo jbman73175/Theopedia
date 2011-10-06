@@ -1,6 +1,3 @@
-[![image](images/thumb/0/08/Dunn.jpg/175px-Dunn.jpg)](http://www.theopedia.com/File:Dunn.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Dunn.jpg "Enlarge")
-James Dunn
 **James D. G. Dunn** (born 1939) is a British New Testament scholar
 in the [Anglican](Anglican "Anglican") tradition. He is also
 Emeritus Lightfoot Professor of Divinity at the

@@ -1,6 +1,3 @@
-[![image](images/thumb/7/7a/Buswell.jpg/180px-Buswell.jpg)](http://www.theopedia.com/File:Buswell.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Buswell.jpg "Enlarge")
-J. Oliver Buswell, Jr.
 **J. Oliver Buswell, Jr.** (1895-1977) a Presbyterian theologian
 and educator was President of
 [Wheaton College](Wheaton_College "Wheaton College") from 1926 to

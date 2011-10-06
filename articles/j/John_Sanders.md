@@ -1,6 +1,3 @@
-[![image](images/c/cb/JohnESanders.jpg)](http://www.theopedia.com/File:JohnESanders.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JohnESanders.jpg "Enlarge")
-John Sanders
 **John Sanders** is Professor of Philosophy and Religion at
 Huntington College, Indiana. He earned his Th.D in systematic and
 philosophical theology from the University of South Africa. Sanders

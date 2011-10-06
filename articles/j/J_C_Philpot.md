@@ -1,6 +1,3 @@
-[![image](images/0/01/Philpot.gif)](http://www.theopedia.com/File:Philpot.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Philpot.gif "Enlarge")
-J. C. Philpot
 **Joseph Charles Philpot** (1802 – 1869) was known as “The
 Seceder”. He resigned from the
 [Church of England](Church_of_England "Church of England") in 1835

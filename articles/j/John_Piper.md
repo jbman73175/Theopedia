@@ -1,6 +1,3 @@
-[![image](images/thumb/a/ad/Johnpiper.jpg/180px-Johnpiper.jpg)](http://www.theopedia.com/File:Johnpiper.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Johnpiper.jpg "Enlarge")
-John Piper
 **John Stephen Piper** (born January 11, 1946, Chattanooga,
 Tennessee) is a [theologian](Theologian "Theologian"),
 [pastor](Pastor "Pastor"), and author. He is currently the senior

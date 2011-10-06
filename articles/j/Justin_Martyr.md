@@ -1,6 +1,3 @@
-[![image](images/thumb/e/e9/Justin-martyr.jpg/180px-Justin-martyr.jpg)](http://www.theopedia.com/File:Justin-martyr.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Justin-martyr.jpg "Enlarge")
-Justin Martyr
 **Justin Martyr** (c. 100 - c. 165), born in modern day Palestine,
 was an early [Christian](Christianity "Christianity")
 [apologist](Apologetics "Apologetics") and

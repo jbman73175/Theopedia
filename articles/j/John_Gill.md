@@ -1,5 +1,3 @@
-[![image](images/c/ce/John_Gill.jpg)](http://www.theopedia.com/File:John_Gill.jpg)
-John Gill
 **John Gill** (1697-1771) born at Kettering, Northamptonshire, was
 an English [Baptist](Baptist "Baptist"), a [Bible](Bible "Bible")
 scholar, and a staunch [Calvinist](Calvinism "Calvinism"). Gill

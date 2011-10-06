@@ -1,6 +1,3 @@
-[![image](images/thumb/2/2d/Johneldredge.jpg/110px-Johneldredge.jpg)](http://www.theopedia.com/File:Johneldredge.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Johneldredge.jpg "Enlarge")
-John Eldredge
 **John Eldredge** is an author, lecturer, and frequent speaker at
 conferences nationwide. He is founder and director of Ransomed
 Heart Ministries in Colorado Springs.

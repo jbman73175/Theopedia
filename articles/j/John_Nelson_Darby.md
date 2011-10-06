@@ -1,6 +1,3 @@
-[![image](images/thumb/1/1a/Darby.jpg/180px-Darby.jpg)](http://www.theopedia.com/File:Darby.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Darby.jpg "Enlarge")
-John Nelson Darby
 **John Nelson Darby**,
 ([Date of birth::1800](http://www.theopedia.com/index.php?title=Date_of_birth::1800&action=edit&redlink=1 "Date of birth::1800 (page does not exist)")
 -

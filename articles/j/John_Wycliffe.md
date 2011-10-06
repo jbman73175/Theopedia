@@ -1,6 +1,3 @@
-[![image](images/c/c7/JohnWycliffe.jpg)](http://www.theopedia.com/File:JohnWycliffe.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JohnWycliffe.jpg "Enlarge")
-John Wycliffe
 **John Wycliffe** (1324-1384), also spelled **Wyclif**, lived
 almost 200 years before the
 [Reformation](Reformation "Reformation"), but his beliefs and

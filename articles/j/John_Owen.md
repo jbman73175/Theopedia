@@ -1,6 +1,3 @@
-[![image](images/thumb/2/2d/Owen.jpg/180px-Owen.jpg)](http://www.theopedia.com/File:Owen.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Owen.jpg "Enlarge")
-John Owen
 **John Owen** (1616 - 1683) was an English theologian and "was
 without doubt not only the greatest theologian of the English
 [Puritan](Puritan "Puritan") movement but also one of the greatest

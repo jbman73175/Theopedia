@@ -1,6 +1,3 @@
-[![image](images/thumb/0/01/Pelikan.jpg/180px-Pelikan.jpg)](http://www.theopedia.com/File:Pelikan.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Pelikan.jpg "Enlarge")
-Jaroslav Pelikan
 **Jaroslav Jan Pelikan** (1923 - 2006) was Sterling Professor of
 History Emeritus at Yale University and was one of the world's
 foremost scholars of the

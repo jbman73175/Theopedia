@@ -1,6 +1,3 @@
-[![image](images/1/10/Kennedy.jpg)](http://www.theopedia.com/File:Kennedy.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Kennedy.jpg "Enlarge")
-John Kennedy of Dingwall
 **John Kennedy** (1819-1884) of Dingwall, was a Scottish preacher
 and theologian. He was also a staunch defender of the Reformed
 Faith who was, as his friend

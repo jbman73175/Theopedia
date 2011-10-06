@@ -1,6 +1,3 @@
-[![image](images/thumb/9/90/Dagg.jpg/180px-Dagg.jpg)](http://www.theopedia.com/File:Dagg.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Dagg.jpg "Enlarge")
-John L. Dagg
 **John Leadley Dagg** (1794–1884) born in Loudoun County, Virginia,
 lived to be over 90 years old. He died in June of 1884, as one of
 the most respected men in American [Baptist](Baptist "Baptist")

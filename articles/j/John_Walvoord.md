@@ -1,6 +1,3 @@
-[![image](images/9/9c/Walvoord.png)](http://www.theopedia.com/File:Walvoord.png)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Walvoord.png "Enlarge")
-John F. Walvoord
 **John F. Walvoord** (1910-2002) was a theologian, pastor, and
 president of
 [Dallas Theological Seminary](Dallas_Theological_Seminary "Dallas Theological Seminary")

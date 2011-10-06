@@ -1,6 +1,3 @@
-[![image](images/d/d4/Stackhouse.jpg)](http://www.theopedia.com/File:Stackhouse.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Stackhouse.jpg "Enlarge")
-John G. Stackhouse, Jr.
 **John G. Stackhouse, Jr.** (b. 1960) is a Christian theologian
 and, since 1998, the Sangwoo Youtong Chee Professor of Theology and
 Culture at [Regent College](Regent_College "Regent College") in

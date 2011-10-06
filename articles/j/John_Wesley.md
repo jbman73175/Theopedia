@@ -1,6 +1,3 @@
-[![image](images/thumb/a/a8/JohnWesley.jpg/175px-JohnWesley.jpg)](http://www.theopedia.com/File:JohnWesley.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JohnWesley.jpg "Enlarge")
-John Wesley
 **John Wesley** (1703-1791) was an 18th-century
 [Anglican](Anglican "Anglican") clergyman and Christian
 [theologian](Theologian "Theologian") who was an early leader in

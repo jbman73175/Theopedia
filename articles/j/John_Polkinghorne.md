@@ -1,6 +1,3 @@
-[![image](images/thumb/6/6f/Polk.jpg/200px-Polk.jpg)](http://www.theopedia.com/File:Polk.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Polk.jpg "Enlarge")
-John Polkinghorne
 Rev Dr. **John Polkinghorne** is a distinguished physicist who has
 spent recent decades studying and writing about the relationship
 between science and faith. His physics career began at Cambridge

@@ -1,6 +1,3 @@
-[![image](images/thumb/0/0a/Jcryle.jpg/175px-Jcryle.jpg)](http://www.theopedia.com/File:Jcryle.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Jcryle.jpg "Enlarge")
-John Charles Ryle DD (from Vanity Fair, 1881)
 **John Charles Ryle** (May 10, 1816 - June 10, 1900) was an
 evangelical [Anglican](Anglican "Anglican") clergyman and first
 Bishop of Liverpool. He was renowned for his powerful preaching and
@@ -81,9 +78,6 @@ addressing issues of contemporary relevance for the Church from a
 Biblical standpoint. Of these, perhaps the most enduring are
 "Holiness" and "Practical Religion", both still in print.
 
-[![image](images/thumb/e/e0/Jcryle2.jpg/175px-Jcryle2.jpg)](http://www.theopedia.com/File:Jcryle2.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Jcryle2.jpg "Enlarge")
-Ryle in his study at the Bishop's Palace, Liverpool
 ### Episcopate
 
 Ryle's uncompromising evangelicalism in the face of increasing

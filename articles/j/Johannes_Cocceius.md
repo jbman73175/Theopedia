@@ -1,6 +1,3 @@
-[![image](images/thumb/0/01/Cocceius.jpg/175px-Cocceius.jpg)](http://www.theopedia.com/File:Cocceius.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Cocceius.jpg "Enlarge")
-Johannes Cocceius
 **Johannes Cocceius** (1603 - 1669), Dutch
 [theologian](Theologian "Theologian"), was born at Bremen in
 Germany.^[[1]](#note-0)^

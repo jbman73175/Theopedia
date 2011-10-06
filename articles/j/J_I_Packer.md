@@ -1,6 +1,3 @@
-[![image](images/6/6e/JIPacker.jpg)](http://www.theopedia.com/File:JIPacker.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:JIPacker.jpg "Enlarge")
-J. I. Packer
 **James Innell Packer** (b. July 22, 1926) is a conservative
 [evangelical](Evangelicalism "Evangelicalism")
 [Anglican](Anglican "Anglican"), author, and

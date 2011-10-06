@@ -1,6 +1,3 @@
-[![image](images/2/2d/Boice.jpg)](http://www.theopedia.com/File:Boice.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Boice.jpg "Enlarge")
-James Montgomery Boice
 **James Montgomery Boice** (July 7, 1938 - June 15, 2000) was a
 [Reformed](Calvinism "Calvinism") theologian and pastor of Tenth
 Presbyterian Church in Philadelphia from 1968 until his death. He
