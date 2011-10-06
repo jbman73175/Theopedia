@@ -74,9 +74,7 @@ important scripture verses.
     circumstances concerning the worship of God, and government of the
     Church, common to human actions and societies, which are to be
     ordered by the light of nature, and Christian prudence, according
-    to the general rules of the Word, which are always to be observed."
-    -
-    [Westminster Confession of Faith](Westminster_Confession_of_Faith "Westminster Confession of Faith")
+    to the general rules of the Word, which are always to be observed." [Westminster Confession of Faith](Westminster_Confession_of_Faith "Westminster Confession of Faith")
 
 ## Resources
 
