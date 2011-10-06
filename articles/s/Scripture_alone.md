@@ -9,15 +9,6 @@ believer. This view does not deny that the Church has the authority
 to teach God's Word. Furthermore, while tradition is valuable, it
 but must be tested by the higher authority of the Scriptures.
 
-## Multimedia
-
--   The Sufficiency of Scripture,
-    [part1](http://www.sbts.edu/MP3/Mohler/20060325mohler03.mp3),
-    [part 2](http://www.sbts.edu/MP3/Mohler/20060324mohler02.mp3) by
-    [Al Mohler](Al_Mohler "Al Mohler") (Higginbotham Lectures, 3/24 -
-    3/25/06)
-
-  
 Sola Scriptura "does not mean that the Reformers rejected
 everything that every Christian in earlier ages has said: indeed,
 they often cited the early Christians as supporters of their own
@@ -32,7 +23,6 @@ In all of this, the role of the
 [Holy Spirit](Holy_Spirit "Holy Spirit") is vital. The Word can
 only be received and obeyed by the Holy Spirit.
 
-  
 Catholic Position: The Catholic position on Sola Scriptura differs
 from Protestantism. Romans Catholics believe the Bible is inspired
 and the infallible original manuscripts. Catholics also do not
@@ -42,18 +32,13 @@ Catholic Church collected and organized the Holy Scriptures via
 Tradition, and has the Papal Office guiding and helping decipher
 important scripture verses.
 
-## Contents
+## Multimedia
 
--   [1 Quotes](#Quotes)
--   [2 Resources](#Resources)
-    -   [2.1 Favorable](#Favorable)
-    -   [2.2 Critical](#Critical)
-
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Favorable](#Favorable_2)
-    -   [4.2 Critical](#Critical_2)
-
+-   The Sufficiency of Scripture,
+    [part1](http://www.sbts.edu/MP3/Mohler/20060325mohler03.mp3),
+    [part 2](http://www.sbts.edu/MP3/Mohler/20060324mohler02.mp3) by
+    [Al Mohler](Al_Mohler "Al Mohler") (Higginbotham Lectures, 3/24 -
+    3/25/06)
 
 ## Quotes
 
@@ -172,6 +157,3 @@ important scripture verses.
 -   [An Eastern Orthodox rebuttal to *Sola Scriptura*](http://www.fatheralexander.org/booklets/english/sola_scriptura_john_whiteford.htm)
 -   [Bible-only Christians](http://www.drbo.org/biblechristians.htm)
     DRBO.org
-
-
-
