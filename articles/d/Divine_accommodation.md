@@ -11,7 +11,7 @@ our earthly father is." ^[[1]](#note-0)^ The idea of divine
 accommodation is usually associated with the theology of the
 Protestant Reformer [John Calvin](John_Calvin "John Calvin").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Notes
 
 -   1.  [↑](#ref-0)

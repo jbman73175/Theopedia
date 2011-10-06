@@ -7,7 +7,7 @@ Seminary. McKim studied at Westminster College (PA) and Pittsburgh
 Theological Seminary, and received his PhD from the University of
 Pittsburgh.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Selected publications
 
 -   *Introducing the Reformed Faith: Biblical Revelation, Christian Tradition, Contemporary Significance*.

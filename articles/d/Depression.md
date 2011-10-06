@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [A Christian Looks at Depression](http://www.dts.edu/media/play/?MediaItemID=6db48678-0bfc-4b68-bb02-578cb5f41c70),

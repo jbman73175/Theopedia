@@ -31,7 +31,7 @@ Testament record of the life, death, and resurrection of
 pray by God's command, and this very living God who will act to
 heal, convert, and empower human lives.^[[2]](#note-1)^
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

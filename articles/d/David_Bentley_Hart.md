@@ -15,7 +15,7 @@ University of Cambridge and the University of Virginia.
     [Lecture](http://maclaurin.org/mp3s/david_bentley_hart_lecture.mp3);
     [Q&A](http://maclaurin.org/mp3s/david_bentley_hart_qa.mp3) (MP3s)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Selected works](#Selected_works)

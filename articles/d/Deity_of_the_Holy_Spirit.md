@@ -68,7 +68,7 @@ Psalms 139:7-10 that no matter where he fled, he could not flee
 from God's Spirit and presence; and the Gen. 1:2 verse affirms the
 omnipotent nature of the Holy Spirit.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Relevant passages](#Relevant_passages)

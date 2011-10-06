@@ -11,7 +11,7 @@ including [John Walvoord](John_Walvoord "John Walvoord") and
 it has been known for many years as the academic center of
 [dispensationalism](Dispensationalism "Dispensationalism").
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Alumni
 
 -   [David Jeremiah](index.php?title=David_Jeremiah&action=edit&redlink=1 "David Jeremiah (page does not exist)")

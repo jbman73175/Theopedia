@@ -37,7 +37,7 @@ groups which practically all others would view as
 [apostate](Apostate "Apostate") or [heretical](Heresy "Heresy") --
 that is, not legitimate versions of Christianity.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Church history](Church_history "Church history")

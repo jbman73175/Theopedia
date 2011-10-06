@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 Part of the series on  
 **[Humanity](Humanity "Humanity")**
 -   [Image of God](Image_of_God "Image of God")

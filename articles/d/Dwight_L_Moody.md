@@ -6,7 +6,7 @@ D. L. Moody
 Northfield Schools in Massachusetts, Moody Church and Moody Bible
 Institute in Chicago, and the Colportage Association.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## External links
 
 -   [Dwight L. Moody](http://www.wholesomewords.org/biography/biorpmoody.html)

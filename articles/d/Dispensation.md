@@ -14,7 +14,7 @@ In [dispensationalism](Dispensationalism "Dispensationalism"), a
 dispensation refers to a way in which God deals with mankind over a
 period of time. There are generally said to be 7 dispensations.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Dispensationalism](Dispensationalism "Dispensationalism")

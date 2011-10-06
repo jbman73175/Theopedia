@@ -209,7 +209,7 @@ Slavonic and Russian Orthodox churches have adopted it as
 authoritative. As of the present, the Orthodox tradition has never
 truly defined its standards universally.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Tanakh
 
 **The Torah**

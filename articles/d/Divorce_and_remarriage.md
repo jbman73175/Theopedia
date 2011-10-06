@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   Does the Bible allow for divorce in the case of adultery? -

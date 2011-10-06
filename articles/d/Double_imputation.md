@@ -10,7 +10,7 @@ Justification, in this view, is based on Christ's
 his personal righteousness imputed to believers, not any
 righteousness inherent or infused in man.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Justification and Imputed Righteousness](http://www.youtube.com/watch?v=IapqqQ45Q4w)

@@ -20,6 +20,6 @@ a successful and respected lecturer in New Testament studies during
 his long career at Tabor and
 MBBS."[[1]](http://www.oac.cdlib.org/findaid/ark:/13030/tf8m3nb2q1)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

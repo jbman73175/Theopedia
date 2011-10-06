@@ -21,7 +21,7 @@ context as they contain biblical documents dating from before AD
 -   [1 Date and contents](#Date_and_contents)
 -   [2 External links](#External_links)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Date and contents
 
 According to carbon dating and textual analysis, the documents were

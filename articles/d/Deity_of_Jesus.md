@@ -45,7 +45,7 @@ deity dwells bodily" (Col. 2:9; ESV).
 > 301|*The Lord of Glory: A Classic Defense of the Deity of Jesus Christ, p. 301*}}
 > }}
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 **Multimedia**
 
 -   [Where Did the NT Writers Get the Idea of Jesus as Co-Creator?](http://vimeo.com/8101130)

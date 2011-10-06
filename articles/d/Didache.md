@@ -34,7 +34,7 @@ published the full text of the *Epistles of Clement* in 1875.
 
 
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

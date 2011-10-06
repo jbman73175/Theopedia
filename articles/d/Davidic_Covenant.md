@@ -1,4 +1,4 @@
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 The **Davidic Covenant**, found in
 [2 Samuel](Books_of_Samuel "Books of Samuel") 7, establishing
 [David](David "David") and his lineage as the rightful kings of

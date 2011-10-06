@@ -7,6 +7,6 @@ Subsequently, it may refer to Jews dispersed following the
 destruction of Jerusalem at the hands of the Roman Empire in 70
 A.D.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

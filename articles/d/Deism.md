@@ -11,7 +11,7 @@ Deism became prominent in the 17th and 18th centuries during the
 especially in the United Kingdom. Deism spread to France, notably
 via the work of Voltaire, to Germany, and to America.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Deism versus Theism](#Deism_versus_Theism)

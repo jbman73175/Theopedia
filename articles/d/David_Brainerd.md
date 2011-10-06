@@ -9,7 +9,7 @@
 -   [1 See also](#See_also)
 -   [2 External links](#External_links)
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Jonathan Edwards](Jonathan_Edwards "Jonathan Edwards")

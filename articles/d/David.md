@@ -59,6 +59,6 @@ order to cover up the affair, David sent Bathsheba's husband
 [Uriah](index.php?title=Uriah&action=edit&redlink=1 "Uriah (page does not exist)")
 to the front lines where he was killed.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 
 

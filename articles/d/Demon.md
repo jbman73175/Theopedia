@@ -3,7 +3,7 @@ follows (or obeys) [Satan](Satan "Satan") and not [God](God "God").
 ^[[1]](#note-0)^ They are also called 'evil' spirits (Acts
 19:12-16).
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## Contents
 
 -   [1 Notes](#Notes)

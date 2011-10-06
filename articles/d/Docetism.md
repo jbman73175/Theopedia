@@ -22,7 +22,7 @@ importance of the belief in resurrection of the dead and the
 goodness of created matter, and is in opposition to the orthodox
 view.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
+
 ## See also
 
 -   [Christology](Christology "Christology")
