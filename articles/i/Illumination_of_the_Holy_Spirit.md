@@ -30,31 +30,20 @@ The necessity of the illumination of the Holy Spirit does not
 negate the doctrine of the
 [clarity of Scripture](Clarity_of_Scripture "Clarity of Scripture").
 
-## Contents
-
--   [1 Key passages](#Key_passages)
-    -   [1.1 1 Corinthians 2:12-14](#1_Corinthians_2:12-14)
-    -   [1.2 1 John 2:20, 27](#1_John_2:20.2C_27)
-    -   [1.3 Psalm 119:18](#Psalm_119:18)
-
--   [2 See also](#See_also)
--   [3 Notes](#Notes)
--   [4 External links](#External_links)
-    -   [4.1 Favorable](#Favorable)
-    -   [4.2 Critical](#Critical)
-
-
 ## Key passages
 
 ### 1 Corinthians 2:12-14
 
 *"Now we have received not the spirit of the world, but the Spirit who is from God, that we might understand the things freely given us by God. And we impart this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."*
+
 ### 1 John 2:20, 27
 
 *"But you have been anointed by the Holy One, and you all have knowledge... But the anointing that you received from him abides in you, and you have no need that anyone should teach you. But as his anointing teaches you about everything, and is true, and is no lie—just as it has taught you, abide in him."*
+
 ### Psalm 119:18
 
 *"Open my eyes, that I may behold Wonderful things from Your law."*
+
 ## See also
 
 -   [Revelation of God](Revelation_of_God "Revelation of God")
