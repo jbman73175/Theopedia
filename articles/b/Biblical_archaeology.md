@@ -15,6 +15,7 @@
 
 ## External Links
 
+-   [Associates for Biblical Research](http://www.biblearchaeology.org/)
 -   [Biblical Archaeology Society](http://www.bib-arch.org/)
 -   [Amazing Discoveries in Bible Archaeology](http://www.concentric.net/~extraord/archaeology.htm)
 -   [The Bible Archaeology, Search & Exploration (B.A.S.E.)](http://www.baseinstitute.org/)
