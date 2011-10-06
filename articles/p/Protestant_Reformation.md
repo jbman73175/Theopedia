@@ -212,7 +212,6 @@ Christianity.
     -   Winner of the 2004 Wolfson Prize for History, and the Winner of
         the 2004 British Academy Prize, as well as Winner of the National
         Book Critics Circle Award.
-
 -   David Bagchi & David C. Steinmetz (Editors),
     *The Cambridge Companion to Reformation Theology*. Cambridge
     University Press, 2004.
