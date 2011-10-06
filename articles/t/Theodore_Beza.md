@@ -1,6 +1,3 @@
-[![image](images/thumb/6/68/Beza.jpg/200px-Beza.jpg)](http://www.theopedia.com/File:Beza.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Beza.jpg "Enlarge")
-Theodore Beza
 *Never heard of Beza? Don't worry — neither have most 21st century evangelicals. But he is one of the most influential of the Reformers, and may be the clearest proponent of Calvin's teachings after John Calvin's death in 1564.*
 **Theodore Beza** (or Theodore de Beza) (1519–1605) was a French
 [Protestant](Protestantism "Protestantism") theologian and scholar

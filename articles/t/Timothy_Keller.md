@@ -1,6 +1,3 @@
-[![image](images/d/d9/Tim_keller.jpg)](http://www.theopedia.com/File:Tim_keller.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Tim_keller.jpg "Enlarge")
-Tim Keller
 **Timothy Keller** (b. 1950) is an author and senior pastor of
 [Redeemer Presbyterian Church](http://www.redeemer.com/) in New
 York City. Keller has an MDiv from Gordon-Conwell Theological

@@ -1,5 +1,3 @@
-[![DCode.jpg](images/thumb/2/29/DCode.jpg/180px-DCode.jpg)](http://www.theopedia.com/File:DCode.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:DCode.jpg "Enlarge")
 ***The Da Vinci Code*** is an adventure novel by Dan Brown
 (Doubleday, 2003) in which a man and a woman seek the Holy Grail by
 following a trail of clues composed by a secret society called "The

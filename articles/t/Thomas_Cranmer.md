@@ -1,6 +1,3 @@
-[![image](images/thumb/9/98/Cranmer.jpg/180px-Cranmer.jpg)](http://www.theopedia.com/File:Cranmer.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Cranmer.jpg "Enlarge")
-Thomas Cranmer
 **Thomas Cranmer** (July 2, 1489 - March 21, 1556) was the
 Archbishop of Canterbury during the reigns of the English kings
 Henry VIII and Edward VI.

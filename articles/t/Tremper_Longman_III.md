@@ -1,6 +1,3 @@
-[![image](images/thumb/c/c9/Longman.jpg/180px-Longman.jpg)](http://www.theopedia.com/File:Longman.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Longman.jpg "Enlarge")
-Tremper Longman
 **Tremper Longman III** is an
 [Old Testament](Old_Testament "Old Testament") scholar and Robert
 H. Gundry Professor of Biblical Studies at Westmont College in

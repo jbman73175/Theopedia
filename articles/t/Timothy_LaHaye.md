@@ -1,6 +1,3 @@
-[![image](images/1/1f/LaHaye.jpg)](http://www.theopedia.com/File:LaHaye.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:LaHaye.jpg "Enlarge")
-Timothy LaHaye
 **Timothy F. LaHaye** (b. 1928) is a Christian minister, author,
 and speaker one of the founders of the
 [Moral Majority movement](index.php?title=Moral_Majority_movement&action=edit&redlink=1 "Moral Majority movement (page does not exist)")

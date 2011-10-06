@@ -1,6 +1,3 @@
-[![image](images/thumb/3/30/Toden.jpg/150px-Toden.jpg)](http://www.theopedia.com/File:Toden.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Toden.jpg "Enlarge")
-Thomas C. Oden
 **Thomas Clark Oden** (b. October 21, 1931) is an American
 [Methodist](Methodism "Methodism") theologian associated with Drew
 University in New Jersey and the Director of the

@@ -1,6 +1,3 @@
-[![image](images/thumb/4/4d/Johnpromo.jpg/180px-Johnpromo.jpg)](http://www.theopedia.com/File:Johnpromo.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Johnpromo.jpg "Enlarge")
-Promo postcard from *The Gospel According to John*
 ***The Gospel According to John*** is a vision of Marchiano
 Ministries to produce a word-for-word adaptation of the
 [NIV](NIV "NIV")

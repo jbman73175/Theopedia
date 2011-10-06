@@ -1,6 +1,3 @@
-[![image](images/thumb/1/14/Aquinas.jpg/200px-Aquinas.jpg)](http://www.theopedia.com/File:Aquinas.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Aquinas.jpg "Enlarge")
-St.Thomas Aquinas
 **St.Thomas Aquinas** (1225-1274) was a medieval
 [Roman Catholic](Roman_Catholicism "Roman Catholicism") philosopher
 and theologian in the [scholastic](Scholasticism "Scholasticism")

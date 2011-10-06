@@ -1,6 +1,3 @@
-[![image](images/1/1e/Nettles2.jpg)](http://www.theopedia.com/File:Nettles2.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Nettles2.jpg "Enlarge")
-Tom Nettles
 **Thomas J. Nettles** (b. 1946), currently Professor of Historical
 Theology at Southern Baptist Theological Seminary in Louisville,
 Kentucky, he is regarded by some as one of the foremost

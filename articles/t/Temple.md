@@ -1,6 +1,3 @@
-[![image](images/thumb/9/9f/Temple.jpg/350px-Temple.jpg.pagespeed.ce.TD7XCyHUO-.jpg)](http://www.theopedia.com/File:Temple.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Temple.jpg "Enlarge")
-A model of the Temple.
 The chief characteristic of a **temple** in
 [Biblical theology](Biblical_theology "Biblical theology") is that
 it is the dwelling-place of a god. The Temple at
@@ -127,9 +124,6 @@ there. Of course, all four gospels record the events of
 
 ### Jesus and the Temple
 
-[![image](images/thumb/a/a6/Temple-ElGreco.jpg/350px-Temple-ElGreco.jpg)](http://www.theopedia.com/File:Temple-ElGreco.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Temple-ElGreco.jpg "Enlarge")
-*The Purification of the Temple* by El Greco (1541–1614).
 Although the Temple naturally featured in the life of
 [Jesus](Jesus "Jesus") prior to his public ministry, we will focus
 on how Jesus interacted with the Temple during his time in

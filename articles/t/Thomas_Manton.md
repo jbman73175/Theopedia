@@ -1,6 +1,3 @@
-[![image](images/4/42/Manton.jpg)](http://www.theopedia.com/File:Manton.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Manton.jpg "Enlarge")
-Thomas Manton
 **Thomas Manton** (1620-1677) was born in Lawrence-Lydiat,
 Somerset, England to a religious family, where his father and both
 grandfathers were both ministers. When he was 15 he entered the

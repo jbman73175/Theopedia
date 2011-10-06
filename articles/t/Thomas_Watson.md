@@ -1,6 +1,3 @@
-[![image](images/thumb/6/6f/Thomaswatson.jpg/170px-Thomaswatson.jpg)](http://www.theopedia.com/File:Thomaswatson.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Thomaswatson.jpg "Enlarge")
-Thomas Watson
 **Thomas Watson** (ca. 1620-1686), an English
 [Nonconformist](Nonconformist "Nonconformist") Puritan preacher and
 author. Watson was educated at Emmanuel College, Cambridge, where

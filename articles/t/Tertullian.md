@@ -1,6 +1,3 @@
-[![image](images/thumb/e/e9/Tertullian.jpg/180px-Tertullian.jpg)](http://www.theopedia.com/File:Tertullian.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Tertullian.jpg "Enlarge")
-Tertullian
 **Tertullian** (ca. 150-225), classified as one of the
 [early church fathers](Early_church_fathers "Early church fathers"),
 was a notable early Christian
