@@ -10,7 +10,7 @@ which suggests that God allows evil to preserve human free will;
 and the *soul-making theodicy*, which suggests that God uses evil
 to build character.
 
-**Multimedia**
+## Multimedia
 
 -   [The Problem of Evil](http://www.veritas.org/media/talks/278)
     (MP3), by

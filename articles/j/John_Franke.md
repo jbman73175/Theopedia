@@ -16,7 +16,7 @@ conferences. His theology tends to be regarded as
 [postconservative](Postconservative "Postconservative").
 
 
-**Multimedia**
+## Multimedia
 
 -   [The One and the Many: Toward a Theology of Christian Pluralism](http://www.ptsstudents.org/ptsaudio/special/ecc/03_lecture.mp3)
     (MP3), presented at Pittsburg Theological Seminary

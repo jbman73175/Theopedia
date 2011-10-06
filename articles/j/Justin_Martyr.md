@@ -19,7 +19,7 @@ way to his final [revelation](Revelation "Revelation") in
 [Jesus](Jesus "Jesus") through hints of truth found within
 classical philosophy.
 
-**Multimedia**
+## Multimedia
 
 -   [Introducing... Justin Martyr](http://theologynetwork.org/historical-theology/getting-stuck-in/introducing----justin-martyr.htm)
     (MP3), lecture by Mike Reeves

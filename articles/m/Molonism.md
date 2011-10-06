@@ -16,7 +16,7 @@ Part of the series on the
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Molinism](http://www.youtube.com/watch?v=KGU3t31xTY0) (YouTube
     video), by Greg Koukl

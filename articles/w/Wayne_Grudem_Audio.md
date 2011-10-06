@@ -1,7 +1,7 @@
 « Back to the [Wayne Grudem](/Wayne_Grudem "Wayne Grudem") main
 page.
 
-**Multimedia**
+## Multimedia
 
 *All audio is in MP3 format*
 

@@ -40,7 +40,7 @@ are in Christ Jesus" (Rom. 8:1) for believers that are
 Rom. 3:21-36). Overall, there is a tension between this age and the
 age to come.
 
-**Multimedia**
+## Multimedia
 
 -   [Is the Kingdom Present or Future?](http://www.desiringgod.org/media/audio/1990/19900204.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")

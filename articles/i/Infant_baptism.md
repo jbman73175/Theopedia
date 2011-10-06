@@ -36,7 +36,7 @@ discipleship and his or her relationship to God and his people will
 *confirm* this understanding and commitment to it as a basis of his
 or her life.
 
-**Multimedia**
+## Multimedia
 
 -   [Baptism](http://thirdmill.org/rm-16/Bates_Rom6_Baptism.rm)
     (Real Audio), by Mark Bates (Presbyterian perspective)

@@ -8,7 +8,7 @@ means "submission" or "surrender." The largest concentration of
 Muslims live in the [10/40 window](10/40_window "10/40 window").
 
 
-**Multimedia**
+## Multimedia
 
 **Christian**
 

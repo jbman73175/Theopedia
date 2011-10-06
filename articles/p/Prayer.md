@@ -1,7 +1,7 @@
 "Prayer is the converse of the soul with God." -
 [Charles Hodge](Charles_Hodge "Charles Hodge")
 
-**Multimedia**
+## Multimedia
 
 -   [Does prayer really change things?](http://www.streamload.com/rpcsermons/QandA/Does%20prayer%20really%20change%20things.mp3)
     (MP3), by Tim Keller

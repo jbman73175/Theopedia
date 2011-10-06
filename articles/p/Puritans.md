@@ -10,7 +10,7 @@ writings were both polemic and devotional treatments of theology."
 [[1]](http://www.spurgeon.org/~phil/puritans.htm)
 
 
-**Multimedia**
+## Multimedia
 
 -   [History and Theology of the Puritans](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1167851904.01167851909),
     a course by [J.I. Packer](J.I._Packer "J.I. Packer") at Reformed

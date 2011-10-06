@@ -18,7 +18,7 @@ and Personal Freedom Outreach, serves on the Board of Reference for
 New Tribes Missions and is the Book Review Editor for the Journal
 of Dispensational Theology.
 
-**Multimedia**
+## Multimedia
 
 -   [Audio](http://www.svchapel.org/Resources/audio.asp) Radio
     Interviews on numerous different theological issues.

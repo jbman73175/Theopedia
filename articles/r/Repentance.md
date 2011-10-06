@@ -3,7 +3,7 @@ God-granted^[[1]](#note-0)^ attitude of having sorrow for personal
 [sin](Sin "Sin") and the turning away from it towards a new life.
 
 
-**Multimedia**
+## Multimedia
 
 -   [True Repentance](http://vimeo.com/3497645) (Vimeo), by Bob
     Jennings

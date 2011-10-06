@@ -30,7 +30,7 @@ life.^[[1]](#note-0)^ The theory was first proposed by Charles
 Darwin in his 1859 book
 *On the Origin of Species by Means of Natural Selection, or the Preservation of Favoured Races in the Struggle for Life*.
 
-**Multimedia**
+## Multimedia
 
 -   [Evolution Audio Lectures](http://www.veritas.org/3.0_media/topics/16)
     (The Veritas Forum)

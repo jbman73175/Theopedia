@@ -40,7 +40,7 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-**Multimedia**
+## Multimedia
 
 -   [Song of Songs](http://biblicaltraining.org/audio/OT500/ots_10c.mov)
     (QuickTime), by Douglas Stuart

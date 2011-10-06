@@ -4,7 +4,7 @@ with a special and purposeful gifting by God to remain single for
 the advancement of the "kingdom of heaven."^[[1]](#note-0)^
 
 
-**Multimedia**
+## Multimedia
 
 -   [Flourishing in Singleness](http://www.scriptoriumdaily.com/2009/05/03/flourishing-in-singleness/),
     by the Middlebrow on Scriptorium Daily

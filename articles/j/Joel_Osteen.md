@@ -15,7 +15,7 @@ training and no experience as a pastor, having dropped out of Oral
 Roberts University after just one semester to manage Lakewood's
 television production department.
 
-**Multimedia**
+## Multimedia
 
 -   [The Gospel According to Joel Osteen](http://www.calvarysantafe.org/teachings/audio/20080913_09.mp3)
     (MP3), by Rob Bowman

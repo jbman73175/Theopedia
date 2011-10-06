@@ -22,7 +22,7 @@ and Marilyn Hickey, among others. They teach that Christians must
 claim the grace God has promised them, whether in material goods,
 health, social position, or roles within the church.
 
-**Multimedia**
+## Multimedia
 
 -   [FAQ About the Faith Movement](http://www.calvarysantafe.org/teachings/audio/20080913_04.mp3)
     (MP3), by Rob Bowman

@@ -6,7 +6,7 @@ resulting [salvation](Salvation "Salvation") are both solely by the
 sovereign distinguishing grace of God and not dependant on any
 action or condition provided by man.
 
-**Multimedia**
+## Multimedia
 
 -   Grace Alone: Part 1
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051102.m3u),

@@ -41,7 +41,7 @@ helped the people to understand the Law, while the people remained
 in their places. They read from the book, from the Law of God,
 clearly, and they gave the sense, so that the people understood the
 reading. (Nehemiah 8:7-8)
-**Multimedia**
+## Multimedia
 
 -   [What is a Good Translation?](http://www.gordonconwell.edu/audio/dimensions/htsb/htsb02.ram)
     (Real Audio), by Douglas Stuart

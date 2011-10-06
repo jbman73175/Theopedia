@@ -12,7 +12,7 @@ London under [Colin Gunton](Colin_Gunton "Colin Gunton"). He
 oversees the theological resources website,
 [Theology Network](http://www.theologynetwork.org.uk).
 
-**Multimedia**
+## Multimedia
 
 **Lectures on the Trinity** (MP3)
 

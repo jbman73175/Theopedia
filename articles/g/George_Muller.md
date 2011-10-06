@@ -12,7 +12,7 @@ an early leader of the Open Brethren movement, a branch of the
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [George Mueller's Strategy for Showing God](http://media.desiringgod.org/audio/conferences/bcp2004/20040203_piper_mueller.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")

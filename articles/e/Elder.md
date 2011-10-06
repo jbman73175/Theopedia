@@ -18,7 +18,7 @@ preaching and pastoral offices. In other Christian traditions (e.g.
 charged with serving as an administrator in a local church, or be
 ordained to such an office.
 
-**Multimedia**
+## Multimedia
 
 -   [Biblical Leadership](http://jubilee-church.org/sermons07/biblical_leadership_TK.mp3)
     (MP3), by Tope Koleoso (a sermon preached at

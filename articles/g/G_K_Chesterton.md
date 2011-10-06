@@ -12,7 +12,7 @@ personality nevertheless allowed him to maintain warm friendships
 with people such as George Bernard Shaw and H. G. Wells, with whom
 he vehemently disagreed.
 
-**Multimedia**
+## Multimedia
 
 -   [The Spiritual and Intellectual Delight of G. K. Chesterton](http://maclaurin.org/mp3s/maclaurin_institute__copyright_20022.mp3)
     (MP3), by Dale Ahlquist

@@ -16,7 +16,7 @@ spread along natural lines without encountering barriers of
 understanding or acceptance due to culture, language, geography,
 etc." -Ed Dayton
 
-**Multimedia**
+## Multimedia
 
 -   [Caleb Project - Infobytes Animations](http://www.calebproject.org/main.php/news_and_interactive/infobytes_animations)
     (Flash animation) - See module 3 for "What is a people group?"

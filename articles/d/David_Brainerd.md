@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   [David Brainerd: Oh, that I may never loiter on my heavenly journey!](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/03_brainerd.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional

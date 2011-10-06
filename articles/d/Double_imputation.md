@@ -11,7 +11,7 @@ his personal righteousness imputed to believers, not any
 righteousness inherent or infused in man.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Justification and Imputed Righteousness](http://www.youtube.com/watch?v=IapqqQ45Q4w)
     (YouTube), by [R.C. Sproul](R.C._Sproul "R.C. Sproul")

@@ -40,7 +40,7 @@ one unto life and one unto death, with judgment to follow each. The
 doctrine of resurrection, therefore, rejects the possibility of
 annihilationism (eternal unconsciousness).
 
-**Multimedia**
+## Multimedia
 
 -   [Last Things: The Resurrection Body](http://worldwidefreeresources.com/upload/ST240_Lecture_37.mp3)
     (MP3), by Robert A. Peterson

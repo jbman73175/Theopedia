@@ -14,7 +14,7 @@ The Spirit is not an impersonal “it” or simply an
 influence.[[1]](http://www.bible.org/page.asp?page_id=392)
 
 
-**Multimedia**
+## Multimedia
 
 -   [The Holy Spirit Is a Person](http://www.trinitylectures.org/MP3/The_Holy_Spirit_is_a_Person.mp3)
     (MP3), by Gordon H. Clark

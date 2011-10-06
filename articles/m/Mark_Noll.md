@@ -11,7 +11,7 @@ and a PhD from Vanderbilt University.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [How the size of the North American continent affected its religious developments](http://www.marshillaudio.org/resources/mp3/MHAJ-55-Noll.mp3)
     (MP3)

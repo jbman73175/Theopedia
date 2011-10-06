@@ -32,7 +32,7 @@ goal of His election. Scripture clearly teaches both election and
 predestination; however, there are a variety of views as to *who*,
 *when*, *why*, and *how* God does so.
 
-**Multimedia**
+## Multimedia
 
 -   "Total Depravity - Unconditional Election" TULIP, by
     [John Piper](John_Piper "John Piper") (MP4 Video)

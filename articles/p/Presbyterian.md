@@ -19,7 +19,7 @@ distinctions, Presbyterians also have divided from one another for
 doctrinal reasons, especially in the wake of the
 [Enlightenment](Enlightenment "Enlightenment").
 
-**Multimedia**
+## Multimedia
 
 -   [What Do Presbyterians Believe?](http://www.trinitylectures.org/MP3/What_Do_Presbyterians_Believe.mp3),
     by Gordon H. Clark (MP3)

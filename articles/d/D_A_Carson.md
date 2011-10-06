@@ -17,7 +17,7 @@ in Toronto, and a PhD in
 from
 [Cambridge University](http://www.theopedia.com/index.php?title=Attended_university::w:Cambridge_University&action=edit&redlink=1 "Attended university::w:Cambridge University (page does not exist)").
 
-**Multimedia**
+## Multimedia
 
 -   [D. A. Carson audio](http://www.thegospelcoalition.org/resources/author-index/D.A.-Carson/DA_Carson#),
     by date, topic, and series

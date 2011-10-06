@@ -30,7 +30,7 @@ video publications, and he is also known for his advocacy of the
 rejection of both evidentialism and
 [presuppositionalism](Apologetics#Presuppositional "Apologetics").
 
-**Multimedia**
+## Multimedia
 
 **Podcasts:**
 

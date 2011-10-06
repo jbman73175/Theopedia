@@ -32,7 +32,7 @@ The 'Gospel of Luke' is the third of the four gospels. It is the
 first of a two volume account by Luke; the second is the
 [Acts of the Apostles](Acts_of_the_Apostles "Acts of the Apostles").
 
-**Multimedia**
+## Multimedia
 
 -   [The Gospel of Luke](http://biblicaltraining.org/audio/NT501/nt_stein_09.mov)
     (QuickTime), by Robert Stein

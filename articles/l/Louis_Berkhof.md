@@ -16,7 +16,7 @@ and [Herman Bavinck](Herman_Bavinck "Herman Bavinck").
 
 
 
-**Multimedia**
+## Multimedia
 
 -   Discussion: Berkhof's "Systematic Thelogy"
     [Part 1](http://worldwidefreeresources.com/upload/ST240_Lecture_09.mp3),

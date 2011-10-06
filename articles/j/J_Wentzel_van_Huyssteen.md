@@ -10,7 +10,7 @@ Africa. His work focuses primarily on the dialogue between
 He has a D.Th. from the Free University of Amsterdam.
 
 
-**Multimedia**
+## Multimedia
 
 -   [God Under the Microscope](http://www.youtube.com/watch?v=XkNAFYLBbxc)
     (Here Huyssteen appears with Richard Dawkins among other academics

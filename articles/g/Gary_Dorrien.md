@@ -4,7 +4,7 @@ works at Union Theological Seminary as the
 [Reinhold Niebuhr](Reinhold_Niebuhr "Reinhold Niebuhr") Professor
 of Social Ethics.
 
-**Multimedia**
+## Multimedia
 
 -   [An Alternative Model: Economic Democracy](http://www.youtube.com/watch?v=2F-DMmKKfPY)
     (YouTube), talk at Columbia/Union

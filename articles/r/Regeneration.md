@@ -37,7 +37,7 @@ adds, "Sometimes the word expresses the *act* of God. God
 regenerates. Sometimes it designates the subjective *effect* of his
 act" (emphasis added).
 
-**Multimedia**
+## Multimedia
 
 -   [Riches of Divine Grace: Regeneration](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/045_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

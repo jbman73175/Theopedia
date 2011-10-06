@@ -14,7 +14,7 @@ is in respect of subjection the son of his instructor" (Hall,
 *Reading Scripture with the Church Fathers*, p. 50). The study of
 Church Fathers is commonly known as **Patristics**.
 
-**Multimedia**
+## Multimedia
 
 -   [Early Church Fathers](http://covenantseminary.inmotionhosting.com/CH310_Lecture_07.mp3),
     by David Calhoun (MP3)

@@ -32,7 +32,7 @@ teachers.
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [Truth and Love--The Message of 2 John](http://dl.salemweb.net/?mg=1B292631-E094-43E9-8171-149A20380C12)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")

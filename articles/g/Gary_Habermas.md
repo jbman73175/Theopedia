@@ -21,7 +21,7 @@ professional debate judges and was published as a book under the
 title *Did Jesus Rise from the Dead? The Resurrection Debate*
 (Harper & Row, 1987).
 
-**Multimedia**
+## Multimedia
 
 -   [Debate with Anthony Flew on the Resurrection of Jesus](http://www.garyhabermas.com/video/video.htm)
 -   [The Evidence For The Historical Jesus](http://www.garyhabermas.com/video/video.htm)

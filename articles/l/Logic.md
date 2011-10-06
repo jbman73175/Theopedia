@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   The Laws of Logic
     ([Real](http://broadcast.ligonier.org/playlists/rym20060109.m3u),

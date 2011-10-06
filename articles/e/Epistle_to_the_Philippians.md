@@ -33,7 +33,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   Philippians Narrated in the [ESV](ESV "ESV"):
     [Chapter 1](http://www.gnpcb.org/esv/share/audio/smil.php?passage=Philippians+1),

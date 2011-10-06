@@ -58,7 +58,7 @@ parts of the Bible are sprinkled with references to the "last
 day(s)" and the "second coming" of Christ. A specific reference to
 it is contained in the early ecumenical creeds.
 
-**Multimedia**
+## Multimedia
 
 -   [The Basis of the Second Coming](http://www.logos.com/media/lecture/Fruchtenbaum.mp3)
     (MP3), by Arnold Fruchtenbaum

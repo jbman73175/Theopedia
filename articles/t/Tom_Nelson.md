@@ -4,7 +4,7 @@ a Bachelor's Degree in Education and received a Master of Arts in
 Biblical Studies from
 [Dallas Theological Seminary](Dallas_Theological_Seminary "Dallas Theological Seminary").
 
-**Multimedia**
+## Multimedia
 
 -   [Messages/Sermons given by Tom Nelson](http://www.dbcmedia.org/xcart/home.php?cat=257&sort=orderby&sort_direction=0)
 -   [Discipleship Library](http://www.discipleshiplibrary.com/tom_nelson.php)

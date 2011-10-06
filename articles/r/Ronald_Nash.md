@@ -9,7 +9,7 @@ professor for over 40 years, teaching and writing in the areas of
 [ethics](Ethics "Ethics"), [theology](Theology "Theology") and
 history.
 
-**Multimedia**
+## Multimedia
 
 -   God Exists: No Evidence Required - Part 1
     ([YouTube](http://www.youtube.com/watch?v=0prRVqudMRk))

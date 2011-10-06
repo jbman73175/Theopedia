@@ -9,7 +9,7 @@ is a leading figure in the
 and has written several books on the topic.
 
 
-**Multimedia**
+## Multimedia
 
 -   Those Who've Never Heard: A Survey of the Major Views
     ([Windows Media](http://www.byubroadcasting.org/salvationinchrist/asx/episode114.asx),

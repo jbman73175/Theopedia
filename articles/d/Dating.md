@@ -7,7 +7,7 @@ be honest - dating is about marriage… even unbelievers recognize
 that at some distorted level." -Matthew Hall
 [[1]](http://matthewhall.net/?p=569)
 
-**Multimedia**
+## Multimedia
 
 -   [Biblical Courtship](http://www.sermonaudio.com/search.asp?seriesOnly=true&sourceID=mtolive&keyworddesc=Biblical+Courtship+&keyword=Biblical+Courtship+),
     a nine sermon series from Dr. Dan Coleman.

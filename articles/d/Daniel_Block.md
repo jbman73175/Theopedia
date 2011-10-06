@@ -10,7 +10,7 @@ two-volume commentary on the
 [Book of Ezekiel](Book_of_Ezekiel "Book of Ezekiel") is a standard
 in Old Testament scholarship.
 
-**Multimedia**
+## Multimedia
 
 -   [The Genesis of Deuteronomy](http://www.sbts.edu/MP3/Speakers/990929block.mp3),
     Southern Baptist Theological Seminary, Sept. 29, 1999.

@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   [Christian Ethics](http://biblicaltraining.org/class/et101)
     (Quicktime), by [Ronald Nash](Ronald_Nash "Ronald Nash") (seminary

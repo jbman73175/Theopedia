@@ -14,7 +14,7 @@ in Sydney, Australia. He is the author of *According to Plan* (IVP,
 (Eerdmans, 2000). Goldsworthy has an MA from Cambridge University
 and a ThM and PhD from Union Theological Seminary in Virginia.
 
-**Multimedia**
+## Multimedia
 
 -   [The necessity and validity of Biblical Theology](http://www.sbts.edu/MP3/spring2008/20080318goldsworthy.mp3)
     (MP3), at Southern Baptist Theological Seminary (3-18-08)

@@ -30,7 +30,7 @@ The imputation of Adam's sin is distinct from
 [original sin](Original_sin "Original sin"), the doctrine that
 humans are born *with a sinful nature* as a result of Adam's sin.
 
-**Multimedia**
+## Multimedia
 
 -   [The Effects of the Fall, or the Imputation of Adam's Sin](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/120_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

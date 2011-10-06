@@ -35,7 +35,7 @@ Theological Understanding at
 [Trinity Evangelical Divinity School](Trinity_Evangelical_Divinity_School "Trinity Evangelical Divinity School")
 in Deerfield, IL.
 
-**Multimedia**
+## Multimedia
 
 -   [Kantzer Lectures](http://www.henrycenter.org/audio.php?link=kantzerlectures)
 -   [John Webster on Mercy](http://www.switchpod.com/users/jordanbarrett/JohnWebsterMercy32807Garrett.m4a)

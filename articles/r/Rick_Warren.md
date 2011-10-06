@@ -7,7 +7,7 @@ is associated with the Southern Baptist Convention. Though he has
 written several books, he is best known for his Purpose Driven
 books."^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [John Piper Interviews Rick Warren on Doctrine](http://www.desiringgod.org/blog/posts/john-piper-interviews-rick-warren-on-doctrine)
 

@@ -60,7 +60,7 @@ end of the world, resurrection of the dead,
 creation.
 
 
-**Multimedia**
+## Multimedia
 
 -   The Doctrine of Last Things -
     [Part 1](http://www.biblicaltraining.org/audio/TH504/theology_2_26_QT-high.mov),

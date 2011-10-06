@@ -20,7 +20,7 @@ Seminary.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Woodland Hills Church Sermon Archive](http://www.whchurch.org/content/page_506.htm)
 

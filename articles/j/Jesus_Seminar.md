@@ -39,7 +39,7 @@ historical data to focus on Jesus himself.^[[3]](#note-Wright)^
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Where is Jesus in All This? A Review of the Work of the Jesus Seminar](http://216.176.228.162:9037/ramgen/JBGay/2003Witherington2.rm)
     (Real Audio), by

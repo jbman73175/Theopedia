@@ -7,7 +7,7 @@ She was a member of the Center of Theological Inquiry at Princeton,
 New Jersey in 1992 and previously taught at Perkins School of
 Theology.
 
-**Multimedia**
+## Multimedia
 
 **Stob Lectures at Calvin Seminary, 2005**
 

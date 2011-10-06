@@ -9,7 +9,7 @@ Part of the series on the
 -   [Illumination](Illumination_of_the_Holy_Spirit "Illumination of the Holy Spirit")
 -   [Intercession](Intercession_of_the_Holy_Spirit "Intercession of the Holy Spirit")
 
-**Multimedia**
+## Multimedia
 
 -   [The Holy Spirit's Work in Indwelling](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/075_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

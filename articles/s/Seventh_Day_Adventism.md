@@ -14,7 +14,7 @@ Adventist and be a true follower of Jesus Christ despite heterodox
 concepts..."^[[1]](#note-0)^
 
 
-**Multimedia**
+## Multimedia
 
 -   [Church History Lecture \#11](http://www.archive.org/download/ChurchHistory/ChurchHistory11.mp3),
     by [Tom Nelson](Tom_Nelson "Tom Nelson")^[[2]](#note-1)^

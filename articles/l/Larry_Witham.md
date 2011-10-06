@@ -11,7 +11,7 @@ Religion Newswriters Association as well as a Templeton Foundation
 award for his articles on science and religion.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Measure of God: Can We Reconcile Science and Religion](http://www.archive.org/details/MeasureOfGodCanWeReconcileScienceAndReligion)
     (Cambridge forum 2005)

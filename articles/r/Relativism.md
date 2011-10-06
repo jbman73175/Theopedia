@@ -7,7 +7,7 @@ relative mindset believes that any idea of absolute truth
 (something that is true irregardless of if someone thinks it is or
 not) is impossible.
 
-**Multimedia**
+## Multimedia
 
 -   [The Relativity of Belief and the Absoluteness of Truth](http://www.veritas.org/media/talks/235),
     by [Dallas Willard](Dallas_Willard "Dallas Willard")

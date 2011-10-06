@@ -9,7 +9,7 @@ Wesleyan theology, it can refer to a moment of "Entire
 Sanctification," in which one reaches a state of
 [Christian Perfection](Wesleyan_perfectionism "Wesleyan perfectionism").
 
-**Multimedia**
+## Multimedia
 
 -   [Sanctification](http://www.trinitylectures.org/MP3/Sanctification.mp3)
     (MP3), by Gordon H. Clark

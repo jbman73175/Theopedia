@@ -7,7 +7,7 @@ Wheaton College Graduate School from 2003-2008 and is Professor of
 Systematic Theology, Faculte Libre de Theologie Evangelique,
 Vaux-sur-Seine, France.
 
-**Multimedia**
+## Multimedia
 
 -   [Various lectures](http://www.euroleadershipresources.org/speaker.php?ID=76&Tab=Topics)
 

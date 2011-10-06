@@ -5,7 +5,7 @@ generally regard the [Bible](Bible "Bible") as communicating the
 *truth* about [God](God "God") and spiritual things, answering the
 ultimate questions of life and meaning in this world.
 
-**Multimedia**
+## Multimedia
 
 -   [Current Attacks on Truth](http://www.euroleadershipresources.org/Media/Audio/Stefan_Gustavsson-Current_attacks_on_truth.mp3),
     (mp3) by Stefan Gustavsson

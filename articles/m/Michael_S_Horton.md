@@ -10,7 +10,7 @@ MA from Westminster Seminary (CA), and a PhD from the University of
 Coventry and Wycliffe Hall, Oxford. He also completed a Research
 Fellowship at Yale Divinity School.
 
-**Multimedia**
+## Multimedia
 
 -   [White Horse Inn Broadcasts](http://www.oneplace.com/ministries/the_white_horse_inn/)
 -   [Adult Bible Class Teachings from Dr. Horton](http://christurc.org/catechism_horton.html),

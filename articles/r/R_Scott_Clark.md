@@ -15,7 +15,7 @@ He has served congregations in Missouri and California. He is
 Associate Pastor of the Oceanside United Reformed Church, where he
 preaches and teaches regularly.
 
-**Multimedia**
+## Multimedia
 
 -   [Sermons and/or academic talks](https://www.sermonaudio.com/search.asp?SpeakerOnly=true&currSection=sermonsspeaker&Keyword=Dr.%5ER.%5EScott%5EClark)
 

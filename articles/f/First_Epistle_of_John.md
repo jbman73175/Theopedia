@@ -31,7 +31,7 @@
 [John the Apostle](John_the_Apostle "John the Apostle") wrote this
 letter in order to reassure Christians in their faith and to
 counter false teaching.
-**Multimedia**
+## Multimedia
 
 -   [Christianity and the Flesh--The Message of 1 John](http://dl.salemweb.net/?mg=C617B685-C4F0-44C8-9646-14AAF91F2AA4)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")

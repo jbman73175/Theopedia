@@ -12,7 +12,7 @@ Villanova University under the direction of
 (1999). Smith previously taught philosophy at Loyola Marymount
 University.
 
-**Multimedia**
+## Multimedia
 
 -   [On Being Pentecostal *and* Reformed](http://www.calvin.edu/faith/worship/chapel/mp3_archives/audio/2007-2008/20071001_smith.mp3)
     (MP3), Calvin College 10-1-07

@@ -10,7 +10,7 @@ Catholic Church. He is considered by the Catholic Church to be its
 greatest theologian and one of the thirty-three Doctors of the
 Church.
 
-**Multimedia**
+## Multimedia
 
 -   [Thomas Aquinas](http://worldwidefreeresources.com/upload/CH310_Lecture_29.mp3)
     (MP3), by David Calhoun

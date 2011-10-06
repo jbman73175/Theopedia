@@ -1,7 +1,7 @@
 **George Wilhelm Friedrich Hegel** (1770-1831) was a German
 philosopher and greatly influenced contemporary western theology.
 
-**Multimedia**
+## Multimedia
 
 
 ## External links

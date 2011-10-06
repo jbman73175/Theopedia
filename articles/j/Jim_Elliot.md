@@ -5,7 +5,7 @@ Jim Elliot
 Christian missionary to Ecuador, where he was killed by Huaorani
 Indians.
 
-**Multimedia**
+## Multimedia
 
 -   Jim Elliot sermons provided by Wheaton College: Feeding of the
     Five Thousand & Resurrection

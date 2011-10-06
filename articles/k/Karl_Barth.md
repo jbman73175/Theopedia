@@ -12,7 +12,7 @@ theological [liberalism](Liberalism "Liberalism") and
 Father of [Neo-Orthodoxy](Neo-Orthodoxy "Neo-Orthodoxy")".
 
 
-**Multimedia**
+## Multimedia
 
 -   [David Clough on Karl Barth](http://www.youtube.com/watch?v=MLnylZM14w0)
     (YouTube)

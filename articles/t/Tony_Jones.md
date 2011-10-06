@@ -13,7 +13,7 @@ Jones is also a doctoral fellow and senior research fellow in
 where he is in the process of completing his PhD in practical
 theology.
 
-**Multimedia**
+## Multimedia
 
 -   [Smack-down Plato vs. Aristotle](http://media.libsyn.com/media/emergent/ep-2007-03-31-Jones-Smackdown.mp3)
     (MP3)

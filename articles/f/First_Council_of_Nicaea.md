@@ -15,7 +15,7 @@ ecumenical creed which is known as the
 [orthodoxy](Orthodoxy "Orthodoxy") and set a precedent for future
 councils.
 
-**Multimedia**
+## Multimedia
 
 -   [Council of Nicaea](http://covenantseminary.inmotionhosting.com/CH310_Lecture_12.mp3),
     by David Calhoun (MP3)

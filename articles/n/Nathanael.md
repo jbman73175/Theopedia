@@ -12,7 +12,7 @@ whom Jesus appeared beside the Sea of Galilee after the
 resurrection (John
 21:2).[[1]](http://www.princeofpeaceonline.org/connect/family/teens/middle_school/bible_tutor/level2/program/start/people/nathan2.htm)
 
-**Multimedia**
+## Multimedia
 
 -   Nathanael
     ([Real](http://broadcast.ligonier.org/playlists/rym20060127.m3u),

@@ -7,7 +7,7 @@ I say that the moon is made entirely of cheese but then also say
 that the moon is not made entirely of cheese, I have contradicted
 myself.
 
-**Multimedia**
+## Multimedia
 
 -   [The Law of Non-contradiction](http://biblicaltraining.org/audio/TH601/apologetics_03a_MSTR.mov)
     (QuickTime), by Ron Nash

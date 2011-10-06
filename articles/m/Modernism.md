@@ -6,7 +6,7 @@ rationalism and science, is able to access absolute truth and make
 unlimited progress toward a better life for itself. Therefore, at
 its core, modernity is a celebration of human autonomy.
 
-**Multimedia**
+## Multimedia
 
 -   [J. Gresham Machen's Response to Modernism](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/06_machen.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")

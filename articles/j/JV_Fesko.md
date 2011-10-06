@@ -9,7 +9,7 @@ Atlanta. He received a Master of Arts in Theology from Southwestern
 Baptist Theological Seminary and earned his PhD in Theology from
 the University of Aberdeen in Scotland.
 
-**Multimedia**
+## Multimedia
 
 -   ["The Reformed Doctrine of Justification"](http://odeo.com/episodes/23470277-The-Reformed-Doctrine-of-Justification)
     (Oct 10, 2008)

@@ -1,7 +1,7 @@
 << Back to the
 [New Perspective on Paul](/New_Perspective_on_Paul "New Perspective on Paul")
 
-**Multimedia**
+## Multimedia
 
 -   [N.T. Wright Audio/Video](http://www.ntwrightpage.com/#video)
 -   [The Theology of N. T. Wright](http://www.trinitylectures.org/MP3/Wright_Collection13.mp3)

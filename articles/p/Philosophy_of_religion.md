@@ -5,7 +5,7 @@ article the methods of philosophy of religion are viewed in
 accordance with historic Christianity.
 
 
-**Multimedia**
+## Multimedia
 
 -   Philosophy of Religion
     ([Part 1](http://server.firefighters.org/fernandes/36555.mp3),

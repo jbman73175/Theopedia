@@ -19,7 +19,7 @@ grace to help in time of need," (Heb. 4:15-16). As man He provided
 for us the pattern for living as men, (1 Pet. 2:21).
 
 
-**Multimedia**
+## Multimedia
 
 -   [Understanding the Humanity of Jesus](http://biologos.org/blog/understanding-the-humanity-of-jesus/),
     by N.T. Wright (with Peter Enns)

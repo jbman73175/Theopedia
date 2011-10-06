@@ -17,7 +17,7 @@ that of the Creator, challenges divine omnipotence with human
 impotence, and seeks to usurp the rightful authority of the cosmic
 Lord."^[[2]](#note-1)^
 
-**Multimedia**
+## Multimedia
 
 -   [The Doctrine of Sin](http://www.biblicaltraining.org/audio/TH503/theology_1_27001.mp3)
     (MP3]), by [Bruce Ware](Bruce_Ware "Bruce Ware") - Seminary lecture

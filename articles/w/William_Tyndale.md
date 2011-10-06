@@ -23,7 +23,7 @@ the Bible, which, although compiled by 54 independent scholars, is
 based largely on Tyndale's translations.
 
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-**Multimedia**
+## Multimedia
 
 -   [Always Singing One Note--A Vernacular Bible](http://www.desiringgod.org/media/audio/conferences/bcp2006/04_20060131_piper.mp3)
     (MP3), by [John Piper](John_Piper "John Piper")

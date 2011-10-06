@@ -30,7 +30,7 @@ salvation frown upon this usage of the term "free grace", as the
 free grace spoken of in the Bible both justifies the sinner *and*
 transforms the heart unto obedience.
 
-**Multimedia**
+## Multimedia
 
 **Favorable**
 

@@ -10,7 +10,7 @@ of the Gospels (esp.
 Background of the [New Testament](New_Testament "New Testament"),
 [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism").
 
-**Multimedia**
+## Multimedia
 
 -   [Larry Hurtado - How Did Jesus Become a God?](http://www.youtube.com/watch?v=pLeXpSCLrD8)
     (YouTube)

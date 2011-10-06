@@ -8,7 +8,7 @@ because they were in a collection, rather the Church regarded these
 separate documents as Scripture, and accordingly gathered them
 together into the accepted canon.
 
-**Multimedia**
+## Multimedia
 
 -   [Is the New Testament canon reliable and accurate?](http://www.streamload.com/rpcsermons/QandA/Is%20the%20New%20Testament%20canon%20reliable%20and%20accurate.mp3)
     (MP3), by Tim Keller - Discusses canonization

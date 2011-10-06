@@ -6,7 +6,7 @@ Portland, OR. McKinley's church is generally understood to be part
 of the [Emerging church](Emerging_church "Emerging church")
 movement.
 
-**Multimedia**
+## Multimedia
 
 -   [Sermons from Imago Dei Community](http://www.imagodeicommunity.com/information/sermons/)
 -   [Morgan Spurlock Interview at Imago Dei about WWJB movie](http://www.youtube.com/watch?v=NEaDUQlIlGA)

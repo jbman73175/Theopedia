@@ -18,7 +18,7 @@ defend the orthodox Christian faith. A shorter later work is his
 teaching, largely concerned with Christ as the fulfillment of Old
 Testament prophecy.
 
-**Multimedia**
+## Multimedia
 
 -   [Introducing... Irenaeus](http://theologynetwork.org/historical-theology/getting-stuck-in/introducing----irenaeus.htm)
     (MP3), lecture by Mike Reeves

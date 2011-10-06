@@ -18,7 +18,7 @@ Stott was educated at Rugby School and Trinity College Cambridge,
 and trained for the pastorate at Ridley Hall, Cambridge. He was
 awarded a Lambeth doctorate in divinity in 1983.
 
-**Multimedia**
+## Multimedia
 
 -   [Is Jesus Christ Truth for the 21st Century](http://www.veritas.org/mediafiles/VTS-Stott-1995-Harvard-VF1HAR10.mp3)
     (MP3)

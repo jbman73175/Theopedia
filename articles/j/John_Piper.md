@@ -17,7 +17,7 @@ satisfied than would be the case in any other senario for the
 world.)
 
 
-**Multimedia**
+## Multimedia
 
 -   [Weekly Sermons (and full archives)](http://www.desiringgod.org/)
 -   [Desiring God Radio](http://www.desiringgod.org/Radio/)

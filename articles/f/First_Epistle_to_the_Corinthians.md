@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [Sermons on 1 Corinthians](http://video.google.com/videosearch?q=mark+driscoll++1st+Corinthians)
     (Google Video), by [Mark Driscoll](Mark_Driscoll "Mark Driscoll")

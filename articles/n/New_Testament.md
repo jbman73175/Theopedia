@@ -47,7 +47,7 @@ Part of the series on the
 -   [Biblical criticism](Biblical_criticism "Biblical criticism")
 -   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")
 
-**Multimedia**
+## Multimedia
 
 -   [The Reliability of the New Testament](http://www.youtube.com/watch?v=DmognT95eYg),
     by Phil Fernandes

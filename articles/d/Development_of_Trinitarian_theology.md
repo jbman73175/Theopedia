@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   [A Brief History of Trinitarian Thought](http://www.reformedforum.org/podpress_trac/web/404/0/ctc042.mp3)
     (MP3), with [Carl Trueman](Carl_Trueman "Carl Trueman"), Nick

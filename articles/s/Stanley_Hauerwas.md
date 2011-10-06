@@ -9,7 +9,7 @@ from the
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Sacrificing the Sacrifices of War](http://www.gfmuiuc.net/hauerwas4-6-06.mp3)
     (MP3), April 6, 2006. ^[[1]](#note-0)^

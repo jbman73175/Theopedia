@@ -20,7 +20,7 @@ Part of the series on
 -   [Resurrection](Resurrection "Resurrection")
 -   **Glorification**
 
-**Multimedia**
+## Multimedia
 
 -   Like Him, or the Doctrine of Glorification -
     [Part 1](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/056_SLJ_69_32K.mp3),

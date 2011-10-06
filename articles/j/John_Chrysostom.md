@@ -17,7 +17,7 @@ commemorate him on September 13. His relics were stolen from
 Constantinople by Crusaders in 1204 and brought to Rome, but were
 returned on 27 November 2004 by Pope John Paul II.
 
-**Multimedia**
+## Multimedia
 
 -   "Goldenmouth" - Life and Times of John Chrysostom
     [Part 1](http://www.wicketgate.org/chrysostom/chrysostom1.html),

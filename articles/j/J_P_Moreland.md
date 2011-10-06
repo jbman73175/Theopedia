@@ -12,7 +12,7 @@ Moreland has a Th.M. from Dallas Theological Seminary and a Ph.D.
 from the University of Southern California where he studied under
 [Dallas Willard](Dallas_Willard "Dallas Willard").
 
-**Multimedia**
+## Multimedia
 
 **Biblical Studies**
 

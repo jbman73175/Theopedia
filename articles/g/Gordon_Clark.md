@@ -26,7 +26,7 @@ know, and how they know what they know." (Dr. C. Matthew McMahon
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [The Trinity Lectures](http://www.trinitylectures.org/MP3_downloads.php)
 

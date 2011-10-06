@@ -8,7 +8,7 @@ and a Christ of history: the *real* Jesus who in fact is not
 Such a dichotomy is false according to orthodox Christian belief.
 ^[***[citation\ needed](http://www.theopedia.com/Theopedia:Writing_guide#Reference_your_work\ "Theopedia:Writing\ guide")***]^
 
-**Multimedia**
+## Multimedia
 
 -   [Debate Between Marcus Borg and N.T. Wright](http://whyy.org/rameta/FA/FA19990520_40.ram)
     (Real Player)

@@ -34,7 +34,7 @@ evangelism and discipleship manual. It recounts many of the events
 of Jesus' life in narrative fashion and focuses significant
 attention on the final week of His passion in Jerusalem.
 
-**Multimedia**
+## Multimedia
 
 -   [Gospel of Mark](http://biblicaltraining.org/audio/NT501/nt_stein_7.mov)
     (QuickTime), by Robert Stein

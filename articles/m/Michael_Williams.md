@@ -8,7 +8,7 @@ in Saint Louis, Missouri, whose faculty he joined in 1996. He
 received his Ph.D. from the University of Toronto and is an adult
 convert to the Christian faith.
 
-**Multimedia**
+## Multimedia
 
 -   [Why I Am Not an Arminian](http://www.livingchrist360.com/thelivingroom/resourcesforlife/audio/4033/)
     (MP3)

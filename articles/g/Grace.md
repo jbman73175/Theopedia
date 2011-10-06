@@ -21,7 +21,7 @@ accept the gift of [salvation](Salvation "Salvation") through
 [Jesus Christ](Jesus_Christ "Jesus Christ")."
 [[1]](http://www.rbc.org/utmost/index.php?month=11&day=28)
 
-**Multimedia**
+## Multimedia
 
 -   [The Mercy and Grace of God](http://www.apologeticspress.org/audio/rsf1-l13.rm)
     (Real Player)

@@ -20,7 +20,7 @@ edition)
 [Bible translation](English_translations_of_the_Bible "English translations of the Bible")
 teams.
 
-**Multimedia**
+## Multimedia
 
 -   [The Temple and the Church's Mission](http://www.christreformed.org/realaudio/20070330a.mp3)
     (MP3)

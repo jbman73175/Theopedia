@@ -34,7 +34,7 @@ aspects of biblical and Reformed theology (cf. the
 raises far more serious problems than the ones which FV proponents
 claim to solve.
 
-**Multimedia**
+## Multimedia
 
 -   [The Curses of the New Covenant](http://mp3.sermonaudio.com/media/7602194425/7602194425.mp3),
     by Douglas Wilson (MP3)

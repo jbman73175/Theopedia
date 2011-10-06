@@ -23,7 +23,7 @@ the 2007 Book Award in Biblical Studies from
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [The Four Gospels and the Other Gospels: Is Our Canon Right?](http://www.netfilehost.com/wscal/GuestLectures/bauckham.07.11.14.mp3)
     (MP3), at Westminster Seminary, CA

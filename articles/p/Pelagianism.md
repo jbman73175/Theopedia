@@ -20,7 +20,7 @@ ratified at the
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Pelagianism](http://biblicaltraining.org/audio/TH620/philosophy_28.mov)
     (QuickTime), by Ron Nash

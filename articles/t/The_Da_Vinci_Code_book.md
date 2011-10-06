@@ -23,7 +23,7 @@ Church. A 2006 survey, for example, found that seventeen percent of
 Canadians "think Jesus's death on the cross was faked and that he
 married and had a family." ^[[2]](#note-1)^
 
-**Multimedia**
+## Multimedia
 
 -   [TheTruthAboutDaVinci.com Audio/Video Resources](http://www.thetruthaboutdavinci.com/resources/audiovideo.html)
 -   The DaVinci Code: Was There a Plan to Suppress "Secret"

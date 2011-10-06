@@ -1,5 +1,5 @@
 
-**Multimedia**
+## Multimedia
 
 -   Does the Bible allow for divorce in the case of adultery? -
     [Quicktime video](http://www.desiringgod.org/download.php?file=http://media.desiringgod.org/video/q_and_a/3482_does_the_bible_allow_for_divorce_in_the_case_of_adultery_high.m4v),

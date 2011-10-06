@@ -14,7 +14,7 @@ series of revivals that swept the North Atlantic Anglo-American
 world in the eighteenth and early nineteenth centuries."
 ^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [What Is Evangelicalism?](http://mp3.sa-media.com/filearea/21108149255/21108149255.mp3)
     (MP3), given 1-28-08 at Grace Fellowship Church in Toronto, by

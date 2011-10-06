@@ -32,7 +32,7 @@ The second epistle of [Peter](Peter "Peter") was written to warn
 Christians about false teachers and to exhort them to grow in their
 faith in and knowledge of Christ.
 
-**Multimedia**
+## Multimedia
 
 -   [The Authorship of 2 Peter](http://biblicaltraining.org/audio/NT502/nt2_stein_49.mov)
     (QuickTime), by Robert Stein

@@ -67,7 +67,7 @@ referred to as the [Pentateuch](Pentateuch "Pentateuch"). The
 authorship of Genesis is tied to a larger argument for the
 [Mosaic authorship of the Pentateuch](Mosaic_authorship_of_the_Pentateuch "Mosaic authorship of the Pentateuch").
 
-**Multimedia**
+## Multimedia
 
 -   [How do Genesis 1 & Genesis 2 relate?](http://www.streamload.com/rpcsermons/QandA/How%20do%20Genesis%201%20and%20Genesis%202%20relate.mp3)
     (MP3), by [Tim Keller](Tim_Keller "Tim Keller") - Understands

@@ -28,7 +28,7 @@ believer. This view does not deny that the Church has the authority
 to teach God's Word. Furthermore, while tradition is valuable, it
 but must be tested by the higher authority of the Scriptures.
 
-**Multimedia**
+## Multimedia
 
 -   The Sufficiency of Scripture,
     [part1](http://www.sbts.edu/MP3/Mohler/20060325mohler03.mp3),

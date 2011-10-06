@@ -11,7 +11,7 @@ Fellowship of European Evangelical Theologians. Marshall is
 generally [Arminian](Arminianism "Arminianism") in his theology and
 an astute exegete.
 
-**Multimedia**
+## Multimedia
 
 -   [F.F. Bruce Lecture at Highland Theological College, 2004](http://www.htc.uhi.ac.uk/audlist/ffbruce2004.mp3)
     (MP3)

@@ -6,7 +6,7 @@ Routledge in 1999: *Radical Orthodoxy: A New Theology*, edited by
 [John Milbank](index.php?title=John_Milbank&action=edit&redlink=1 "John Milbank (page does not exist)"),
 Catherine Pickstock and Graham Ward." ^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [Radical Orthodoxy](http://www.theologyphilosophycentre.co.uk/docs/mp3/ideas_20070604_2421.mp3)
     (Quicktime), a podcast with John Milbank and Catherine Pickstock

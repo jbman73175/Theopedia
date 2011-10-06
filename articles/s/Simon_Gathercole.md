@@ -13,7 +13,7 @@ Drawn from his dissertation, his book *Where is Boasting?* (2002)
 was a critique of the New Perspective on Paul, and focused on
 Second-Temple Judaism and Romans 1-5.
 
-**Multimedia**
+## Multimedia
 
 **Gheens Lectures at Southern Baptist Theological Seminary (2004)**
 

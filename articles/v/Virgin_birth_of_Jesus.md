@@ -1,7 +1,7 @@
 *This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
 
 
-**Multimedia**
+## Multimedia
 
 -   [The Virgin Birth](http://vimeo.com/8392233) (Vimeo video), by
     Michael Heiser

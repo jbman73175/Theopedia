@@ -22,7 +22,7 @@ which met to address the points raised by the
 
 
 
-**Multimedia**
+## Multimedia
 
 -   TULIP - The Pursuit of God's Glory in Salvation (MP3s), by
     [John Piper](John_Piper "John Piper") -

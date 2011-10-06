@@ -18,7 +18,7 @@ This doctrine should not be confused with the Lutheran doctrine of
 [Consubstantiation](Consubstantiation "Consubstantiation").
 
 
-**Multimedia**
+## Multimedia
 
 -   [James White on Transubstantiation](http://www.youtube.com/watch?v=q6SUtFCZQpA)
     (YouTube)

@@ -19,7 +19,7 @@ volume set, *The Rational Biblical Theology of Jonathan Edwards*.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   Interview with John Gerstner
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051028.m3u),

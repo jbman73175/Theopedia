@@ -47,7 +47,7 @@ rapture is secret or public is a separate issue. The timing of the
 rapture is associated with a final period of
 [Tribulation](Tribulation "Tribulation") anticipated by Scripture.
 
-**Multimedia**
+## Multimedia
 
 -   [Are You Ready?](http://www.youtube.com/watch?v=OotdWw_W-14)
 

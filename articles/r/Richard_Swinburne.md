@@ -18,7 +18,7 @@ Nolloth Professor of the Philosophy of the Christian Religion from
 series of influential works, without doubt changing the face of the
 [philosophy of religion](Philosophy_of_religion "Philosophy of religion").
 
-**Multimedia**
+## Multimedia
 
 -   [The Historical Evidence for the Resurrection](http://www.blackhawkmedia.org/MP3/Swinburne3.mp3)
     (MP3)

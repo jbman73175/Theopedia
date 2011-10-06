@@ -16,7 +16,7 @@ Classics as an undergraduate at the University of Edinburgh. He
 completed his doctorate in 1946 under the supervision of
 [Karl Barth](Karl_Barth "Karl Barth") at the University of Basel.
 
-**Multimedia**
+## Multimedia
 
 -   [T. F. Torrance Audio Lectures](http://faith-theology.blogspot.com/2007/02/audio-lectures-by-t-f-torrance.html)
 

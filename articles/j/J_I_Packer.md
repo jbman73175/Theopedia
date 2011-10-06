@@ -11,7 +11,7 @@ as the Board of Governors' Professor of Theology at
 British Columbia. He is considered to be one of the most important
 evangelical theologians of the late 20th century.
 
-**Multimedia**
+## Multimedia
 
 -   [The Glory of God and the Reviving of Religion](http://www.archive.org/download/AGod-EntrancedVisionofAllThings/J.I.Packer.TheGloryofGodandtheRevivingofReligion.mp3)
     (MP3)

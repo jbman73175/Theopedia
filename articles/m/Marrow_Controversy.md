@@ -4,7 +4,7 @@ influential books in the history of the
 was written by E. F. usually attributed to Edward Fisher and is a
 book about the relationship between the law and the gospel.
 
-**Multimedia**
+## Multimedia
 
 -   [The Free Offer and The Marrow Controversy](http://www.falkirkfreechurch.com/sermons#FreeOffer)
     (MP3), by Sinclair B. Ferguson and others

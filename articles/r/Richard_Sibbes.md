@@ -8,7 +8,7 @@ in Cambridge, and that he was ultimately converted under the
 ministry of Perkins' successor,
 [Paul Baynes](Paul_Baynes "Paul Baynes").
 
-**Multimedia**
+## Multimedia
 
 -   [The Evangelical Church, Richard Sibbes, and the Sufficiency of Scripture](http://www.sbts.edu/MP3/gheens2002/001Dever02_25_02.mp3)
     by Mark Dever (MP3)

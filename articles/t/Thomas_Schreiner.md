@@ -21,7 +21,7 @@ published several books on the subject, including
 (2001), and a commentary on Romans in the
 *Baker Exegetical Commentary on the New Testament* series (1998).
 
-**Multimedia**
+## Multimedia
 
 -   [Clifton Baptist Church sermons](http://cliftonbaptist.worshiporganizer.com/index.php?sermons=1)
 -   [Believer's Baptism](http://www.reclaimingthemind.org/content/files/CWS/tomschreinerbelieversbaptism.mp3)

@@ -15,7 +15,7 @@ superficial; they all lead to the same goal. This is the epitome of
 tolerance and relativism."
 [[1]](http://www.northave.org/MGManual/JesusOnly/Savior1.htm)
 
-**Multimedia**
+## Multimedia
 
 -   [Pluralism Lectures](http://www.veritas.org/3.0_media/topics/34)
     (The Veritas Forum)

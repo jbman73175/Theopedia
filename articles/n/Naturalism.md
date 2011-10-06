@@ -29,7 +29,7 @@ probability that our cognitive faculties are reliable given
 naturalistic evolution is low, and as such we have an defeater for
 naturalism.
 
-**Multimedia**
+## Multimedia
 
 -   [Can Science Know the Mind of God? The Case Against Naturalism](http://www.veritas.org/mediafiles/VT-Johnson%20UCSB.mp3),
     (MP3) by Phillip Johnson

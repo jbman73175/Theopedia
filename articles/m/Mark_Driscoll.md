@@ -19,7 +19,7 @@ least churched cities.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Video sermons](http://video.google.com/videosearch?q=mark+driscoll)
 -   [Mars Hill Church Podcast Feed](http://feeds.marshillchurch.org/feed/featuredaudio/rss.xml/)

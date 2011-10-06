@@ -2,7 +2,7 @@ The **early church** is a term that commonly refers to the time
 period after the death of [Jesus](Jesus "Jesus") (c. 30 AD) to 600
 AD.
 
-**Multimedia**
+## Multimedia
 
 -   [Ancient and Medieval Church History](http://worldwide-classroom.com/courses/info/ch310/)
     (MP3s), by David Calhoun

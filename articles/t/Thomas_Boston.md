@@ -49,7 +49,7 @@ in 1849.
 -   *This article incorporates text from the 1911 Encyclopædia Britannica, now in the public domain.*
 -   *This article incorporates public domain text from: Cousin, John William (1910). A Short Biographical Dictionary of English Literature. London, J.M. Dent & sons; New York, E.P. Dutton.*
 
-**Multimedia**
+## Multimedia
 
 -   [Thomas Boston - audio lecture, Falkirk, Scotland](http://www.falkirkfreechurch.com/sermons#Scots)
 

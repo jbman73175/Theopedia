@@ -32,7 +32,7 @@ encourage him in his Christian life.
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [Why Go to all the Trouble?--The Message of 3 John](http://resources.christianity.com/details/hbc/19950618/996704ED-3BE4-4109-9C49-B79B71A34864.aspx)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")

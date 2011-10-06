@@ -30,7 +30,7 @@ Trinity Forum was built upon Berger's remark-as well as upon the
 historical precedents set by William Wilberforce."
 [[1]](http://www.leaderu.com/marshill/mhr08/os1.html)
 
-**Multimedia**
+## Multimedia
 
 -   [Time for Truth](http://www.veritas.org/download/media/VT-Guinness%20UCLA.mp3)
     (mp3)

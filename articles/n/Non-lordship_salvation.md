@@ -39,7 +39,7 @@ John MacArthur notes that, "Apparently, no-lordship doctrine no
 longer dominates Dallas Seminary the way it once did, but
 controversy over the issue is by no means dead."^[[3]](#note-2)^
 
-**Multimedia**
+## Multimedia
 
 **Sermons on Romans 7, taking the Divided Man as a Believer**
 

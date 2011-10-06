@@ -13,7 +13,7 @@ Christians use it to describe the basic
 teaching of the [Bible](Bible "Bible"). In this sense it represents
 the content of the Christian faith.
 
-**Multimedia**
+## Multimedia
 
 -   [Introduction to Christian Doctrine](http://www.rfmedia.org/RF_audio_video/Defender_podcast/IntroductiontoChristianDoctrine.mp3)
     (MP3), by

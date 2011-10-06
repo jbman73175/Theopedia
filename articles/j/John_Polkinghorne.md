@@ -13,7 +13,7 @@ become a leading spokesman for the faith among serious scientists.
 He became a Fellow of the Royal Society in 1974, and was appointed
 KBE (Knight Commander of the order of the British Empire) in 1997.
 
-**Multimedia**
+## Multimedia
 
 -   [PBS Interview with John Polkinghorne](http://publicradio.org/tools/media/player/speakingoffaith/20050310_quarks)
 

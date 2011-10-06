@@ -26,7 +26,7 @@ are not dealing with an Attribute of God at all, but with the fact
 that the idea of the Absolute permits no differentiations.'
 "^[[3]](#note-2)^
 
-**Multimedia**
+## Multimedia
 
 -   [God without Parts: The Doctrine of Divine Simplicity](http://www.youtube.com/watch?v=-davnzphHdc&feature=feedf),
     by James Dolezal

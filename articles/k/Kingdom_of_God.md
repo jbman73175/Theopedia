@@ -35,7 +35,7 @@ them the happiness and the fellowship of the Kingdom (Luke
 in glory to bring the blessedness of the Kingdom to those for whom
 it was prepared (Matt. 25:31, 34)." ^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [What the Kingdom of God is Like](http://www.reformedsermons.org/mp3-16/Schuster_Mark_4_21-34.mp3)
     (MP3) Leo R. Schuster III

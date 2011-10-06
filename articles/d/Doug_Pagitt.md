@@ -25,7 +25,7 @@ now-shunning-'emergent' pastor
 Grand Rapids: Zondervan, 2006), and from others such as
 [Apprising Ministries](http://www.apprising.org/archives/2006/07/doug_pagitt_doe.html).
 
-**Multimedia**
+## Multimedia
 
 -   [Interview with Todd Friel on Way of the Master Radio](http://podcast.wayofthemasterradio.com/audio/podcasts/1007/WOTMR-10-22-07-Hour1.mp3)
     (MP3) - Transcript available [here](http://www.vibist.com/?p=26)

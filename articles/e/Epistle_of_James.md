@@ -41,7 +41,7 @@ written to Jewish Christians of the first century A.D. living in
 gentile communities outside Palestine, in an effort to expose
 hypocritical practices and to teach right Christian behavior.
 
-**Multimedia**
+## Multimedia
 
 -   [James](http://biblicaltraining.org/audio/NT502/nt2_stein_46.mov)
     (QuickTime), by Robert Stein

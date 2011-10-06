@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   1 and 2 Timothy
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051022.m3u),

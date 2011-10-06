@@ -14,7 +14,7 @@ He is currently adjunct professor of Christian Apologetics at
 [weekly radio program](http://www.kbrt740.com/) on ethics, values,
 and religion.
 
-**Multimedia**
+## Multimedia
 
 **Podcasts**
 

@@ -16,7 +16,7 @@ President of the
 [Evangelical Theological Society](Evangelical_Theological_Society "Evangelical Theological Society")
 (2000-2001).
 
-**Multimedia**
+## Multimedia
 
 -   [Breaking The DaVinci Code](http://www.euroleadershipresources.org/Media/Audio/Dr_Darrell_Bock-Breaking_the_DaVinci_Code-2005-06-13-1600-C.mp3)
     (mp3)

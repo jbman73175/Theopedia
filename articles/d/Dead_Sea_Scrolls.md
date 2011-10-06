@@ -6,7 +6,7 @@ Dead Sea. The texts are of great significance in a religious
 context as they contain biblical documents dating from before AD
 100.
 
-**Multimedia**
+## Multimedia
 
 -   [The Dead Sea Scrolls and Their Significance for Christianity](http://www.swbts.edu/faculty/jhamilton/documents/dss_lecture.mp3)
     (MP3), by Jim Hamilton

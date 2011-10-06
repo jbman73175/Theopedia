@@ -9,7 +9,7 @@ College from 2001-2005. Prior to these positions, he was Professor
 of the History and Philosophy of Religion, King's College, London,
 from 1993-2000. Helm earned his BA and MA from Oxford.
 
-**Multimedia**
+## Multimedia
 
 -   [John Calvin: What's the Big Idea?](http://www.htc.uhi.ac.uk/audlist/jnmurray2007.mp3)
     (MP3)

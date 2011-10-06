@@ -17,7 +17,7 @@ alluded to in every NT writing except
 [Philemon](Epistle_to_Philemon "Epistle to Philemon") and 2 and 3
 John."^[[2]](#note-1)^
 
-**Multimedia**
+## Multimedia
 
 -   [Use of the OT in the NT, 3 part series](http://www.euroleadershipresources.org/resource.php?ID=242&Tab=AudioDownload),
     (MP3) by [D.A. Carson](D.A._Carson "D.A. Carson")

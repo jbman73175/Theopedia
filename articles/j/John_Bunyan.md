@@ -8,7 +8,7 @@ Bunyan is best known today as the author of
 *The Pilgrim's Progress*, the most successful allegory ever
 written.
 
-**Multimedia**
+## Multimedia
 
 -   [To Live Upon God That is Invisible: Suffering and Service in the Life of John Bunyan](http://www.archive.org/download/MenOfWhomTheWorldWasNotWorthy/12_bunyan.mp3)
     (MP3), by [John Piper](John_Piper "John Piper") - Devotional

@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [Knowing God: The Message of 2 Thessalonians](http://mp3.christianity.com/mp3/mp3repos32/IEBBWWE/1_298_DrMarkDever__KnowingGodTheMessageof2Thessalonians.32.mp3)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")

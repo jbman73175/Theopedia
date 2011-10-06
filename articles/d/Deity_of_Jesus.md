@@ -46,7 +46,7 @@ deity dwells bodily" (Col. 2:9; ESV).
 > }}
 
 
-**Multimedia**
+## Multimedia
 
 -   [Where Did the NT Writers Get the Idea of Jesus as Co-Creator?](http://vimeo.com/8101130)
     (Flash video), by Michael Heiser

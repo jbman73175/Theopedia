@@ -5,7 +5,7 @@ work — not only in the atonement of Christ, but even granting the
 faith which unites us to Christ and brings us into the salvation
 provided by his atonement.
 
-**Multimedia**
+## Multimedia
 
 -   Glory to God Alone: Part 1
     ([Real Audio](http://broadcast.ligonier.org/playlists/rym20051110.m3u),

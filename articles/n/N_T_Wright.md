@@ -21,7 +21,7 @@ counters the
 [heresy](Heresy "Heresy") that is popular among some liberal
 factions.
 
-**Multimedia**
+## Multimedia
 
 **By N.T. Wright**
 

@@ -22,7 +22,7 @@ eternal nature.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Attributes of God: How Old Is God?, or the Eternity of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/092_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

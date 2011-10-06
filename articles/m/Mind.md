@@ -1,4 +1,4 @@
-**Multimedia**
+## Multimedia
 
 -   [The Christian Mind](http://www.reclaimingthemind.org/Audio/JPMorelandBootleg.mp3),
     by [J.P. Moreland](J.P._Moreland "J.P. Moreland") (MP3)

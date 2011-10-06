@@ -7,7 +7,7 @@ Virginia, the University of St. Thomas (Minnesota), Duke Divinity
 School, and Loyola College in Maryland. He was trained at the
 University of Cambridge and the University of Virginia.
 
-**Multimedia**
+## Multimedia
 
 -   [The Hidden Manifest of God](http://www.calvin.edu/faith/discipleship/fac_events/2007-2008/A14420-Hart-Hidden%20Manifest%20God.mp3)
     (MP3)

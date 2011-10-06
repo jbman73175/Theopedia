@@ -9,7 +9,7 @@ immigrated to Canada with his family twenty years later. He
 received a Master of Divinity from Trinity International University
 in Deerfield, Illinois.
 
-**Multimedia**
+## Multimedia
 
 **Podcasts**
 

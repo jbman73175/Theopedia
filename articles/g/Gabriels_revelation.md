@@ -5,7 +5,7 @@ B.C.^[[1]](#note-AdaYardeniArticle)^ The name,
 character named "Gabriel" who speaks in the first person.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Gabriel's Revelation](http://www.rfmedia.org/blog/audio/rf_audiocast-2008-07-09-61966.mp3),
     by [William Lane Craig](William_Lane_Craig "William Lane Craig")

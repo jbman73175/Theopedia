@@ -8,7 +8,7 @@ Western society's and modern Europe's most influential thinkers and
 the last major philosopher of the
 [Enlightenment](Enlightenment "Enlightenment").
 
-**Multimedia**
+## Multimedia
 
 Kant moved beyond both
 [empiricism](http://www.wikipedia.org/wiki/Empiricism "wikipedia:Empiricism")

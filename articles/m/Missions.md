@@ -20,7 +20,7 @@ other strictly cultural expressions of Christianity that can be
 changed and adapted to a different culture.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Biblical Missiology](http://theresurgence.com/files/audio/jeff_vanderstelt_2008-02-27_audio_tnc_biblical_missiology.mp3)
     (MP3), by Jeff Vanderstelt (Resurgence National Conference, 2008)

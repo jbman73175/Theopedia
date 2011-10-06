@@ -8,7 +8,7 @@ Evangelicals in public life, and so rededicate ourselves to the
 high calling of being Evangelical followers of Jesus Christ."
 ^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 -   [Richard Mouw on the Manifesto: NPR](http://www.npr.org/templates/story/story.php?storyId=90252763)
 

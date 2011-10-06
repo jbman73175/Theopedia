@@ -18,7 +18,7 @@ Hitchens), *Letter to a Christian Nation* (Sam Harris), and
 *Breaking the Spell: Religion as a Natural Phenomenon* (Daniel
 Dennett).
 
-**Multimedia**
+## Multimedia
 
 -   [A New Atheism](http://broadcast.ligonier.org/podcast-media/rym20080704.mp3),
     by [R. C. Sproul](R._C._Sproul "R. C. Sproul") (July 4, 2008)

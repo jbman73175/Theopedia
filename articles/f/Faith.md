@@ -16,7 +16,7 @@ in the phrase "But the principal acts of saving faith are
 justification, sanctification, and eternal life, by virtue of the
 covenant of grace," (WCF 14.2).
 
-**Multimedia**
+## Multimedia
 
 -   [What Is Faith?, or What Does It Mean to Believe?](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/050_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

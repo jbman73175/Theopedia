@@ -2,7 +2,7 @@
 of ending one's own life.
 
 
-**Multimedia**
+## Multimedia
 
 -   [Suicide](http://dentonbible.org/realaudio/728-030297-SUICIDE.rm)
     (Real Audio), by Tom Nelson

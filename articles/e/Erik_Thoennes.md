@@ -6,7 +6,7 @@ Studies and Theology at Talbot School of Theology at
 [Biola University](Biola_University "Biola University") in La
 Mirada, CA.
 
-**Multimedia**
+## Multimedia
 
 -   [Grace EV Free :: Sermon Audio](http://www.graceevfree.org/ToolsforGrowth/SermonAudio/tabid/62/Default.aspx)
 -   [Oprah's Gospel. Good questions. Wrong answer. (PT2)](http://www.haventoday.org/prevbroadcast/1588)

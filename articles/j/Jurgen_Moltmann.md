@@ -10,7 +10,7 @@ insights from
 [liberation theology](Liberation_theology "Liberation theology")
 and ecology into mainstream trinitarian theology.
 
-**Multimedia**
+## Multimedia
 
 **Recordings from Society for Pentecostal Studies and the Wesleyan Theological Society, 2008**
 

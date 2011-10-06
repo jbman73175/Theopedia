@@ -31,7 +31,7 @@ most things “fall out” according to the functioning of impersonal
 and unchangeable laws."^[[1]](#note-0)^
 
 
-**Multimedia**
+## Multimedia
 
 -   [Providence in Calvin's Institutes](http://covenantseminary.inmotionhosting.com/CH523_Lecture_06.mp3)
     (MP3), by David Calhoun

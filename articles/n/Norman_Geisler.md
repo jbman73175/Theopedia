@@ -19,7 +19,7 @@ Ph.D. in philosophy from Loyola University (1970). Dr. Geisler is
 former president of Southern Evangelical Seminary, which he
 co-founded with Ross Rhoads in 1992.
 
-**Multimedia**
+## Multimedia
 
 -   [The Mind of Atheism](http://www.mcilwain.org/realaudio/1999RM/12-NR.ram)
     (Real Audio)

@@ -14,7 +14,7 @@ Church and the Russian Orthodox Church and it has a presence in
 many countries, with large communities in the USA and Australia.
 
 *For more in-depth discussion on Eastern Orthodoxy and its beliefs, see [Eastern Orthodoxy](http://en.wikipedia.org/wiki/Eastern_Orthodoxy) at Wikipedia.*
-**Multimedia**
+## Multimedia
 
 -   [Eastern Orthodoxy](http://covenantseminary.inmotionhosting.com/CH310_Lecture_23.mp3)
     (MP3), by David Calhoun

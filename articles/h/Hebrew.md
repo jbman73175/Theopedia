@@ -8,7 +8,7 @@ and its commentaries. Jews usually learn it when studying ancient
 scriptures. It is also studied by linguistic scholars and
 historians.
 
-**Multimedia**
+## Multimedia
 
 -   [Hebrew Bible: Audio Tracks](http://www.aoal.org/hebrew_audiobible.htm#Genesis)
 

@@ -31,7 +31,7 @@ or birthdays, voting, saluting the flag, working in the military,
 accepting blood transfusions, or becoming involved in social,
 religious, or political conflicts.
 
-**Multimedia**
+## Multimedia
 
 -   [Jehovah's Witnesses](http://sguthrie.net/audio/jwitness.ram),
     (Real Media) by Shandon Guthrie

@@ -25,7 +25,7 @@ have the choice to let Satan run over you, or use the authority you
 have been given. Good gifts come from God. No matter what tradition
 has taught, sickness and disease simply don't fall into the
 category of good gifts---ever."^[[2]](#note-1)^
-**Multimedia**
+## Multimedia
 
 #### Critical
 

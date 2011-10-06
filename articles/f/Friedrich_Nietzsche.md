@@ -15,7 +15,7 @@ and [postmodernism](Postmodernism "Postmodernism"). His thought is,
 on many accounts, most difficult to comprehend in any systemized
 form and remains a vivacious topic for debate.
 
-**Multimedia**
+## Multimedia
 
 -   Renewing Your Mind: "Nietzsche"
     ([Real](http://riven.ligonier.org/playlists/rym20041123.m3u)

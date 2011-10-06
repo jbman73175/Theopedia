@@ -11,7 +11,7 @@ under persecution) should be allowed in the church. They were
 opposed by
 [Augustine of Hippo](Augustine_of_Hippo "Augustine of Hippo").
 
-**Multimedia**
+## Multimedia
 
 -   [Donatism](http://covenantseminary.inmotionhosting.com/CH310_Lecture_11.mp3)
     (MP3), by David Calhoun

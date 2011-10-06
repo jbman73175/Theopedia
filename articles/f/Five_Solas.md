@@ -18,7 +18,7 @@ writings of the 16th century Reformers, either explicitly or
 implicitly, but they are not found presented as a list *per se*. It
 is most likely the list of Solas came about later.^[[1]](#note-0)^
 
-**Multimedia**
+## Multimedia
 
 **Michael Ross Series (MP3s)**
 

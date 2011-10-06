@@ -6,7 +6,7 @@ Atlanta and offers these talks and other resources free online at
 doctrines, apologetics and even modern literature captivate and
 encourage and are valuable for people involved in ministry.
 
-**Multimedia**
+## Multimedia
 
 -   [The Gospel of John Study (Part 8)](http://www.kenboa.org/mp3file.php?file=5911)
     (MP3)

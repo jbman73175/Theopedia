@@ -18,7 +18,7 @@ history of Tyndale House. He also retains his position as an
 honorary Senior Lecturer in Biblical Studies at the University of
 Aberdeen.
 
-**Multimedia**
+## Multimedia
 
 -   [Williams debates Bart Ehrman - Can we trust Scripture?](http://www.brianauten.com/Apologetics/ehrman-williams-unbelievable.mp3)
     (MP3)

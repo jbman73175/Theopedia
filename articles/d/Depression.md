@@ -1,5 +1,5 @@
 
-**Multimedia**
+## Multimedia
 
 -   [A Christian Looks at Depression](http://www.dts.edu/media/play/?MediaItemID=6db48678-0bfc-4b68-bb02-578cb5f41c70),
     by [Tom Nelson](Tom_Nelson "Tom Nelson")

@@ -22,7 +22,7 @@ The **Great Flood** refers to the deluge described in
 on mankind and the account of [Noah](Noah "Noah") and the
 [Ark](Noah's_Ark "Noah's Ark").
 
-**Multimedia**
+## Multimedia
 
 -   [Does human genetic evidence support Noah's flood?](http://www.reasons.org/resources/multimedia/rtbvideo/flood.html),
     by Fazale Rana (Flash video)

@@ -38,7 +38,7 @@ Man is most free in [heaven](Heaven "Heaven"), where he is morally
 unable to sin. True freedom isn't freedom *to* sin, but freedom
 *from* sin.
 
-**Multimedia**
+## Multimedia
 
 -   [Explaining Free Will and Calvinism](http://www.podtrac.com/pts/redirect.mp3?http://www.strcast.org/podcast/weekly/070608.mp3),
     Stand to Reason Weekly Podcast by Greg Koukl

@@ -46,7 +46,7 @@ concerned for the welfare of our immortal interests, flee to the
 refuge set before us, improve our precious time, depend on the
 merits of the Redeemer, and adhere to the dictates of the divine
 word, that we may be found of him in peace." ^[[1]](#note-0)^
-**Multimedia**
+## Multimedia
 
 -   [How salvation is according to works but not based on them](http://www.desiringgod.org/download.php?file=http://www.desiringgod.org/media/audio/1993/19930801_excerpt.mp3)
     (MP3), by John Piper - excerpt from

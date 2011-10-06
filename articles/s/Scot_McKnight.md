@@ -15,7 +15,7 @@ throughout the United States.^[[1]](#note-0)^ McKnight is also an
 advocate of the controversial
 [New Perspective on Paul](New_Perspective_on_Paul "New Perspective on Paul").
 
-**Multimedia**
+## Multimedia
 
 -   [The Story of the Gospel](http://media.gospelcom.net/iv/gfm/07/mcknight-070308.mp3)
     (MP3)

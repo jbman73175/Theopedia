@@ -14,7 +14,7 @@ based on their behavior during life.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   [Hinduism: a Case Study](http://hisdefense.org/LinkClick.aspx?link=Audio/Hazen+-+3+Hinduism+a+Case+Study.ram&tabid=136&mid=955),
     (Real Media) by Craig Hazen

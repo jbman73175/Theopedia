@@ -23,7 +23,7 @@ under the supervision of
 Baptist". Grenz suddenly passed away on March 12th, 2005 due to a
 brain hemorrhage.
 
-**Multimedia**
+## Multimedia
 
 -   [The Social God and the Relational Self](http://ibri.org/MP3/IC-014.mp3)
     (MP3)

@@ -15,7 +15,7 @@ attest to this idea (e.g. Num. 23:19; 1 Sam. 15:29; Ps. 102:26;
 Mal. 3:6; 2 Tim. 2:13; Heb. 6:17-18; Jam. 1:17)."
 [[2]](http://www.thirdmill.org/answers/answer.asp/file/99788.qna/category/th/page/questions/site/iiim)
 
-**Multimedia**
+## Multimedia
 
 -   [The Repentance and the Unchangeability of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/093_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

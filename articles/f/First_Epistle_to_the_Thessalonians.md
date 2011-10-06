@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [The Second Coming: The Message of 1 Thessalonians](http://dl.salemweb.net/?mg=D024AF6D-6BCE-4866-9556-47E77A328AB1)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")

@@ -17,7 +17,7 @@ Christianity and who has not engaged with the works of James D. G.
 Dunn is not really interested in the rigorous study of early
 Christianity." ^[[2]](#note-1)^
 
-**Multimedia**
+## Multimedia
 
 -   [An Evening Conversation on Jesus](http://www.dur.ac.uk/kevin.bywater/DunnWrightA.mp3),
     with [N.T. Wright](N.T._Wright "N.T. Wright") (mp3)

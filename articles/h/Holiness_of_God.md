@@ -4,7 +4,7 @@ and distinct from all impurity. The term holiness in Hebrew,
 one-of-kindness as it were." -
 [Bruce Ware](Bruce_Ware "Bruce Ware")
 
-**Multimedia**
+## Multimedia
 
 -   [The Holiness of God, or the Attribute of the Attributes](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/100_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

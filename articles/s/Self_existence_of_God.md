@@ -1,6 +1,6 @@
 "I am who I am" -Exodus 3:14
 
-**Multimedia**
+## Multimedia
 
 -   [Attributes of God: Where Did God Come From?, or the Self-Existence of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/088_SLJ_69_32K.mp3)
     (MP3), by S. Lewis Johnson

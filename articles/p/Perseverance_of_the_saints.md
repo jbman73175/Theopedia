@@ -26,7 +26,7 @@ discipline as a Father).
 See
 [Westminster Confession of Faith, Chapter 17](http://www.reformed.org/documents/wcf_with_proofs/).
 
-**Multimedia**
+## Multimedia
 
 -   Perseverance of the Saints:
     [MP3](http://www.desiringgod.org/download.php?file=http://cdn.desiringgod.org/audio/seminars/2008_TULIP/20080315_8.mp3),

@@ -14,7 +14,7 @@ seek to thwart the purpose of God primarily through tempting
 humanity away from a moral existence founded in dependence on God
 to a self-centered, amoral lifestyle.
 
-**Multimedia**
+## Multimedia
 
 -   [The Devil](http://www.trinitylectures.org/MP3/The_Devil.mp3),
     by John Robbins (MP3)

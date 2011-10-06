@@ -83,7 +83,7 @@ period before Christ came, when God's people belonged to the
 Testament" would probably be "Old Covenant", while some also prefer
 "First Testament."
 
-**Multimedia**
+## Multimedia
 
 -   [Open Forum on Difficult Old Testament Passages](http://maclaurin.org/mp3s/open_forum_on_difficult_ot_passages.mp3),
     by [Walter Kaiser](Walter_Kaiser "Walter Kaiser") (mp3)

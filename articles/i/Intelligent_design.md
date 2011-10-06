@@ -42,7 +42,7 @@ and advisory board member at IDEA.
 
 
 
-**Multimedia**
+## Multimedia
 
 -   The Fine Tuning Argument -
     [Part 1](http://www.youtube.com/watch?v=iPoilATRfWw),

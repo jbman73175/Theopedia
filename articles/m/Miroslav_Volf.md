@@ -14,7 +14,7 @@ and a Doctorate of Theology from the University of Tübingen,
 Tübingen, Germany where he studied under
 [Jürgen Moltmann](Jürgen_Moltmann "Jürgen Moltmann").
 
-**Multimedia**
+## Multimedia
 
 -   [Faith and Globalization](http://deimos3.apple.com/WebObjects/Core.woa/Browse/yale.edu.1335931192.01335931201.1811816435?i=2145701584)
     (iTunes U)

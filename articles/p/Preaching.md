@@ -4,7 +4,7 @@ good news centered around the themes of Jesus, Christ, the word,
 the gospel, and the kingdom."
 [[1]](http://www.biblicaltheism.com/0402biblicaldistinction.htm)
 
-**Multimedia**
+## Multimedia
 
 -   [Preaching Apocalyptic Literature](http://theologica.blogspot.com/2009/06/preaching-apocalyptic-literature.html)
     (MP3s), a workshop at College Church, Wheaton, IL

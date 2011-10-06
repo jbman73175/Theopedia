@@ -28,7 +28,7 @@
 -   [Jude](Epistle_of_Jude "Epistle of Jude")
 -   [Revelation](Book_of_Revelation "Book of Revelation")
 
-**Multimedia**
+## Multimedia
 
 -   [1 Peter Narrated in the ESV](http://www.gnpcb.org/esv/share/audio/smil.php?passage=Philemon)
     (Real Audio), by Marquis Laughlin

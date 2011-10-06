@@ -5,7 +5,7 @@ Francis Chan
 Valley, CA where he has served for thirteen years. He is also the
 President of Eternity Bible College.
 
-**Multimedia**
+## Multimedia
 
 -   [Francis Chan sermons](http://www.cornerstonesimi.com/getasermon)
 
