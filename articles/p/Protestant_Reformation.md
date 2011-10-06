@@ -40,6 +40,8 @@ Protestant denominations of today.
 
 ## Precursors to the Reformation
 
+### John Wycliffe
+
 [John Wycliffe](John_Wycliffe "John Wycliffe") (1330–84) attacked
 what he saw as corruptions within the church, including the sale of
 indulgences, pilgrimages, the excessive veneration of saints, and
@@ -56,6 +58,8 @@ upon to interpret the Bible for themselves. The Lollards also
 argued against clerical celibacy, transubstantiation, mandatory
 oral confession, pilgrimages, and indulgences.
 
+### John Huss
+
 [John Huss](John_Huss "John Huss") (1369–1415) — A Bohemian priest,
 excommunicated in 1410, and burned at the stake for heresy in 1415.
 His death lead to the Hussite Wars in Bohemia. Huss followed
@@ -68,6 +72,8 @@ official, is the true head of the church.
 
 ## Prominent figures in the Reformation
 
+### Martin Luther
+
 [Martin Luther](Martin_Luther "Martin Luther") (1483–1546) — In
 1517, nails his [95 Theses](95_Theses "95 Theses") onto a
 Wittenberg Church door. These theses were Latin propositions
@@ -75,10 +81,14 @@ opposing the manner in which indulgences (release from the temporal
 penalties for sin through the payment of money) were being sold in
 order to raise money for the building of Saint Peter's in Rome.
 
+### Huldreich Zwingli
+
 [Huldreich Zwingli](Huldreich_Zwingli "Huldreich Zwingli")
 (1484–1531) — Swiss theologian and leader of early Reformation
 movements in Switzerland. Vigorously denounces the sale of
 indulgences in 1518.
+
+### John Calvin
 
 [John Calvin](John_Calvin "John Calvin") (1509–64) — Calvin was a
 French theologian and reformer who fled religious persecution in
@@ -91,12 +101,16 @@ faith to children, and the enforcement of a strict moral discipline
 in the community by the pastors and members of the church. Geneva
 was, under Calvin, essentially a theocracy.
 
+### John Knox
+
 [John Knox](John_Knox "John Knox") (1513–1572) — An ardent disciple
 of Calvin, Knox established Calvinistic Protestantism as the
 national religion of Scotland. He left a powerful political legacy
 within the Calvinist or Reformed branch of Protestantism, a
 political legacy known as
 [Presbyterianism](Presbyterian "Presbyterian").
+
+### Henry VIII
 
 [Henry VIII](http://www.wikipedia.org/wiki/Henry_VIII "wikipedia:Henry VIII")
 (1491–1547) — In 1533, Henry was excommunicated by the pope for
