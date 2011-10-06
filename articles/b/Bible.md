@@ -6,7 +6,7 @@ ancient writings [inspired](Inspiration "Inspiration") by
 [New Testament](New_Testament "New Testament"). Christians often
 refer to the Bible as "Scripture", "the Scriptures" or "Holy
 Scripture" indicating its authority.
-
+ 
 ##Multimedia
 
 -   [Why We Believe The Bible](http://www.desiringgod.org/ResourceLibrary/Seminars/1722_Why_We_Believe_the_Bible/)
