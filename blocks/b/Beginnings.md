@@ -1,4 +1,4 @@
-Beginnings
+* Beginnings
 	- [Genesis](Genesis)
 	- [Creation](Creation)
 	- [Creation out of nothing](Creation out of nothing)
