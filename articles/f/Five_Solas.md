@@ -32,12 +32,14 @@ is most likely the list of Solas came about later.^[[1]](#note-0)^
 -   [Soli Deo Gloria](http://www.reformedsermons.org/mp3-16/Ross_Isa42_1to25.mp3)
 -   [Sola Gratia: Grace Alone](http://www.reformedsermons.org/mp3-16/Ross_Eph2_1to10.mp3)
 
+## Summary teachings
+
 The following summary of the Five Solas is adapted from the modern
 restatement in
 [The Cambridge Declaration of the Alliance of Confessing Evangelicals](The_Cambridge_Declaration_of_the_Alliance_of_Confessing_Evangelicals "The Cambridge Declaration of the Alliance of Confessing Evangelicals")
 (1996):
 
-## Faith alone (*Sola Fide*)
+### Faith alone (*Sola Fide*)
 
 [Justification](Justification "Justification") is by grace alone
 through faith alone because of Christ alone. In justification
@@ -49,7 +51,8 @@ claiming to be a church that denies or condemns sola fide can be
 recognized as a legitimate church.
 
 *See main article: [Faith alone](Faith_alone "Faith alone")*
-## Scripture alone (*Sola Scriptura*)
+
+### Scripture alone (*Sola Scriptura*)
 
 The inerrant Scripture (the Bible) is the sole source of written
 divine revelation, which alone can bind the conscience. The Bible
@@ -61,7 +64,8 @@ of or contrary to what is set forth in the Bible, or that personal
 spiritual experience can ever be a vehicle of revelation.
 
 *See main article: [Scripture alone](Scripture_alone "Scripture alone")*
-## Christ alone (*Solus Christus*)
+
+### Christ alone (*Solus Christus*)
 
 Our salvation is accomplished by the mediatorial work of the
 historical Christ alone. His sinless life and substitutionary
@@ -71,7 +75,8 @@ preached if Christ's substitutionary work is not declared and faith
 in Christ and his work is not solicited.
 
 *See main article: [Christ alone](Christ_alone "Christ alone")*
-## Grace alone (*Sola Gratia*)
+
+### Grace alone (*Sola Gratia*)
 
 In salvation we are rescued from God's wrath by his grace alone. It
 is the supernatural work of the Holy Spirit that brings us to
@@ -82,7 +87,8 @@ by themselves cannot accomplish this transformation. Faith is not
 produced by our unregenerated human nature.
 
 *See main article: [Grace alone](Grace_alone "Grace alone")*
-## Glory to God alone (*Soli Deo Gloria*)
+
+### Glory to God alone (*Soli Deo Gloria*)
 
 It is affirmed that because salvation is of God and has been
 accomplished by God, it is for God's glory and that we must glorify
@@ -94,6 +100,7 @@ or if self-improvement, self-esteem or self- fulfillment are
 allowed to become alternatives to the gospel.
 
 *See main article: [Glory to God alone](Glory_to_God_alone "Glory to God alone")*
+
 ## Notes
 
 1.  [↑](#ref-0) See discussion by Dr. R. Scott Clark
@@ -117,10 +124,6 @@ allowed to become alternatives to the gospel.
 
 -   [The Five Solas of the Reformation](http://www.fivesolas.com/5solas.htm),
     by Gregg Strawbridge
-
 -   [Reformation Essentials - Five Pillars of the Reformation](http://www.monergism.com/thethreshold/articles/onsite/essentials.html),
     by Michael Horton
 -   [Monergism Five Solas Category Page](http://www.monergism.com/directory/link_category/Five-Solas/)
-
-
-
