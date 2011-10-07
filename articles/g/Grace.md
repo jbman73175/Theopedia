@@ -12,11 +12,14 @@ accept the gift of [salvation](Salvation "Salvation") through
 [Jesus Christ](Jesus_Christ "Jesus Christ")."
 [[1]](http://www.rbc.org/utmost/index.php?month=11&day=28)
 
+<<<<<<< HEAD
 ## Multimedia
 
 -   [The Mercy and Grace of God](http://www.apologeticspress.org/audio/rsf1-l13.rm)
     (Real Player)
 
+=======
+>>>>>>> origin/master
 The grace and [mercy of God](Mercy_of_God "Mercy of God") strikes
 at the very heart of humanity. It has the ability to raise the most
 extreme emotions by, as Oswald Chambers says, humiliating those who
