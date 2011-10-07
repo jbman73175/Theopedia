@@ -5,6 +5,7 @@ no violence to righteousness. We may see non-justice in God, which
 is mercy, but we never see injustice in God." -
 [R.C. Sproul](R.C._Sproul "R.C. Sproul"), *The Holiness of God*, p.
 145
+
 ## Multimedia
 
 -   [The Justice of God, or Does God Punish Sin](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/101_SLJ_69_32K.mp3)
@@ -21,6 +22,3 @@ is mercy, but we never see injustice in God." -
 
 -   [Holy Justice](http://www.trueu.org/dorms/stulounge/A000000386.cfm),
     by Denise Morris
-
-
-
