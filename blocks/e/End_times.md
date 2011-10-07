@@ -14,3 +14,6 @@
 	- [Annihilationism](Annihilationism)
 	- [Universalism](Universalism)
 	- [Purgatory](Purgatory)
+	- [Final judgment](Final_judgment)
+	- [Resurrection](Resurrection)
+	- [Glorification](Glorification)

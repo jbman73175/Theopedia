@@ -11,6 +11,3 @@
 	- [Nephilim](Nephilim)
 	- [Great Flood](Great Flood)
 	- [Tower of Babel](Tower of Babel)
-	- [Final judgment](Final_judgment)
-	- [Resurrection](Resurrection)
-	- [Glorification](Glorification)
