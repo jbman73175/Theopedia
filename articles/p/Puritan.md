@@ -16,15 +16,6 @@ arose on the heels of the
 especially seeking *purity* of [worship](Worship "Worship") and
 [doctrine](Doctrine "Doctrine").
 
-## Contents
-
--   [1 Terminology](#Terminology)
--   [2 History](#History)
--   [3 Beliefs](#Beliefs)
--   [4 Further reading](#Further_reading)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
 ## Terminology
 
 The word *Puritan* is now applied unevenly to a number of

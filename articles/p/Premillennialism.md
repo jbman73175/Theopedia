@@ -10,17 +10,6 @@ rules spiritually from his throne in heaven, and
 [Amillennialism](Amillennialism "Amillennialism") which sees the
 millennium as a figurative reference to the current church age.
 
-## Contents
-
--   [1 Background](#Background)
--   [2 Two varieties of premillennialism](#Two_varieties_of_premillennialism)
--   [3 Uniqueness of dispensational premillennialism](#Uniqueness_of_dispensational_premillennialism)
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-    -   [6.1 Critical](#Critical)
-
-
 ## Background
 
 Premillennialism was the most widely held view of the earliest

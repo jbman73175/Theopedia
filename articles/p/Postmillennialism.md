@@ -8,13 +8,6 @@ state after judging the wicked. This is called postmillennialism
 because, by its view, Christ will return after the millennium."
 ^[[1]](#note-0)^
 
-## Contents
-
--   [1 Contrast with Premillennialism](#Contrast_with_Premillennialism)
--   [2 Postmillennial Theologians](#Postmillennial_Theologians)
--   [3 See also](#See_also)
--   [4 Notes](#Notes)
-
 ## Contrast with Premillennialism
 
 "In contrast to

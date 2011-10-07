@@ -38,15 +38,6 @@ thousand year Kingdom on the earth in which the genetic nation of
 Israel and the Jewish people are specially exalted (not merely
 included).
 
-## Contents
-
--   [1 Tenents of Progressive Dispensationalism](#Tenents_of_Progressive_Dispensationalism)
--   [2 Variations on Progressive Dispensationalism](#Variations_on_Progressive_Dispensationalism)
--   [3 Noted](#Noted)
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External Links](#External_Links)
-
 ## Tenents of Progressive Dispensationalism
 
 1.  Is *not* Replacement Theology; Progressive Dispensationalists

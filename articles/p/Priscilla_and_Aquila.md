@@ -17,14 +17,6 @@ was a Jew who believed that Jesus of Nazareth was the Messiah
 promised by God to the Jews. Aquila had the family name of the
 commander of a legion and means "eagle."
 
-## Contents
-
--   [1 Travels and ministries](#Travels_and_ministries)
--   [2 Pauline affirmations](#Pauline_affirmations)
--   [3 The seven biblical references to Priscilla and Aquila](#The_seven_biblical_references_to_Priscilla_and_Aquila)
--   [4 Endnotes](#Endnotes)
--   [5 External links](#External_links)
-
 ## Travels and ministries
 
 Priscilla and Aquila fled Rome during the Jewish persecution under

@@ -1,14 +1,3 @@
-
-## Contents
-
--   [1 Faculty](#Faculty)
-    -   [1.1 Current faculty](#Current_faculty)
-    -   [1.2 Past faculty](#Past_faculty)
-
--   [2 Past students](#Past_students)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Faculty
 
 ### Current faculty

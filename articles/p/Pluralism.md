@@ -23,15 +23,6 @@ tolerance and relativism."
     (mp3) by
     [Douglas Groothuis](Douglas_Groothuis "Douglas Groothuis")
 
-## Contents
-
--   [1 Proponents](#Proponents)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-
-
-
-
 ## Proponents
 
 [John Hick](index.php?title=John_Hick&action=edit&redlink=1 "John Hick (page does not exist)"),

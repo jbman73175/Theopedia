@@ -41,13 +41,6 @@ will say that something did exist in the past or will exist in the
 future, but nothing in the past exists in the past. It exists now,
 or it simply fails to exist.
 
-## Contents
-
--   [1 Alternatives](#Alternatives)
--   [2 The Appeal](#The_Appeal)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ### Alternatives
 
 One alternative sees time as a growing block. Once a moment in time

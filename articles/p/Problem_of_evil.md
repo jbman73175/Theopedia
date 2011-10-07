@@ -22,20 +22,6 @@ to build character.
 -   [How God Makes Known the Riches of His Glory to the Vessels of Mercy](http://www.desiringgod.org/ResourceLibrary/sermons/bydate/2003/125_How_God_Makes_Known_the_Riches_of_His_Glory_to_the_Vessels_of_Mercy/)
     (MP3), by [John Piper](John_Piper "John Piper")
 
-## Contents
-
--   [1 Origin of the term](#Origin_of_the_term)
--   [2 Sovereignty and goodness](#Sovereignty_and_goodness)
--   [3 Suggested solutions](#Suggested_solutions)
-    -   [3.1 Charles Hodge](#Charles_Hodge)
-    -   [3.2 Augustine](#Augustine)
-    -   [3.3 Gordon Clark](#Gordon_Clark)
-    -   [3.4 The Atheistic conclusion](#The_Atheistic_conclusion)
-
--   [4 Resources](#Resources)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
 ## Origin of the term
 
 The term *theodicy* comes from the Greek (*theós*, "god") and

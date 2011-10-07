@@ -17,24 +17,6 @@ and will immediately precede the
 preterist views generally fall in one of two categories: *Partial*
 Preterism or *Full* Preterism.
 
-## Contents
-
--   [1 Partial Preterists](#Partial_Preterists)
--   [2 Full Preterism](#Full_Preterism)
--   [3 Example argument from Scripture](#Example_argument_from_Scripture)
--   [4 Objections to Preterism](#Objections_to_Preterism)
--   [5 Resources](#Resources)
-    -   [5.1 Partial Preterism](#Partial_Preterism)
-    -   [5.2 Full preterism](#Full_preterism_2)
-    -   [5.3 Critics of Full Preterism from Partial Preterist viewpoint](#Critics_of_Full_Preterism_from_Partial_Preterist_viewpoint)
-
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Partial Preterism](#Partial_Preterism_2)
-    -   [7.2 Full preterism](#Full_preterism_3)
-    -   [7.3 Anti-Preterism](#Anti-Preterism)
-
-
 ## Partial Preterists
 
 Partial Preterism, the older of the two views, holds that

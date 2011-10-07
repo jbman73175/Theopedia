@@ -30,20 +30,12 @@ that miracles do not happen, that prayer isn’t answered and that
 most things “fall out” according to the functioning of impersonal
 and unchangeable laws."^[[1]](#note-0)^
 
-
 ## Multimedia
 
 -   [Providence in Calvin's Institutes](http://covenantseminary.inmotionhosting.com/CH523_Lecture_06.mp3)
     (MP3), by David Calhoun
 -   [What is Providence?](http://broadcast.ligonier.org/podcast-media/rym20080811.mp3)
     (MP3), by [R. C. Sproul](R._C._Sproul "R. C. Sproul")
-
-## Contents
-
--   [1 Concurrence](#Concurrence)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## Concurrence
 

@@ -18,13 +18,6 @@ Illinois, Wisconsin, Iowa, Minnesota, Colorado, California and
 Washington. The Canadian churches are located in Alberta and
 Ontario.
 
-## Contents
-
--   [1 History and Theology](#History_and_Theology)
--   [2 See also](#See_also)
--   [3 References](#References)
--   [4 External links](#External_links)
-
 ## History and Theology
 
 The Protestant Reformed Churches in America was founded in 1924 as

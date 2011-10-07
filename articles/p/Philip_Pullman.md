@@ -9,15 +9,6 @@ his books are "about killing God"^[[2]](#note-1)^ and that he is
 belief."^[[3]](#note-2)^ The movie, "The Golden Compass," is based
 on his first book from the *Dark Materials* trilogy.
 
-
-## Contents
-
--   [1 Resources](#Resources)
--   [2 Notes](#Notes)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
-
 ## Resources
 
 -   Tony Watkins,

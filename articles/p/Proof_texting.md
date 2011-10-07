@@ -19,14 +19,6 @@ of a text, the genre and context should never be ignored. As the
 saying goes, "a text without a context is a pretext for a proof
 text."
 
-
-## Contents
-
--   [1 Resources](#Resources)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Resources
 
 -   David Kelsey, *The Uses of Scripture in Recent Theology*

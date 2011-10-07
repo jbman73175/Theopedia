@@ -4,14 +4,6 @@
 also the title of a recently popular Christian book by Bruce
 Wilkinson (Multnomah, 2000).
 
-## Contents
-
--   [1 Related passage](#Related_passage)
--   [2 Bruce Wilkinson's book](#Bruce_Wilkinson.27s_book)
--   [3 References](#References)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Related passage
 
 Now Jabez was more honorable than his brothers, and his mother

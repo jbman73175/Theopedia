@@ -15,17 +15,6 @@ due to the theological issues raised in his book
 leave WTS after fourteen years and did so on mutually agreeable
 terms with the WTS administration.^[[2]](#note-1)^
 
-## Contents
-
--   [1 Selected publications](#Selected_publications)
-    -   [1.1 Edited works](#Edited_works)
-
--   [2 Notes](#Notes)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-    -   [3.2 Reviews of Inspiration and Incarnation](#Reviews_of_Inspiration_and_Incarnation)
-
-
 ## Selected publications
 
 -   *Ecclesiastes*. Two Horizons Commentary Series. Eerdmans, 2008.

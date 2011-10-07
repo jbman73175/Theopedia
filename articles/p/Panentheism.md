@@ -18,14 +18,6 @@ such as [Paul Tillich](Paul_Tillich "Paul Tillich"),
 [Robert Jenson](Robert_Jenson "Robert Jenson"), and possibly
 [Karl Rahner](Karl_Rahner "Karl Rahner").
 
-
-## Contents
-
--   [1 Notes](#Notes)
--   [2 Resources](#Resources)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Notes
 
 1.  [↑](#ref-0) John W. Cooper,

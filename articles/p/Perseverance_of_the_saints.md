@@ -42,21 +42,6 @@ See
     [Part 4 - Logical Objections](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/055_SLJ_69_32K.mp3)
     (MP3s), by S. Lewis Johnson
 
-## Contents
-
--   [1 History of the doctrine](#History_of_the_doctrine)
--   [2 Eternal Security](#Eternal_Security)
-    -   [2.1 Quotes](#Quotes)
-
--   [3 Biblical support](#Biblical_support)
--   [4 Arminian Objections](#Arminian_Objections)
--   [5 Resources](#Resources)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-    -   [7.1 Favorable](#Favorable)
-    -   [7.2 Critical](#Critical)
-
-
 ## History of the doctrine
 
 The traditional doctrine is one of the

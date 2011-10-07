@@ -8,16 +8,6 @@ criterion of truth. In 1901 he became principal of Hackney
 Congregational College and in 1905 chairman of the Congregational
 Union."^[[1]](#note-0)^
 
-
-## Contents
-
--   [1 Selected works](#Selected_works)
--   [2 Notes](#Notes)
--   [3 Resources](#Resources)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
-
 ## Selected works
 
 -   *Positive Preaching and Modern Mind, Yale University, 1907*,

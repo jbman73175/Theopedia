@@ -8,14 +8,6 @@ and defended his views. In 1521 Melanchthon published the
 *Loci Communes*, the first systematic treatment of the new
 Wittenberg theology developed by Luther.
 
-## Contents
-
--   [1 Early life and education](#Early_life_and_education)
--   [2 Professor at Wittenberg](#Professor_at_Wittenberg)
--   [3 Augsburg Confession](#Augsburg_Confession)
--   [4 Discussions on Lord's Supper and Justification](#Discussions_on_Lord.27s_Supper_and_Justification)
--   [5 External links](#External_links)
-
 ## Early life and education
 
 Melanchthon was born at Bretten, near Karlsruhe, where his father,

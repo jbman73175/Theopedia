@@ -25,15 +25,6 @@ Williams started the Evangelical Textual Criticism Blog in October,
 of textual criticism that "is governed by the principles of
 evangelicalism."^[[1]](#note-0)^
 
-## Contents
-
--   [1 Selected works](#Selected_works)
-    -   [1.1 Edited works](#Edited_works)
-
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Selected works
 
 -   *Early Syriac Translation Technique and the Textual Criticism of the Greek Gospels*.

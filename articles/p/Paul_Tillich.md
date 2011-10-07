@@ -30,13 +30,6 @@ From 1955-62, he was University Professor at Harvard, and during
 his last three years, the Nuveen Professor Theology in the Divinity
 School, University of Chicago.
 
-## Contents
-
--   [1 Selected works](#Selected_works)
--   [2 Further reading](#Further_reading)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Selected works
 
 -   *The Interpretation of History*, 1936

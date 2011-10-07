@@ -7,18 +7,6 @@ described as deeply conservative in his
 [Calvinist](Calvinism "Calvinism") theology yet radical and
 iconoclastic in his ministry style.
 
-## Contents
-
--   [1 Study](#Study)
--   [2 Ministry](#Ministry)
-    -   [2.1 University of New South Wales](#University_of_New_South_Wales)
-    -   [2.2 St Matthias](#St_Matthias)
-    -   [2.3 Ministry Training Strategy](#Ministry_Training_Strategy)
-    -   [2.4 St Andrew's Cathedral](#St_Andrew.27s_Cathedral)
-
--   [3 Publications](#Publications)
--   [4 External links](#External_links)
-
 ## Study
 
 Phillip Jensen studied theology at

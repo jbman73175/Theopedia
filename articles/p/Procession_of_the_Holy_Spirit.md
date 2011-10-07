@@ -13,15 +13,6 @@ Father, even the Spirit of truth, which proceedeth from the Father,
 he shall bear witness of me.' "
 -[Loraine Boettner](Loraine_Boettner "Loraine Boettner")
 
-
-## Contents
-
--   [1 See also](#See_also)
--   [2 External links](#External_links)
-    -   [2.1 Favorable](#Favorable)
-    -   [2.2 Critical](#Critical)
-
-
 ## See also
 
 -   [Generation of the Son](Generation_of_the_Son "Generation of the Son")

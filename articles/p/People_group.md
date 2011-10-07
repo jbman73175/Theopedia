@@ -21,14 +21,6 @@ etc." -Ed Dayton
 -   [Caleb Project - Infobytes Animations](http://www.calebproject.org/main.php/news_and_interactive/infobytes_animations)
     (Flash animation) - See module 3 for "What is a people group?"
 
-## Contents
-
--   [1 Unreached people groups](#Unreached_people_groups)
--   [2 External links](#External_links)
-
-
-
-
 ## Unreached people groups
 
 An unreached people group is "a people group among which there is

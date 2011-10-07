@@ -8,16 +8,6 @@ propitiation does not procure his love or make him loving; it only
 renders it consistent for him to exercise his love towards
 sinners."^[[2]](#note-1)^
 
-## Contents
-
--   [1 Background](#Background)
--   [2 Propitiation versus Expiation](#Propitiation_versus_Expiation)
--   [3 Notes](#Notes)
--   [4 Relevant passages](#Relevant_passages)
--   [5 Further reading](#Further_reading)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
 ## Background
 
 Luke 18:13. In the parable of the "Pharisee and the Tax Collector",

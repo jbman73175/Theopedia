@@ -17,15 +17,6 @@ teachings. In his well-known thesis, Polycarp combats Gnostic
 heresies that were beginning to spread throughout the Christian
 church. [[1]](http://www.polycarp.net/)
 
-## Contents
-
--   [1 A martyr for truth](#A_martyr_for_truth)
--   [2 An interesting story](#An_interesting_story)
--   [3 A testimony for our lives](#A_testimony_for_our_lives)
--   [4 Surviving Writing and Early Accounts](#Surviving_Writing_and_Early_Accounts)
--   [5 Span of Life](#Span_of_Life)
--   [6 External links](#External_links)
-
 ## A martyr for truth
 
 Polycarp's greatest contribution to Christianity may be his

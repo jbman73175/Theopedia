@@ -6,16 +6,6 @@ They do not generally refer to themselves as "Plymouth Brethren,"
 nor do they regard themselves as a
 [denomination](Denomination "Denomination").
 
-## Contents
-
--   [1 Background](#Background)
-    -   [1.1 Open vs. Exclusive](#Open_vs._Exclusive)
-
--   [2 Terminology](#Terminology)
--   [3 Characteristics](#Characteristics)
--   [4 Resources](#Resources)
--   [5 External links](#External_links)
-
 ## Background
 
 The Plymouth Brethren movement was founded by Dr. Edward Cronin,

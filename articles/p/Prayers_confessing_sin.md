@@ -22,17 +22,6 @@ Note the following in the prayers:
     words cannot easily hold onto any residual sense of self-importance
     or self-pride.
 
-
-
-## Contents
-
--   [1 Anglican Confession for Morning Prayer](#Anglican_Confession_for_Morning_Prayer)
--   [2 Anglican Confession for Holy Communion](#Anglican_Confession_for_Holy_Communion)
--   [3 Roman Catholic Confiteor](#Roman_Catholic_Confiteor)
-    -   [3.1 English](#English)
-    -   [3.2 Latin](#Latin)
-
-
 ## Anglican Confession for Morning Prayer
 
 This prayer, from the service of *Morning Prayer* in the Anglican

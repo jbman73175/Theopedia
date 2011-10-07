@@ -24,16 +24,6 @@ doctrinal reasons, especially in the wake of the
 -   [What Do Presbyterians Believe?](http://www.trinitylectures.org/MP3/What_Do_Presbyterians_Believe.mp3),
     by Gordon H. Clark (MP3)
 
-## Contents
-
--   [1 History of Presbyterianism](#History_of_Presbyterianism)
--   [2 Characteristics of Presbyterians](#Characteristics_of_Presbyterians)
-    -   [2.1 Church Governance](#Church_Governance)
-    -   [2.2 Doctrine](#Doctrine)
-
--   [3 Varieties of Presbyterianism in North America](#Varieties_of_Presbyterianism_in_North_America)
--   [4 See also](#See_also)
-
 ## History of Presbyterianism
 
 These denominations derive their name from the Greek word

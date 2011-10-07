@@ -1,10 +1,3 @@
-## Contents
-
--   [1 Passage](#Passage)
--   [2 Marriage custom](#Marriage_custom)
--   [3 Preparedness](#Preparedness)
--   [4 External links](#External_links)
-
 ## Passage
 
 Matthew 25:1-13

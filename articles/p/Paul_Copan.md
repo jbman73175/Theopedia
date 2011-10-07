@@ -18,13 +18,6 @@ and his wife Jacqueline live with their five children in the West
 Palm Beach
 area.[[1]](http://www.pba.edu/Academic/Schoolbio.cfm?ID=194&SchoolID=1)
 
-## Contents
-
--   [1 Education](#Education)
--   [2 Society Memberships](#Society_Memberships)
--   [3 Publications](#Publications)
--   [4 External links](#External_links)
-
 ## Education
 
 -   Ph.D., Marquette University (Philosophy)

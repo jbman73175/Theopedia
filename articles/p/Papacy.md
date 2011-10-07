@@ -16,15 +16,6 @@ the Holy See (*Sancta Sedes*). Roman Catholics worldwide consider
 each pope to be [Jesus](Jesus "Jesus")' representative on Earth.
 The current pope is [Benedict XVI](Benedict_XVI "Benedict XVI").
 
-
-## Contents
-
--   [1 Origin](#Origin)
--   [2 The role of Peter](#The_role_of_Peter)
--   [3 The broken line of popes](#The_broken_line_of_popes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Origin
 
 The name "pope" is the English form of the Latin "papa" which means

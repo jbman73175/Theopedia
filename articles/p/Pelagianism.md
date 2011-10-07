@@ -25,16 +25,6 @@ ratified at the
 -   [Pelagianism](http://biblicaltraining.org/audio/TH620/philosophy_28.mov)
     (QuickTime), by Ron Nash
 
-## Contents
-
--   [1 Discussion](#Discussion)
--   [2 See also](#See_also)
-    -   [2.1 Critical](#Critical)
-    -   [2.2 Affirming](#Affirming)
-
-
-
-
 ## Discussion
 
 Pelagius was a monk from Britain, whose reputation and theology

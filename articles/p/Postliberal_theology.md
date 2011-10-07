@@ -23,14 +23,6 @@ upon the importance of tradition and their associated historical
 communities in the shaping of experience and thought."
 ^[[2]](#note-1)^
 
-
-## Contents
-
--   [1 Resources](#Resources)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Resources
 
 -   Timothy R. Phillips and Dennis L. Okholm, eds.

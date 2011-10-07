@@ -13,15 +13,6 @@ school of Notre Dame in Paris.
 
 In 1159, he was named bishop of Paris.
 
-## Contents
-
--   [1 "Book of Sentences"](#.22Book_of_Sentences.22)
--   [2 The Sacraments](#The_Sacraments)
--   [3 Works](#Works)
--   [4 References](#References)
--   [5 See also](#See_also)
--   [6 External links](#External_links)
-
 ## "Book of Sentences"
 
 He is best known for his *Four Books of Sentences*, written between
