@@ -1,25 +1,3 @@
-Part of the series on  
-**[End Times](End_times "End times")**
--   [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
--   [Kingdom of God](Kingdom_of_God "Kingdom of God")
--   [Intermediate state](Intermediate_state "Intermediate state")
--   [Second Coming](Second_Coming "Second Coming")
--   **Millennial kingdom**
--   [Rapture](Rapture "Rapture")
--   [Heaven](Heaven "Heaven")
--   [Hell](Hell "Hell")
-    -   [Sheol](Sheol "Sheol")
-    -   [Hades](Hades "Hades")
-    -   [Gehenna](Gehenna "Gehenna")
-    -   [Tartarus](Tartarus "Tartarus")
-    -   [Annihilationism](Annihilationism "Annihilationism")
-    -   [Universalism](Universalism "Universalism")
-    -   [Purgatory](Purgatory "Purgatory")
-
--   [Final judgment](Final_judgment "Final judgment")
--   [Resurrection](Resurrection "Resurrection")
--   [Glorification](Glorification "Glorification")
-
 The **Millennial kingdom** refers to the *thousand-year* reign of
 [Christ](Jesus "Jesus") specifically mentioned in
 [Revelation](Revelation "Revelation") 20:1-6. This is usually seen
@@ -53,25 +31,11 @@ millennial kingdom follow:
     the church bringing people into the kingdom of God through the
     preaching of the gospel.
 
-
-
 ## Multimedia
 
 -   [Last Things: the Millenium](http://worldwidefreeresources.com/upload/ST240_Lecture_34.mp3)
     (MP3), by Robert Peterson
     ([Study Guide](http://worldwidefreeresources.com/upload/ST240_SG_34.pdf))
-
-## Contents
-
--   [1 Overview of popular views](#Overview_of_popular_views)
--   [2 Dispensational Premillennialism](#Dispensational_Premillennialism)
--   [3 Historic Premillennialism](#Historic_Premillennialism)
--   [4 Postmillennialism](#Postmillennialism)
--   [5 Amillennialism](#Amillennialism)
--   [6 Preterism](#Preterism)
--   [7 Resources](#Resources)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
 
 ## Overview of popular views
 
@@ -101,7 +65,9 @@ of which occur at the end of the church age
 The saints, living and dead, shall meet the Lord in the clouds and
 immediately proceed to judge the nations with Christ and then
 follow Him into their eternal state.
+
 **Kingdom of God**
+
 The literal physical kingdom reign, anticipated by the OT prophets,
 during which God will fulfill all the OT promises to ethnic Israel.
 The literal physical kingdom reign anticipated by the OT and NT
@@ -110,7 +76,9 @@ A spiritual entity experienced on earth through the Christianizing
 effect of the Gospel.
 A spiritual reality in which all Christians partake presently by
 faith, but by sight at the consummation.
+
 **Millennium**
+
 Christ will return at the end of the great tribulation to institute
 a thousand-year earthly rule from Jerusalem. Those who begin
 believing in Christ during the "seventieth week of Daniel" and
@@ -127,7 +95,9 @@ will become Christian.
 Inaugurated with Christ's resurrection. In an "already/not yet"
 sense, Christ already reigns over all and is already victorious
 over Satan.
+
 **Major proponents**
+
 John Nelson Darby, John Walvoord, Charles Ryrie,
 [Lewis Chafer](Lewis_Chafer "Lewis Chafer"), J. Dwight Pentecost,
 [Norman Geisler](Norman_Geisler "Norman Geisler"), Charles Stanley,
@@ -145,8 +115,7 @@ Meredith Kline, Richard Gaffin, Robert B. Strimple,
 [Gregory Beale](Gregory_Beale "Gregory Beale"),
 [Anthony Hoekema](Anthony_Hoekema "Anthony Hoekema"), and
 [John Murray](John_Murray "John Murray").
-[![Millennial views.gif](images/thumb/4/45/Millennial_views.gif/500px-Millennial_views.gif)](http://www.theopedia.com/File:Millennial_views.gif)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Millennial_views.gif "Enlarge")
+
 ## Dispensational Premillennialism
 
 "Dispensational premillennialists hold that Christ will come before
@@ -165,6 +134,7 @@ because it is founded in the doctrines of dispensationalism."
 [[1]](http://www.blueletterbible.org/faq/mill.html)
 
 *See main page: [Dispensationalism](Dispensationalism "Dispensationalism") and [Premillennialism](Premillennialism "Premillennialism")*
+
 ## Historic Premillennialism
 
 "Historic premillennialists place the return of Christ just before
@@ -179,6 +149,7 @@ ways (notably in their method of interpreting Scripture)."
 [[2]](http://www.blueletterbible.org/faq/mill.html)
 
 *See main page: [Premillennialism](Premillennialism "Premillennialism")*
+
 ## Postmillennialism
 
 "The postmillennialist believes that the millennium is an era (not
@@ -192,6 +163,7 @@ because, by its view, Christ will return after the millennium."
 [[3]](http://www.blueletterbible.org/faq/mill.html)
 
 *See main page: [Postmillennialism](Postmillennialism "Postmillennialism")*
+
 ## Amillennialism
 
 "The amillennialist believes that the Kingdom of God was
@@ -208,6 +180,7 @@ ignored; in fact, the amillennialist's hermeneutic interprets it
 [[4]](http://www.blueletterbible.org/faq/mill.html)
 
 *See main page: [Amillennialism](Amillennialism "Amillennialism")*
+
 ## Preterism
 
 Preterism rejects the idea of a future earthly millennial Kingdom
@@ -227,6 +200,7 @@ since it specifically views the
 fulfilled.
 
 *See main page: [Preterism](Preterism "Preterism")*
+
 ## Resources
 
 -   Clouse, Robert, ed. *The Meaning of the Millennium: Four Views*
@@ -249,6 +223,3 @@ fulfilled.
     regarding the views of certain individuals)
 -   [Charts of Different Millennial Views](http://kimriddlebarger.squarespace.com/eschatology-charts/millennial_views.pdf)
     (PDF)
-
-
-
