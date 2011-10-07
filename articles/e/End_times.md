@@ -1,25 +1,3 @@
-Part of the series on  
-****End Times****
--   [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
--   [Kingdom of God](Kingdom_of_God "Kingdom of God")
--   [Intermediate state](Intermediate_state "Intermediate state")
--   [Second Coming](Second_Coming "Second Coming")
--   [Millennial kingdom](Millennial_kingdom "Millennial kingdom")
--   [Rapture](Rapture "Rapture")
--   [Heaven](Heaven "Heaven")
--   [Hell](Hell "Hell")
-    -   [Sheol](Sheol "Sheol")
-    -   [Hades](Hades "Hades")
-    -   [Gehenna](Gehenna "Gehenna")
-    -   [Tartarus](Tartarus "Tartarus")
-    -   [Annihilationism](Annihilationism "Annihilationism")
-    -   [Universalism](Universalism "Universalism")
-    -   [Purgatory](Purgatory "Purgatory")
-
--   [Final judgment](Final_judgment "Final judgment")
--   [Resurrection](Resurrection "Resurrection")
--   [Glorification](Glorification "Glorification")
-
 **End times** is a popular term used when referring to various
 interpretations of the
 [Book of Revelation](Book_of_Revelation "Book of Revelation") and

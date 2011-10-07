@@ -1,25 +1,3 @@
-Part of the series on  
-**[End Times](End_times "End times")**
--   [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
--   [Kingdom of God](Kingdom_of_God "Kingdom of God")
--   [Intermediate state](Intermediate_state "Intermediate state")
--   [Second Coming](Second_Coming "Second Coming")
--   [Millennial kingdom](Millennial_kingdom "Millennial kingdom")
--   [Rapture](Rapture "Rapture")
--   [Heaven](Heaven "Heaven")
--   [Hell](Hell "Hell")
-    -   [Sheol](Sheol "Sheol")
-    -   **Hades**
-    -   [Gehenna](Gehenna "Gehenna")
-    -   [Tartarus](Tartarus "Tartarus")
-    -   [Annihilationism](Annihilationism "Annihilationism")
-    -   [Universalism](Universalism "Universalism")
-    -   [Purgatory](Purgatory "Purgatory")
-
--   [Final judgment](Final_judgment "Final judgment")
--   [Resurrection](Resurrection "Resurrection")
--   [Glorification](Glorification "Glorification")
-
 "The temporary abode of the unbeliever after death. The word Hades
 occurs ten times in the New Testament (Matt. 11:23; 16:18; Luke
 10:15; 16:23; Acts 2:27; 2:31; Rev. 1:18; 6:8; 20:13, 14). Hades is

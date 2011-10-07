@@ -1,33 +1,3 @@
-Part of the series on  
-**[End Times](End_times "End times")**
--   [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")
--   [Kingdom of God](Kingdom_of_God "Kingdom of God")
--   [Intermediate state](Intermediate_state "Intermediate state")
--   [Second Coming](Second_Coming "Second Coming")
--   [Millennial kingdom](Millennial_kingdom "Millennial kingdom")
--   [Rapture](Rapture "Rapture")
--   **Heaven**
--   [Hell](Hell "Hell")
-    -   [Sheol](Sheol "Sheol")
-    -   [Hades](Hades "Hades")
-    -   [Gehenna](Gehenna "Gehenna")
-    -   [Tartarus](Tartarus "Tartarus")
-    -   [Annihilationism](Annihilationism "Annihilationism")
-    -   [Universalism](Universalism "Universalism")
-    -   [Purgatory](Purgatory "Purgatory")
-
--   [Final judgment](Final_judgment "Final judgment")
--   [Resurrection](Resurrection "Resurrection")
--   [Glorification](Glorification "Glorification")
-
-
-## Contents
-
--   [1 Recognition in the future life](#Recognition_in_the_future_life)
--   [2 Resources](#Resources)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## Recognition in the future life
 
 Recognition in the future life is the issue of whether persons who
