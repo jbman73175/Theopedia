@@ -276,4 +276,5 @@
 [License of text](http://creativecommons.org/licenses/by/3.0/ "Creative Commons Attribution 3.0") —
 [Online journals](Online_theological_journals "Online theological journals") —
 [Facebook page](https://www.facebook.com/theopedia) — 
+[Sitemap](sitemap.xml) — 
 [Github repository](https://github.com/cwebf/Theopedia)
