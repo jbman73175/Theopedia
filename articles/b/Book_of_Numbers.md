@@ -48,11 +48,6 @@ the [Septuagint](Septuagint "Septuagint") gave it the name
 The [Hebrew](Hebrew "Hebrew") name, *bemidbar*, means more properly
 "in the desert".
 
-## Multimedia
-
--   [Numbers](http://biblicaltraining.org/audio/OT500/ots_04b.mov)
-    (QuickTime), by Douglas Stuart
-
 The beginning of Numbers (1:1 - 10:10) deals with Israel's
 preparation to leave Mount Sinai. Yet, they refused to enter the
 promised land (10:11 - 20:21), with the climax of the book
@@ -78,6 +73,11 @@ was not spared from this disobedience (cf. Num. 20:1-13) and was
 not allowed to enter the promised land. The rest of Numbers (20:22
 - 36:13) may be seen as more preparation to enter the land of
 Canaan.
+
+## Multimedia
+
+-   [Numbers](http://biblicaltraining.org/audio/OT500/ots_04b.mov)
+    (QuickTime), by Douglas Stuart
 
 ## Relationship to the New Testament
 
