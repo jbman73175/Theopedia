@@ -22,14 +22,6 @@ reflect God's glory. Jesus reveals his glory, in conjunction with
 the Father's, in different ways: signs (John 2:11), his crucifixion
 (John 7:39; 2:16 & 23; 13:31-32), and in his being (Hebrews 1:3).
 
-## Contents
-
--   [1 Light](#Light)
--   [2 The Transfiguration](#The_Transfiguration)
--   [3 Selected publications](#Selected_publications)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Light
 
 The term "light" within the

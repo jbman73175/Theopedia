@@ -24,13 +24,6 @@ Although the Coptic version is not quite identical to any of the
 Greek fragments, it is believed that the Coptic version was
 translated from a prior Greek version.
 
-## Contents
-
--   [1 The Gospel of Thomas as heresy](#The_Gospel_of_Thomas_as_heresy)
--   [2 Quotes](#Quotes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-
 ## The Gospel of Thomas as heresy
 
 Because the Gospel of Thomas has a late date, this helps scholars

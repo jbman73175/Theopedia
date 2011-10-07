@@ -1,15 +1,3 @@
-## Contents
-
--   [1 Outline](#Outline)
-    -   [1.1 I. The Person of the King: the Early Life and Ministry of Jesus (First Narrative - 1:1-4:11)](#I._The_Person_of_the_King:_the_Early_Life_and_Ministry_of_Jesus_.28First_Narrative_-_1:1-4:11.29)
-    -   [1.2 II. The Precepts of the King: The Sermon on the Mount (First Discourse - 4:12-7:29)](#II._The_Precepts_of_the_King:_The_Sermon_on_the_Mount_.28First_Discourse_-_4:12-7:29.29)
-    -   [1.3 III. The Power of the King: the Miracles and Mission of Christ (Second Narrative and Discourse - 8-10)](#III._The_Power_of_the_King:_the_Miracles_and_Mission_of_Christ_.28Second_Narrative_and_Discourse_-_8-10.29)
-    -   [1.4 IV. The Parables of the King: Rejection and Revelation (Third Narrative and Discourse - 11-13)](#IV._The_Parables_of_the_King:_Rejection_and_Revelation_.28Third_Narrative_and_Discourse_-_11-13.29)
-    -   [1.5 V. The Progressive Rejection of the King: Miracles & Responses (Fourth Narrative and Discourse - 14:1 - 18:35)](#V._The_Progressive_Rejection_of_the_King:_Miracles_.26_Responses_.28Fourth_Narrative_and_Discourse_-_14:1_-_18:35.29)
-    -   [1.6 VI. The Presentation of the King: Entry & Controversy in Jerusalem (Fifth Narrative and Discourse - 19:1-25:46)](#VI._The_Presentation_of_the_King:_Entry_.26_Controversy_in_Jerusalem_.28Fifth_Narrative_and_Discourse_-_19:1-25:46.29)
-    -   [1.7 VII. The Passion of the King: Crucifixion and Resurrection of Christ (The Final Narrative - 26-28)](#VII._The_Passion_of_the_King:_Crucifixion_and_Resurrection_of_Christ_.28The_Final_Narrative_-_26-28.29)
-
-
 ## Outline
 
 ### I. The Person of the King: the Early Life and Ministry of Jesus (First Narrative - 1:1-4:11)

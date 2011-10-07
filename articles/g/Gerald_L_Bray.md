@@ -10,17 +10,6 @@ visiting fellow at General Theological Seminary in New
 York."^[[1]](#note-0)^ Bray has an M.Litt. and D. Litt. from the
 University of Paris-Sorbonne.
 
-
-## Contents
-
--   [1 Selected publications](#Selected_publications)
-    -   [1.1 From the Ancient Christian Commentary on Scripture (IVP)](#From_the_Ancient_Christian_Commentary_on_Scripture_.28IVP.29)
-
--   [2 References](#References)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
-
 ## Selected publications
 
 -   *The Doctrine of God*. Contours of Christian Theology. IVP,

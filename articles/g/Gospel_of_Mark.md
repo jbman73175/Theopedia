@@ -41,31 +41,6 @@ attention on the final week of His passion in Jerusalem.
 -   [Jesus, the Son of Man--The Message of Mark](http://dl.salemweb.net/?mg=71517ABB-20CA-4937-AF28-F4980AF2246D)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
-
--   [1 Author](#Author)
-    -   [1.1 Internal Evidence](#Internal_Evidence)
-    -   [1.2 External Evidence](#External_Evidence)
-
--   [2 Audience](#Audience)
-    -   [2.1 Internal Evidence](#Internal_Evidence_2)
-    -   [2.2 External Evidence](#External_Evidence_2)
-
--   [3 Purpose](#Purpose)
--   [4 Outline](#Outline)
-    -   [4.1 I. Jesus is identified (1:1 - 1:13)](#I._.09Jesus_is_identified_.281:1_-_1:13.29)
-    -   [4.2 II. Jesus ministers in Galilee (1:14 - 4:34)](#II._.09Jesus_ministers_in_Galilee_.281:14_-_4:34.29)
-    -   [4.3 III. Jesus begins to withdraw from Galilee (4:35 - 8:26)](#III._.09_Jesus_begins_to_withdraw_from_Galilee_.284:35_-_8:26.29)
-    -   [4.4 IV. Jesus begins the journey to Jerusalem (8:27 - 10:52)](#IV._.09Jesus_begins_the_journey_to_Jerusalem_.288:27_-_10:52.29)
-    -   [4.5 V. Ministry in Jerusalem (11:1 - 13:37)](#V._.09Ministry_in_Jerusalem_.2811:1_-_13:37.29)
-    -   [4.6 VI. The Passion Narrative (14:1 - 16:8)](#VI._.09The_Passion_Narrative_.2814:1_-_16:8.29)
-    -   [4.7 VII. The Disputed Epilogue (16:9 - 16:20)](#VII._.09The_Disputed_Epilogue_.2816:9_-_16:20.29)
-
--   [5 References](#References)
--   [6 Selected bibliography](#Selected_bibliography)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
-
 ## Author
 
 Strictly speaking, the work is anonymous, in that no claim of

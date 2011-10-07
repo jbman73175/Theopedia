@@ -29,22 +29,6 @@ on mankind and the account of [Noah](Noah "Noah") and the
 -   [No Global Flood?](http://www.youtube.com/watch?v=aLmdwZHWIPg&feature=feedu)
     (YouTube), by [Greg Koukl](Greg_Koukl "Greg Koukl")
 
-## Contents
-
--   [1 Purpose of the flood](#Purpose_of_the_flood)
--   [2 Historicity of the flood](#Historicity_of_the_flood)
--   [3 Extent of the flood](#Extent_of_the_flood)
-    -   [3.1 Global flood](#Global_flood)
-    -   [3.2 Local flood](#Local_flood)
-        -   [3.2.1 Problems with the local flood hypothesis^[6]^](#Problems_with_the_local_flood_hypothesis.5B6.5D)
-
-
--   [4 Notes](#Notes)
--   [5 External links](#External_links)
-    -   [5.1 Global flood](#Global_flood_2)
-    -   [5.2 Local flood](#Local_flood_2)
-
-
 ## Purpose of the flood
 
 "The LORD saw that the [wickedness](Wickedness "Wickedness") of man

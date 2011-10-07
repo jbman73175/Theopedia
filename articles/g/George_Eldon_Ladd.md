@@ -6,17 +6,6 @@ Theological Seminary in Pasadena, California. Ladd's magisterial
 work, *A Theology of the New Testament*, has served thousands of
 seminary students since its publication in 1974.
 
-## Contents
-
--   [1 Biographical summary](#Biographical_summary)
--   [2 Theology](#Theology)
--   [3 Selected publications](#Selected_publications)
--   [4 References](#References)
--   [5 Notes](#Notes)
--   [6 External links](#External_links)
-    -   [6.1 Online writings](#Online_writings)
-
-
 ## Biographical summary
 
 Ladd converted to Christianity in 1929 after hearing a young

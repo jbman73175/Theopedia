@@ -14,16 +14,6 @@ necessarily implies [Trinitarianism](Trinity "Trinity") requires
 fuller explanation from Scripture, and the wisdom which is given by
 the Holy Spirit.^[[5]](#note-4)^
 
-## Contents
-
--   [1 Father as beginning](#Father_as_beginning)
--   [2 Inherent Fatherhood](#Inherent_Fatherhood)
--   [3 An eternal life: sons to the Father](#An_eternal_life:_sons_to_the_Father)
--   [4 Worship: to the glory of God the Father](#Worship:_to_the_glory_of_God_the_Father)
--   [5 Notes](#Notes)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
 ## Father as beginning
 
 The Father created all things by His Word and Spirit; it is from

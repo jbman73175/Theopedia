@@ -4,17 +4,6 @@ Lady Margaret's Professor of Divinity at Cambridge University. He
 was an expert in the [Gospels](Gospels "Gospels"), especially the
 [Gospel of Matthew](Gospel_of_Matthew "Gospel of Matthew").
 
-## Contents
-
--   [1 Brief biography](#Brief_biography)
--   [2 Editorial responsibilities](#Editorial_responsibilities)
--   [3 Selected publications](#Selected_publications)
--   [4 Further resources](#Further_resources)
--   [5 Notes](#Notes)
--   [6 External links](#External_links)
-    -   [6.1 Online writings](#Online_writings)
-
-
 ## Brief biography
 
 Stanton was born in Christchurch, New Zealand and was brought up in

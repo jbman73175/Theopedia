@@ -11,34 +11,6 @@ literally into Old English as *godspell*, eventually becoming
 proclamation: "The time is fulfilled, and the kingdom of God has
 come near; repent, and believe in the *good news*." (Mark 1:15)
 
-
-
-## Contents
-
--   [1 Uses of "gospel"](#Uses_of_.22gospel.22)
--   [2 The Gospel begins with Jesus Christ](#The_Gospel_begins_with_Jesus_Christ)
--   [3 The Gospel is Jesus bringing salvation to the world](#The_Gospel_is_Jesus_bringing_salvation_to_the_world)
-    -   [3.1 A New Reality Preached](#A_New_Reality_Preached)
-    -   [3.2 The Cross & The Resurrection](#The_Cross_.26_The_Resurrection)
-    -   [3.3 Forgiveness of Sins](#Forgiveness_of_Sins)
-
--   [4 The Gospel affords new life](#The_Gospel_affords_new_life)
-    -   [4.1 Discipleship](#Discipleship)
-    -   [4.2 Eschatological Living](#Eschatological_Living)
-
--   [5 The Gospel is the reconciliation of all Creation](#The_Gospel_is_the_reconciliation_of_all_Creation)
-    -   [5.1 Eschatology in the Gospel Texts](#Eschatology_in_the_Gospel_Texts)
-    -   [5.2 The Apocalypse](#The_Apocalypse)
-
--   [6 The Gospel concludes with the Resurrection](#The_Gospel_concludes_with_the_Resurrection)
-    -   [6.1 Jesus as Pioneer](#Jesus_as_Pioneer)
-
--   [7 Notes](#Notes)
--   [8 See also](#See_also)
--   [9 External links](#External_links)
-
-
-
 ### Uses of "gospel"
 
 The word *gospel* is used in various ways. Primarily it refers the

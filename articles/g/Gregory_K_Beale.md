@@ -36,19 +36,6 @@ teams.
 -   [The Erosion of Inerrancy in Evangelicalism](http://www.podtrac.com/pts/redirect.mp3?http://www.reformedforum.org/podpress_trac/web/549/0/ctc054.mp3)
     (MP3), an interview
 
-
-## Contents
-
--   [1 Theology](#Theology)
--   [2 Selected publications](#Selected_publications)
-    -   [2.1 Commentaries](#Commentaries)
-    -   [2.2 Edited works](#Edited_works)
-
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
-
 ## Theology
 
 Beale believes that all doctrine, and thus, the entire

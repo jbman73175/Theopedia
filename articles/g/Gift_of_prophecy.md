@@ -1,14 +1,3 @@
-
-## Contents
-
--   [1 Continuationist view](#Continuationist_view)
-    -   [1.1 Some Examples in Pentecostal/ Charismatic Culture](#Some_Examples_in_Pentecostal.2F_Charismatic_Culture)
-
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 By John Piper](#By_John_Piper)
-
-
 ## Continuationist view
 
 The gift of prophecy in the N.T. is a supernatural revelation or

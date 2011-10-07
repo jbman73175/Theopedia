@@ -22,14 +22,6 @@ and religion.
 -   [Veritas Forum talk on relativism at UCLA](http://www.veritas.org/3.0_media/talks/91)
     (video and MP3)
 
-## Contents
-
--   [1 Quotes about Stand to Reason](#Quotes_about_Stand_to_Reason)
--   [2 Publications](#Publications)
--   [3 Notes](#Notes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Quotes about Stand to Reason
 
 -   "There has never been a time in our culture when ministries

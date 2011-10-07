@@ -15,20 +15,9 @@ his B.A. in philosophy at the University of Minnesota, his M.Div.
 from Yale Divinity School, and a Ph.D. at Princeton Theological
 Seminary.
 
-
-
 ## Multimedia
 
 -   [Woodland Hills Church Sermon Archive](http://www.whchurch.org/content/page_506.htm)
-
-## Contents
-
--   [1 Quotes](#Quotes)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-    -   [3.2 Critical](#Critical)
-
 
 ## Quotes
 

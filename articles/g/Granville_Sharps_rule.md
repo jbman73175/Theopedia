@@ -40,16 +40,6 @@ contrast may be seen in 2 Peter 1:1:
     the same kind as ours, by
     *the righteousness of our God and Savior, Jesus Christ*."
 
-
-
-## Contents
-
--   [1 Statement of the rule](#Statement_of_the_rule)
--   [2 Cautions in application](#Cautions_in_application)
--   [3 Notes](#Notes)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Statement of the rule
 
 "The following rule by Granville Sharp of a century back still

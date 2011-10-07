@@ -25,17 +25,6 @@ commission and recently completed a book on
 *The Eucharist and Ecumenism: Let Us Keep the Feast*, published by
 Cambridge University Press in 2008.
 
-
-## Contents
-
--   [1 Publications](#Publications)
-    -   [1.1 Edited works](#Edited_works)
-
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
-
 ## Publications
 
 -   *The Eucharist and Ecumenism: Let Us Keep the Feast*. Current

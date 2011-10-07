@@ -1,12 +1,3 @@
-## Contents
-
--   [1 12](#12)
--   [2 28](#28)
-    -   [2.1 Background](#Background)
-
--   [3 Notes](#Notes)
--   [4 External links](#External_links)
-
 ### 12
 
 -   [The One Who Does Them Shall Live By Them: Leviticus 18:5 in Galatians 3:12](http://www.swbts.edu/faculty/jhamilton/documents/gw_aug05-p10-12.pdf)

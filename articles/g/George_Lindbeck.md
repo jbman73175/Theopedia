@@ -13,16 +13,6 @@ is well known for his Cultural-Linguistic approach to
 [Hans Frei](Hans_Frei "Hans Frei"), Paul Holmer and David Kelsey
 have had a major influence on his thought.
 
-
-## Contents
-
--   [1 Select publications](#Select_publications)
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
-
 ## Select publications
 
 -   *The Future of Roman Catholic Theology* (SPCK, 1970)

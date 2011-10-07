@@ -39,23 +39,6 @@ first of a two volume account by Luke; the second is the
 -   [Jesus, the Son of Adam--The Message of Luke](http://dl.salemweb.net/?mg=F11ABA59-5769-47BE-BCB0-55BF0CF23EB7)
     (MP3), by [Mark Dever](Mark_Dever "Mark Dever")
 
-## Contents
-
--   [1 Chapters](#Chapters)
--   [2 Authorship](#Authorship)
-    -   [2.1 Identity](#Identity)
-    -   [2.2 Luke's aims](#Luke.27s_aims)
-
--   [3 Themes](#Themes)
-    -   [3.1 Jesus, friend of outcasts](#Jesus.2C_friend_of_outcasts)
-    -   [3.2 Jewish roots and the Temple](#Jewish_roots_and_the_Temple)
-
--   [4 Relationship to other biblical books](#Relationship_to_other_biblical_books)
-    -   [4.1 Matthew and Mark](#Matthew_and_Mark)
-
--   [5 Acts](#Acts)
-    -   [5.1 External links](#External_links)
-
 ## Authorship
 
 ### Identity

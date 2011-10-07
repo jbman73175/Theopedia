@@ -11,23 +11,6 @@ character named "Gabriel" who speaks in the first person.
     by [William Lane Craig](William_Lane_Craig "William Lane Craig")
     (skip forward to *4:32* in the recording), MP3
 
-## Contents
-
--   [1 History of the tablet](#History_of_the_tablet)
-    -   [1.1 Source](#Source)
-    -   [1.2 Date](#Date)
-    -   [1.3 Names](#Names)
-
--   [2 Issues](#Issues)
-    -   [2.1 Potential Effects on Apologetics](#Potential_Effects_on_Apologetics)
-    -   [2.2 Similarities to Hosea 6](#Similarities_to_Hosea_6)
-    -   [2.3 A Suffering Messiah](#A_Suffering_Messiah)
-    -   [2.4 Israel Knohl's Interpretation of the Tablet](#Israel_Knohl.27s_Interpretation_of_the_Tablet)
-    -   [2.5 Similarities to Biblical Prophetic Books](#Similarities_to_Biblical_Prophetic_Books)
-
--   [3 Notes](#Notes)
--   [4 External links](#External_links)
-
 ## History of the tablet
 
 ### Source

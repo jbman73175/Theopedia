@@ -10,16 +10,6 @@ lightning bolt crashes down, the peasants working in the field
 cross themselves and say "well, we don't understand that, so it
 must be God."
 
-## Contents
-
--   [1 Problems with God of the Gaps](#Problems_with_God_of_the_Gaps)
--   [2 Origin of the term](#Origin_of_the_term)
--   [3 God of the Gaps in theology and apologetics](#God_of_the_Gaps_in_theology_and_apologetics)
--   [4 God of the Gaps in secular discourse](#God_of_the_Gaps_in_secular_discourse)
-    -   [4.1 Contemporary example](#Contemporary_example)
-
--   [5 Notes](#Notes)
-
 ## Problems with God of the Gaps
 
 From a philosophical point of view, the inherent problem with a God

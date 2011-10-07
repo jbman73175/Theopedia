@@ -20,21 +20,6 @@ the
 Nag Hammadi is a town in Upper Egypt near ancient Chenoboskion and
 13 codices were discovered about 1945.
 
-## Contents
-
--   [1 General beliefs](#General_beliefs)
-    -   [1.1 Matter or materiality](#Matter_or_materiality)
-    -   [1.2 God](#God)
-    -   [1.3 Humanity](#Humanity)
-    -   [1.4 The Fall](#The_Fall)
-    -   [1.5 Salvation](#Salvation)
-    -   [1.6 Jesus](#Jesus)
-
--   [2 Gnosticism's present existence](#Gnosticism.27s_present_existence)
--   [3 References](#References)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## General beliefs
 
 The following information is taken from Olson,

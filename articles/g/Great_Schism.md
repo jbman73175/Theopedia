@@ -32,16 +32,6 @@ the Eastern Churches are separate. Each takes the view that it is
 the "One Holy Catholic and Apostolic Church", implying that the
 other group left the true church during the Schism.
 
-## Contents
-
--   [1 Origins](#Origins)
--   [2 Early schisms](#Early_schisms)
--   [3 Great Schism](#Great_Schism)
--   [4 Reconciliation](#Reconciliation)
--   [5 Notes](#Notes)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
 ## Origins
 
 Since its earliest days, the Church recognized the special

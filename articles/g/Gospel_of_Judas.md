@@ -42,17 +42,6 @@ these writings practiced
 little authority used an authoritative name (e.g., a disciple) to
 bolster their writings acceptance.
 
-## Contents
-
--   [1 Background](#Background)
-    -   [1.1 Recent developments](#Recent_developments)
-
--   [2 References](#References)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
-    -   [4.1 Online texts](#Online_texts)
-
-
 ## Background
 
 The only known manuscript to include the text of the

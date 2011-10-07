@@ -132,14 +132,6 @@ with the phrase: "these are the generations of." The sections would
 then be the generations of: Adam, Noah, Shem, Abram, Isaac, Jacob,
 and perhaps Joseph.
 
-## Contents
-
--   [1 Organizational Structure](#Organizational_Structure)
--   [2 Primeval/Patriarchal Theory](#Primeval.2FPatriarchal_Theory)
--   [3 Toledot Theory](#Toledot_Theory)
--   [4 See also](#See_also)
--   [5 References](#References)
-
 ## See also
 
 -   [Pentateuch](Pentateuch "Pentateuch")

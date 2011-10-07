@@ -35,16 +35,6 @@
 -   [The Gospel of Matthew](http://biblicaltraining.org/audio/NT501/nt_stein_08.mov)
     (QuickTime), by Robert Stein
 
-## Contents
-
--   [1 Author](#Author)
--   [2 Date](#Date)
--   [3 Purpose](#Purpose)
--   [4 Structure](#Structure)
--   [5 Themes](#Themes)
--   [6 See also](#See_also)
--   [7 External links](#External_links)
-
 ## Author
 
 We note two approaches for determining the authorship of Matthew.

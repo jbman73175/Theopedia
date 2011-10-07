@@ -7,17 +7,6 @@ University and was ordained in the Assemblies of God church in
 1959. Fee earned his doctorate from the University of Southern
 California in 1966.
 
-## Contents
-
--   [1 Publications](#Publications)
--   [2 See also](#See_also)
--   [3 External links](#External_links)
-    -   [3.1 Online writings](#Online_writings)
-
-
-
-
-
 ## Publications
 
 -   *Paul, the Spirit, and the People of God*.

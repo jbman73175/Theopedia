@@ -32,15 +32,6 @@ title *Did Jesus Rise from the Dead? The Resurrection Debate*
 -   [Jesus and Social Action](http://www.garyhabermas.com/audio/audio.htm)
 -   [Death, the Afterlife, and Near Death Experiences](http://www.garyhabermas.com/audio/audio.htm)
 
-## Contents
-
--   [1 Habermas' journey to belief in the Resurrection](#Habermas.27_journey_to_belief_in_the_Resurrection)
--   [2 Education](#Education)
--   [3 Selected works](#Selected_works)
--   [4 External links](#External_links)
-    -   [4.1 Online writings](#Online_writings)
-
-
 ## Habermas' journey to belief in the Resurrection
 
 Gary R. Habermas was born just outside Detroit, Michigan in 1950.
