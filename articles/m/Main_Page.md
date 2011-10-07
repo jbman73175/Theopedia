@@ -10,7 +10,7 @@
 [Transcendence](Transcendence_of_God "Transcendence of God") —
 [God the Father](God_the_Father "God the Father") —
 [Trinity](Trinity "Trinity") —
-[Perichoresis](Perichoresis "Perichoresis")—[More](God "God")
+[Perichoresis](Perichoresis "Perichoresis")—[More](God "God") 
 
 ## [Jesus Christ](Jesus_Christ "Jesus Christ")
 
