@@ -22,6 +22,7 @@ helped the people to understand the Law, while the people remained
 in their places. They read from the book, from the Law of God,
 clearly, and they gave the sense, so that the people understood the
 reading. (Nehemiah 8:7-8)
+
 ## Multimedia
 
 -   [What is a Good Translation?](http://www.gordonconwell.edu/audio/dimensions/htsb/htsb02.ram)
@@ -29,18 +30,6 @@ reading. (Nehemiah 8:7-8)
     ([Study Guide](http://www.gordonconwell.edu/ockenga/dimensions/htsb/pdf/studying_02.pdf))
 -   [Why So Many Versions?](http://biblicaltraining.org/audio/CH201/history_04_MSTR.mov)
     (Quicktime), by Daniel Wallace
-
-## Contents
-
--   [1 Timeline of Bible Translation History](#Timeline_of_Bible_Translation_History)
--   [2 Translation ministries](#Translation_ministries)
--   [3 See also](#See_also)
--   [4 References](#References)
--   [5 Further reading](#Further_reading)
--   [6 External links](#External_links)
-
-
-
 
 ## Timeline of Bible Translation History
 
