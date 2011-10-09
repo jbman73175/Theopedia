@@ -8,24 +8,6 @@ is to present the major themes (i.e.
 organized and ordered overview that remains faithful to the
 biblical witness.
 
-##Multimedia
-
--   [Lessons in Christian Essentials](http://www.christianessentialssbc.com/templates/System/details.asp?id=31463&PID=337073)
-    (MP3s), by [Wayne Grudem](Wayne_Grudem "Wayne Grudem")
--   [Introduction, or the Idea, Material and Method of Systematic Theology](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/001_SLJ_69_32K.mp3)
-    (MP3), by S. Lewis Johnson
--   Courses by [Bruce Ware](Bruce_Ware "Bruce Ware") (QuickTime and
-    MP3 files)
-    -   [Systematic Theology (Foundations)](http://www.biblicaltraining.org/class.php?class=TH103)
-    -   [Systematic Theology I](http://www.biblicaltraining.org/class.php?class=TH503)
-    -   [Systematic Theology II](http://www.biblicaltraining.org/class.php?class=TH504)
-
--   Courses by Douglas F. Kelly at Reformed Theological Seminary
-    (iTunes)
-    -   [Systematic Theology I](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1140737313.01140737318)
-    -   [Systematic Theology II](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155645894.01155645899)
-    -   [Systematic Theology III](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155760573.01155760578)
-
 Systematic theology integrates
 [biblical](Biblical_theology "Biblical theology"),
 [historical](Historical_theology "Historical theology") and
@@ -52,6 +34,24 @@ another. In the end, systematic theology should naturally flow into
 [practical theology](Practical_theology "Practical theology") where
 the conclusions drawn from Scripture are made applicable to the
 [Church](Church "Church").
+
+##Multimedia
+
+-   [Lessons in Christian Essentials](http://www.christianessentialssbc.com/templates/System/details.asp?id=31463&PID=337073)
+    (MP3s), by [Wayne Grudem](Wayne_Grudem "Wayne Grudem")
+-   [Introduction, or the Idea, Material and Method of Systematic Theology](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/001_SLJ_69_32K.mp3)
+    (MP3), by S. Lewis Johnson
+-   Courses by [Bruce Ware](Bruce_Ware "Bruce Ware") (QuickTime and
+    MP3 files)
+    -   [Systematic Theology (Foundations)](http://www.biblicaltraining.org/class.php?class=TH103)
+    -   [Systematic Theology I](http://www.biblicaltraining.org/class.php?class=TH503)
+    -   [Systematic Theology II](http://www.biblicaltraining.org/class.php?class=TH504)
+
+-   Courses by Douglas F. Kelly at Reformed Theological Seminary
+    (iTunes)
+    -   [Systematic Theology I](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1140737313.01140737318)
+    -   [Systematic Theology II](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155645894.01155645899)
+    -   [Systematic Theology III](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts.edu.1155760573.01155760578)
 
 ## General areas of systematic theology
 
