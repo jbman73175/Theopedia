@@ -1,3 +1,6 @@
+aliases:
+- Covenant_Theology
+---
 **Covenant Theology** (or **Federal theology**) is a prominent
 feature in [Protestant](Protestantism "Protestantism")
 [theology](Theology "Theology"), especially in the

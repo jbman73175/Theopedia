@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 **New Testament Textual Criticism** examines the existing
 manuscript witnesses to the New Testament in order to produce a
 text that is as close as possible to the original. The New

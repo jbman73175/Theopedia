@@ -1,3 +1,6 @@
+aliases:
+- Limited_atonement
+---
 The doctrine of **definite atonement** (or more commonly,
 **limited atonement**) addresses the purpose of the atoning death
 of Christ. It maintains that God's design and intent in sending

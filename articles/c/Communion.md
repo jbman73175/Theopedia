@@ -1,3 +1,6 @@
+aliases:
+- Lord's_Supper
+---
 **Communion**, also called **the Lord's Supper** in many Protestant
 denominations, or **the Eucharist** in the more liturgical
 churches, is one of the two [sacraments](Sacraments "Sacraments")

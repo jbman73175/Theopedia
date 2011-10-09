@@ -1,3 +1,6 @@
+aliases:
+- Philip_Melanchthon
+---
 **Philipp Melanchthon** (1497 - 1560) German author of the
 [Augsburg Confession](Augsburg_Confession "Augsburg Confession") of
 the Lutheran Church (1530), humanist, theologian, and educator.

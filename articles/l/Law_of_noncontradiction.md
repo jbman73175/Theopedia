@@ -1,3 +1,6 @@
+aliases:
+- Law_of_Noncontradiction
+---
 In order for something to be contradictory, it must violate the
 **law of noncontradiction**. This law states that A cannot be both
 A (what it is) and non-A (what it is not) at the same time and in

@@ -1,3 +1,6 @@
+aliases:
+- Great_Awakening
+---
 The **Great Awakenings** are a reference to notable periods of
 religious revival in Anglo-American religious history. There are
 three generally accepted Great Awakenings in American history:

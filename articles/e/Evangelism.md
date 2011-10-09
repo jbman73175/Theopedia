@@ -1,3 +1,6 @@
+aliases:
+- Talk:Evangelism
+---
 **Evangelism** is "the proclamation of
 [salvation](Salvation "Salvation") in [Christ](Jesus "Jesus") to
 those who do not believe in him, calling them to

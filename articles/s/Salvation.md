@@ -1,3 +1,6 @@
+aliases:
+- Soteriology
+---
 **Salvation**^[[1]](#note-0)^ refers to the act of God's grace in
 delivering his people from bondage to [sin](Sin "Sin") and
 condemnation, transferring them to the kingdom of his beloved Son

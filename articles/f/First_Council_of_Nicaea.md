@@ -1,3 +1,6 @@
+aliases:
+- Council_of_Nicea
+---
 The **First Council of Nicaea** was the first ecumenical council of
 bishops held in 325 AD at Nicaea in Asia Minor (modern Turkey). The
 purpose was to resolve disputes in the church - primarily those

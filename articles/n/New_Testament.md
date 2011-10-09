@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 [Old Testament](Old_Testament "Old Testament")
 **New Testament**
 -   [Matthew](Gospel_of_Matthew "Gospel of Matthew")

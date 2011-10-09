@@ -1,3 +1,6 @@
+aliases:
+- Incarnation_of_Christ
+---
 The **Incarnation of the Son of God** is the terminology used to
 describe what happened when the second person of the
 [Trinity](Trinity "Trinity"), the eternal Son of God, "became

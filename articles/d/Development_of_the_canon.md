@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 The **development of the canon** deals with how the
 [Bible](Bible "Bible") came to be. "The word 'canon' derives from
 the Hebrew term *qaneh* and the Greek term *kanon*, both of which

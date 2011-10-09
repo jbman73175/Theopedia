@@ -1,3 +1,8 @@
+aliases:
+- Hermeneutics
+blocks:
+- Bible
+---
 **Hermeneutics** is the science of interpreting what an author has
 written. In Christian theology, hermeneutics focuses specifically
 on constructing and discovering the appropriate rules for

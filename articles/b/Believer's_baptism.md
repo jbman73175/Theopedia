@@ -1,3 +1,6 @@
+aliases:
+- Credobaptism
+---
 **Believer's baptism** is the [Christian](Christian "Christian")
 practice of [baptism](Baptism "Baptism") in which the participant
 publicly professes faith in

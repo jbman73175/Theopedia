@@ -1,3 +1,6 @@
+aliases:
+- NLT
+---
 The **New Living Translation** was first published by Tyndale House
 in 1996, underwent a 2nd edition in 2004, sometimes noted as NLTse,
 and was most recently revised in 2007 with minor textual and

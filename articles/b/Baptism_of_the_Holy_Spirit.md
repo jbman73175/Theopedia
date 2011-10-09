@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 ## Pentecostal view
 
 Pentecostal theology teaches the Baptism in the Holy Spirit (or

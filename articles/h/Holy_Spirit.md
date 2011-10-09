@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 The **Holy Spirit** is the name of the third person in the
 [Trinity](Trinity "Trinity"), sometimes called the *Holy Ghost*.
 Jesus promised the [Apostles](Apostle "Apostle") that he would send

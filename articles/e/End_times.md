@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 **End times** is a popular term used when referring to various
 interpretations of the
 [Book of Revelation](Book_of_Revelation "Book of Revelation") and

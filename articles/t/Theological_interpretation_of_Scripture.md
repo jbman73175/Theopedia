@@ -1,3 +1,6 @@
+aliases:
+- Theological_interpretation
+---
 **Theological interpretation of Scripture** can be defined as
 "those readings of biblical texts that consciously seek to do
 justice to the perceived theological nature of the texts and

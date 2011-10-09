@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 The **historicity of the Old Testament** seeks to establish the
 historical trustworthiness of the Old Testament. This is based on
 two factors: the reliability of the Old Testament manuscripts, and

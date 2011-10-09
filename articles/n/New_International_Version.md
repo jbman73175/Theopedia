@@ -1,3 +1,6 @@
+aliases:
+- NIV
+---
 The **New International Version** (NIV) is an English translation
 of the Christian [Bible](Bible "Bible") and is the most popular of
 the modern translations of the Bible made in the twentieth

@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 Throughout history, the text of the [Bible](Bible "Bible") has been
 translated into many different languages so that peoples of all
 cultures and times can understand God's redemption story for His

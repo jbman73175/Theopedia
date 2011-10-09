@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 **Inaugurated eschatology** is a term used to describe the belief
 that the end times (or latter days) were inaugurated at the
 [life](Life_of_Jesus "Life of Jesus"),

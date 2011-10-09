@@ -1,3 +1,6 @@
+aliases:
+- Acts
+---
 **Acts of the Apostles**
 -   [Acts 1](Acts_1 "Acts 1")
 -   [Acts 2](index.php?title=Acts_2&action=edit&redlink=1 "Acts 2 (page does not exist)")

@@ -1,3 +1,6 @@
+aliases:
+- Satisfaction_theory
+---
 The **Satisfaction (or Commercial) theory** of the atonement was
 formulated by the medieval theologian [Anselm](Anselm "Anselm") of
 Canterbury (1033-1109) in his book, *Cur Deus Homo* (lit.

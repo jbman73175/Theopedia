@@ -1,3 +1,6 @@
+blocks:
+- Beginnings
+---
 Part of the series on  
 **[Humanity](Humanity "Humanity")**
 -   [Image of God](Image_of_God "Image of God")

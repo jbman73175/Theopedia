@@ -1,3 +1,6 @@
+aliases:
+- Systematic_Theology
+---
 **Systematic theology** is a discipline which addresses theological
 topics one by one (e.g. [God](God "God"), [Sin](Sin "Sin"),
 [Humanity](Humanity "Humanity")) and attempts to summarize all the

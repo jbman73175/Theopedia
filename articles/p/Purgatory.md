@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 In [Roman Catholic](Roman_Catholic "Roman Catholic") theology,
 **Purgatory** is a process of purification of the soul after death,
 following the particular judgment and ordinarily a requirement

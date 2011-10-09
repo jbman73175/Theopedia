@@ -1,3 +1,6 @@
+aliases:
+- ETS
+---
 The **Evangelical Theological Society** (est. 1949) is an
 association of Bible-believing scholars, educators, pastors, and
 students in North America that meets annually for intellectual

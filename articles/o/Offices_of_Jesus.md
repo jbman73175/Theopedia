@@ -1,3 +1,7 @@
+subtitle: Prophet, Priest, and King
+aliases:
+- Offices of Christ
+---
 Jesus is Prophet, Priest, and King.
 
 ##Multimedia

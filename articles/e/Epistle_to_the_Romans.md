@@ -1,3 +1,6 @@
+aliases:
+- Romans_8
+---
 [Old Testament](Old_Testament "Old Testament")
 [New Testament](New_Testament "New Testament")
 -   [Matthew](Gospel_of_Matthew "Gospel of Matthew")

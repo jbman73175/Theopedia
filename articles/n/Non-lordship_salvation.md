@@ -1,3 +1,6 @@
+aliases:
+- Non-lordship_salvation
+---
 **Non-lordship salvation** is a neutral term for
 **easy believism**, the "popular slogan for the view that one
 simply has to *believe* in order to be saved and that there is no

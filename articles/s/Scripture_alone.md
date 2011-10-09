@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 **Scripture alone** (from the Reformation slogan
 **Sola Scriptura**) is the teaching that [Scripture](Bible "Bible")
 is the Church's only infallible and sufficient rule for deciding

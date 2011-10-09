@@ -1,3 +1,6 @@
+aliases:
+- Word_of_faith_movement
+---
 The **Word of Faith** movement or **word-faith theology** developed
 in the latter half of the 20th century in mainly
 [Pentecostal](Pentecostalism "Pentecostalism") and

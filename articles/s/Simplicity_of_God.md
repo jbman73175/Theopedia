@@ -1,3 +1,6 @@
+aliases:
+- Divine_simplicity
+---
 The **simplicity of God** means that the being of [God](God "God")
 is "simple" and beyond composition. God is not complex in the sense
 that he is made up of distinct properties or constituents, nor can

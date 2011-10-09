@@ -1,3 +1,6 @@
+aliases:
+- Assurance_of_salvation
+---
 **Assurance**, not to be confused with
 [Eternal Security](Perseverance_of_the_saints#Eternal_Security "Perseverance of the saints")
 or

@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 ## Recognition in the future life
 
 Recognition in the future life is the issue of whether persons who

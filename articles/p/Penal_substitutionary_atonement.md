@@ -1,3 +1,7 @@
+aliases:
+- Substitutionary_atonement
+- Penal_substitution_theory_of_the_atonement
+---
 **Penal substitutionary atonement** refers to the doctrine that
 Christ died on the cross as a substitute for sinners. God imputed
 the guilt of our sins to Christ, and he, in our place, bore the

@@ -1,3 +1,7 @@
+aliases:
+- Christian_Perfection
+- Talk:Wesleyanism
+---
 **Wesleyan perfectionism**, sometimes called
 **entire sanctification**, is a view held by
 [John Wesley](John_Wesley "John Wesley") that taught that

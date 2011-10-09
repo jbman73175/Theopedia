@@ -1,3 +1,7 @@
+aliases:
+- John_8
+- John_11
+---
 **Gospel of John**
 -   [John 1](John_1 "John 1")
 -   [John 2](John_2 "John 2")

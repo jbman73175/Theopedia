@@ -1,3 +1,6 @@
+aliases:
+- Eastern_Orthodox
+---
 The **Eastern Orthodox Church** is a body of eastern churches
 adhering to the first seven
 [Ecumenical councils](Ecumenical_councils "Ecumenical councils"),

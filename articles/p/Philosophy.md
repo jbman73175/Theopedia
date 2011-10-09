@@ -1,3 +1,6 @@
+aliases:
+- Category:Philosophy
+---
 ## Philosophy as it relates to theology
 
 Although the list under "General philosophy" is and can be related

@@ -1,3 +1,8 @@
+aliases:
+- Inerrancy
+blocks:
+- Bible
+---
 "**Inerrancy** is the view that when all the facts become known,
 they will demonstrate that the [Bible](Bible "Bible")
 *in its original autographs* and correctly interpreted is entirely

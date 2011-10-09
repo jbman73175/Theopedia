@@ -1,3 +1,6 @@
+blocks:
+- Beginnings
+---
 Part of the series on  
 **Beginnings**
 -   [Genesis](Genesis "Genesis")

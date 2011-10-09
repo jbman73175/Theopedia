@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 The **Bible** is the sacred book of
 [Christianity](Christianity "Christianity"), a collection of
 ancient writings [inspired](Inspiration "Inspiration") by

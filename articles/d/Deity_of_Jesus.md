@@ -1,3 +1,6 @@
+aliases:
+- Deity_of_Christ
+---
 The **deity of Jesus** is considered an
 [essential doctrine](Essential_doctrines "Essential doctrines") and
 is a central non-negotiable belief within Christianity. Also known

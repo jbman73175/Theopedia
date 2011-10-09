@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 "The [Bible](Bible "Bible") clearly represents the
 [Holy Spirit](Holy_Spirit "Holy Spirit") as possessing divine
 attributes and exercising divine authority. Since the fourth

@@ -1,3 +1,6 @@
+aliases:
+- Jesus
+---
 **Jesus Christ** is the originator and focus of the Christian faith
 based on the teaching of the Holy [Bible](Bible "Bible"). He is the
 eternal second person of the [Triune](Trinity "Trinity") God who

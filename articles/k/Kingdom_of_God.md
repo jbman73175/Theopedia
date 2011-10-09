@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 The presence and coming of the **Kingdom of God** was the central
 message of [Jesus](Jesus "Jesus"). For example, "his teaching was
 designed to show men how they might enter the Kingdom of God (Matt.

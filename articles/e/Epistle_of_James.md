@@ -1,3 +1,6 @@
+aliases:
+- Commentary_James_Chapter_1
+---
 **Epistle of James**
 -   [James 1](James_1 "James 1")
 -   [James 2](James_2 "James 2")

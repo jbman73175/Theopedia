@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 **Tartarus** comes from the [Greek](Greek "Greek") word *Tartaroo*
 which is used only once in the New Testament in 2 Peter 2:4.
 

@@ -1,3 +1,6 @@
+aliases:
+- Apostle_Paul
+---
 **Paul**, also known as **Paul of Tarsus** (c. 9 - c. 65), was a
 Roman citizen and [apostle](Apostle "Apostle") in the early church
 shortly after the death of [Jesus](Jesus "Jesus"). He is one of the

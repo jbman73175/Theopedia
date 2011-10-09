@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 "The temporary abode of the unbeliever after death. The word Hades
 occurs ten times in the New Testament (Matt. 11:23; 16:18; Luke
 10:15; 16:23; Acts 2:27; 2:31; Rev. 1:18; 6:8; 20:13, 14). Hades is

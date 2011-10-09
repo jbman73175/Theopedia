@@ -1,3 +1,6 @@
+aliases:
+- Liberalism
+---
 **Theological liberalism**, sometimes known as
 *Protestant Liberalism*, is a theological movement rooted in the
 early 19th century German Enlightenment, notably in the philosophy

@@ -1,3 +1,7 @@
+aliases:
+- Commentary_Psalms_Chapter_29
+- Psalms
+---
 [Old Testament](Old_Testament "Old Testament")
 -   [Genesis](Genesis "Genesis")
 -   [Exodus](Book_of_Exodus "Book of Exodus")

@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 ## See also
 
 -   [New Testament Textual Criticism](New_Testament_Textual_Criticism "New Testament Textual Criticism")

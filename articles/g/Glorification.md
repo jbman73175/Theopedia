@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 Part of the series on  
 **[End Times](End_times "End times")**
 -   [Inaugurated eschatology](Inaugurated_eschatology "Inaugurated eschatology")

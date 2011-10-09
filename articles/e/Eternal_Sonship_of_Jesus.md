@@ -1,3 +1,6 @@
+aliases:
+- Eternal_Sonship
+---
 "The doctrine of **Eternal Sonship** simply affirms that the second
 person of the triune Godhead has eternally existed as the Son. In
 other words there was never a time when He was not the Son of God

@@ -1,3 +1,7 @@
+aliases:
+- Reformation
+- Protestant_reformation
+---
 "The **Protestant Reformation** was a major 16th century European
 movement aimed initially at reforming the beliefs and practices of
 the

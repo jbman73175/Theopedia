@@ -1,3 +1,6 @@
+aliases:
+- Sinlessness_of_Christ
+---
 The **Sinlessness of Jesus** is clearly taught in the
 [Bible](Bible "Bible"). In
 [Hebrews](Epistle_to_the_Hebrews "Epistle to the Hebrews") we read

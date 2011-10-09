@@ -1,3 +1,6 @@
+aliases:
+- Godhead
+---
 The **Trinity** is the [Christian](Christian "Christian")
 [doctrine](Doctrine "Doctrine") that deals with and describes the
 [nature](Nature "Nature") of [God](God "God"). The doctrine asserts

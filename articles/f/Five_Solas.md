@@ -1,3 +1,6 @@
+aliases:
+- Five_solas
+---
 The **Five Solas** are five Latin phrases (or slogans) that emerged
 from the
 [Protestant Reformation](Protestant_Reformation "Protestant Reformation")

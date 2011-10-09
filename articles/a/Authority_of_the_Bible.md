@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 The **authority of the Bible** refers to the idea that the
 [Bible](Bible "Bible") is normative for the
 [church](Church "Church") in all speech, thought, and practice. In

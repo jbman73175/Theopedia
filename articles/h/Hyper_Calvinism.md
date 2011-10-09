@@ -1,3 +1,6 @@
+aliases:
+- Hyper-Calvinism
+---
 The term **Hyper-Calvinism** refers primarily to a theological
 position that historically arose from within the
 [Calvinist](Calvinism "Calvinism") tradition among the early

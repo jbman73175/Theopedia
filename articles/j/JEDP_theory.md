@@ -1,3 +1,6 @@
+aliases:
+- JEDP_Theory
+---
 The **JEDP theory** seeks to understand the authorship of the
 [Pentateuch](Pentateuch "Pentateuch") in light of the Documentary
 Hypothesis. This view believes that the Pentateuch represents the

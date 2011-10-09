@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 **Biblical criticism** is an umbrella term covering various
 techniques for applying literary *historical-critical* methods in
 analyzing and studying the [Bible](Bible "Bible") and its textual

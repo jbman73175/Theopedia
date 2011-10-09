@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 ## Types of gifts
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*

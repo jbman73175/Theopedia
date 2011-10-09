@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 The [doctrine](Doctrine "Doctrine") of the **clarity of Scripture**
 (often called the "perspicuity of Scripture") teaches that "the
 meanings of the text can be clear to the ordinary reader, that God

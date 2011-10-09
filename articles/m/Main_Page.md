@@ -1,3 +1,7 @@
+title: Theopedia, an encyclopedia of Biblical Christianity
+aliases:
+- Main_page
+---
 ## [God](God "God")
 
 [Arguments for his existence](Arguments_for_the_existence_of_God "Arguments for the existence of God") –

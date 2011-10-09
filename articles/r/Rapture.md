@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 The **Rapture** is the popular term used to describe one perceived
 view of the [Lord's return](Parousia "Parousia") based on the
 writings of the [Apostle](Apostle "Apostle") [Paul](Paul "Paul") in

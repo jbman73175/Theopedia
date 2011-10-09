@@ -1,3 +1,7 @@
+aliases:
+- NPP
+- New_Perspectivism
+---
 The **New Perspective on Paul**, also called **New Perspectivism**
 (hereafter NPP) is a system of thought in New Testament scholarship
 that seeks to reinterpret the Apostle [Paul](Paul "Paul") and his

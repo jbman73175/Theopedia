@@ -1,3 +1,6 @@
+aliases:
+- Augustine
+---
 **Aurelius Augustinus** (354 - 430) is often simply referred to as
 **St. Augustine** or **Augustine Bishop of Hippo** (the ancient
 name of the modern city of Annaba in Algeria). He is the

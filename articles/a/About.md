@@ -1,3 +1,7 @@
+aliases:
+- Theopedia:About
+- Theopedia
+---
 '''Theopedia''' is a growing online encyclopedia of biblical [[Christianity]]. Theopedia uses [[wikipedia:Wiki|wiki]] technology, which is essentially a community-driven, information-management system. Contributors may add and edit articles and refine their information and presentation. However, these additions and modifications must be "sight checked" by an authorized editor/reviewer before they are incorporated into the public version (stable page).
 
 In this manner, Theopedia becomes a network of interconnected pages, constantly being refined and updated. We invite you to [[How to contribute|join us]]!  Please see the [[Theopedia:Statement_of_faith|Statement of Faith]] and [[Writing guide]] for additional necessary information.  The Theopedia owner and head administrator is [[User:Aaronshaf|Aaron]] who is assisted by [[Theopedia:Administrators|other administrators]].

@@ -1,3 +1,8 @@
+aliases:
+- Genesis_1
+blocks:
+- Beginnings
+---
 [Old Testament](Old_Testament "Old Testament")
 -   **Genesis**
 -   [Exodus](Book_of_Exodus "Book of Exodus")

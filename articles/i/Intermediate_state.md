@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 The **intermediate state** describes the period between death and
 resurrection. Because it is *intermediate* there is an aspect of
 incompleteness, and all of the promises of God are not fully

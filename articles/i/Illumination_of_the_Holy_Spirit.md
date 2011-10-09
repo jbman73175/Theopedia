@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 The **illumination of the Holy Spirit** is "[t]he process by which
 God's Holy Spirit enables us to understand His word and apply it to
 our lives."

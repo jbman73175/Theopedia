@@ -1,3 +1,6 @@
+aliases:
+- Jewishness_of_Christ
+---
 
 ## External links
 

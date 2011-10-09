@@ -1,3 +1,6 @@
+aliases:
+- Category:God
+---
 **God** is the [triune](Trinity "Trinity") Supreme Being, the
 sovereign Creator and Ruler of the universe, the principal Object
 of the Christian faith. "From the biblical viewpoint it is

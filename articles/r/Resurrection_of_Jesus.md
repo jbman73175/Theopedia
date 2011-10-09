@@ -1,3 +1,6 @@
+aliases:
+- Resurrection_of_Christ
+---
 The **Resurrection of Jesus** is the miraculous act of God the
 Father,^[[1]](#note-0)^ raising Jesus from the dead, confirming all
 that Jesus said and did, demonstrating his power over life and

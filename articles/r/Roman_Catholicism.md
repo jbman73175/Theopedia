@@ -1,3 +1,7 @@
+aliases:
+- Roman_Catholic
+- Roman_Catholic_Church
+---
 The **Roman Catholic Church** is the largest branch of Christianity
 and the world's largest religious organization. It is headquartered
 in Vatican City, which is contained in the city of Rome, and is led

@@ -1,3 +1,6 @@
+aliases:
+- Lutheran
+---
 **Lutheranism** is the name used to describe the movement following
 [Martin Luther's](Martin_Luther "Martin Luther") call to reform the
 [Roman Catholic Church](Roman_Catholic_Church "Roman Catholic Church")

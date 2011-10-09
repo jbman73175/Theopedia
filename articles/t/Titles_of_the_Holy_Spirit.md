@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 -   [Holy Spirit](Holy_Spirit "Holy Spirit")
 -   Holy Ghost - KJV
 -   Spirit

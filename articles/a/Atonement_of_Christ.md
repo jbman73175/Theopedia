@@ -1,3 +1,6 @@
+aliases:
+- Atonement_of_Jesus
+---
 The **[Atonement](Atonement "Atonement") of Christ** is the
 sacrificial work of [Jesus](Jesus "Jesus") for sinners. In his
 death on the cross, Christ atoned for the sins of humanity such

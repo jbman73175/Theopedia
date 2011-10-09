@@ -1,3 +1,6 @@
+aliases:
+- NASB
+---
 The **New American Standard Bible (NASB)** is an English
 translation of the [Bible](Bible "Bible") published by the Lockman
 Foundation in 1971 and most recently revised in 1995. The NASB is

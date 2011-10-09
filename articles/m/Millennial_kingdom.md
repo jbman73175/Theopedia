@@ -1,3 +1,8 @@
+aliases:
+- Millennial_Kingdom
+blocks:
+- End_times
+---
 The **Millennial kingdom** refers to the *thousand-year* reign of
 [Christ](Jesus "Jesus") specifically mentioned in
 [Revelation](Revelation "Revelation") 20:1-6. This is usually seen

@@ -1,3 +1,6 @@
+aliases:
+- Tulip
+---
 Part of the series on the  
 **Sovereignty of God**
 -   [Calvinism](Calvinism "Calvinism")

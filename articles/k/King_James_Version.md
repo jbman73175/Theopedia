@@ -1,3 +1,6 @@
+aliases:
+- KJV
+---
 The **King James Version** or **KJV**, which is known in Britain as
 the **Authorised Version**, is an
 [English translation of the Bible](English_translations_of_the_Bible "English translations of the Bible")

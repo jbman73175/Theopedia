@@ -1,3 +1,6 @@
+aliases:
+- List of God
+---
 ## Eternal
 
 God exists forever, meaning he has no beginning or end (cf. Psalm

@@ -1,3 +1,6 @@
+aliases:
+- Imputation_of_Adam's_sin
+---
 Part of the series on  
 **[Humanity](Humanity "Humanity")**
 -   [Image of God](Image_of_God "Image of God")

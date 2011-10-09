@@ -1,3 +1,6 @@
+aliases:
+- Emerging_church
+---
 [![Broom icon.png](images/thumb/9/90/Broom_icon.png/30px-Broom_icon.png.pagespeed.ce.3MDzK_R-j-.png)](http://www.theopedia.com/File:Broom_icon.png)
 **This article or section may require cleanup to meet Theopedia's *[quality standards](http://www.theopedia.com/Theopedia:Writing_guide "Theopedia:Writing guide")*.**  
 Please discuss this issue on the

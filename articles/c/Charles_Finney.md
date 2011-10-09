@@ -1,3 +1,6 @@
+aliases:
+- Charles_Grandison_Finney
+---
 [![image](images/thumb/b/bf/Charlesfinney.jpg/120px-Charlesfinney.jpg)](http://www.theopedia.com/File:Charlesfinney.jpg)
 [![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Charlesfinney.jpg "Enlarge")
 Charles Finney

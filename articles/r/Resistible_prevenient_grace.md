@@ -1,3 +1,6 @@
+aliases:
+- Universal_prevenient_grace
+---
 **Resistible prevenient grace** is a doctrine concerning a type of
 grace that offsets the noetic effects of the Fall, restores man's
 free will, and thus enables every person to choose to come to

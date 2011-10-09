@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 The Holy Spirit is a personal being just as the Father and the Son.
 The Spirit is not an impersonal “it” or simply an
 influence.[[1]](http://www.bible.org/page.asp?page_id=392)

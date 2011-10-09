@@ -1,3 +1,7 @@
+title: Apostles' Creed
+aliases:
+- Apostles'_Creed
+---
 ## History
 
 The **Apostles' Creed** is an early statement of Christian belief,

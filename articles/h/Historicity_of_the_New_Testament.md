@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 Christianity is "built upon the foundation of faith in the
 historical Jesus who is revealed by the historical New Testament
 documents. It is of utmost importance that these documents show

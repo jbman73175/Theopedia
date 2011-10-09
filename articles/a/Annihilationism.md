@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 **Annihilationism** is the belief that the final fate of those who
 are not saved is literal and final death and destruction. It runs
 counter to the mainstream traditional Christian understanding of

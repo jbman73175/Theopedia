@@ -1,3 +1,6 @@
+aliases:
+- Unconditional_election
+---
 Part of the series on the  
 **Sovereignty of God**
 -   [Calvinism](Calvinism "Calvinism")

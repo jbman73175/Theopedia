@@ -1,3 +1,6 @@
+aliases:
+- Cocceius
+---
 **Johannes Cocceius** (1603 - 1669), Dutch
 [theologian](Theologian "Theologian"), was born at Bremen in
 Germany.^[[1]](#note-0)^

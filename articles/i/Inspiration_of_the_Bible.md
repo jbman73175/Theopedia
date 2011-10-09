@@ -1,3 +1,8 @@
+aliases:
+- Inspiration
+blocks:
+- Bible
+---
 **Inspiration** establishes that the [Bible](Bible "Bible") is a
 divine product. In other words, Scripture is divinely *inspired* in
 that God actively worked through the process and had his hand in

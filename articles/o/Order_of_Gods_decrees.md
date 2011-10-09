@@ -1,3 +1,6 @@
+aliases:
+- Order_of_God's_decrees
+---
 Part of the series on the  
 **Sovereignty of God**
 -   [Calvinism](Calvinism "Calvinism")

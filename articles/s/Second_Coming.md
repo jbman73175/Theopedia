@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 The **Second Coming** or *Second Advent* of
 [Jesus Christ](Jesus_Christ "Jesus Christ") is seen as a yet future
 event by Christians. Jesus Christ's first coming, about 2,000 years

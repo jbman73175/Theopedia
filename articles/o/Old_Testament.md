@@ -1,3 +1,6 @@
+blocks:
+- Bible
+---
 **Old Testament**
 -   [Genesis](Genesis "Genesis")
 -   [Exodus](Book_of_Exodus "Book of Exodus")

@@ -1,3 +1,6 @@
+blocks:
+- End_times
+---
 **Sheol**, is a Hebrew word in the Old Testament referring either
 to the abode of the wicked or to the *grave* or *death*.
 

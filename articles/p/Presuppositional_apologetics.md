@@ -1,3 +1,6 @@
+aliases:
+- Presuppositionalism
+---
 **Presuppositional apologetics** is the "school of
 [apologetics](Apologetics "Apologetics") developed by
 [Cornelius Van Til](Cornelius_Van_Til "Cornelius Van Til"). It

@@ -1,3 +1,6 @@
+aliases:
+- Exodus
+---
 [Template:Chapters in Exodus](http://www.theopedia.com/index.php?title=Template:Chapters_in_Exodus&action=edit&redlink=1 "Template:Chapters in Exodus (page does not exist)")
 
 [Old Testament](Old_Testament "Old Testament")

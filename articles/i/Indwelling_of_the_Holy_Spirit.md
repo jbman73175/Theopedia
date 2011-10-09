@@ -1,3 +1,6 @@
+blocks:
+- Holy_Spirit
+---
 ## Multimedia 
 
 -   [The Holy Spirit's Work in Indwelling](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/075_SLJ_69_32K.mp3)
