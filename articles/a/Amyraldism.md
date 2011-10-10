@@ -13,7 +13,9 @@ whom he will bring to faith in Christ, thereby preserving the
 Calvinist doctrine of
 [unconditional election](Unconditional_election "Unconditional election").^[[1]](#note-0)^
 
-It has also been defined in this manner: "Amyraldianism . . .
+It has also been defined in this manner:
+
+> "Amyraldianism . . .
 implies a twofold will of God, whereby he wills the salvation of
 all humankind on condition of faith but wills the salvation of the
 elect specifically and unconditionally. The theological difficulty
@@ -61,18 +63,6 @@ consistent Calvinists than Amyraut. For instance, many so-called
 not only reject the doctrine of limited atonement but also deny
 that regeneration must logically precede faith (a tenet of
 Calvinism which Amyraut upheld).
-
-
-
-## Contents
-
--   [1 Historical background](#Historical_background)
-    -   [1.1 Amyraldism in 17th century England and Scotland](#Amyraldism_in_17th_century_England_and_Scotland)
-    -   [1.2 Amyraldism today](#Amyraldism_today)
-
--   [2 Notes](#Notes)
--   [3 See also](#See_also)
--   [4 External links](#External_links)
 
 ## Historical background
 
@@ -176,7 +166,6 @@ brought to an abrupt close by the political oppressions of the
 Reformed Church in France.
 
 *This background section is extracted from Schaff* ^[[5]](#note-4)^
-
 
 ### Amyraldism in 17th century England and Scotland
 
