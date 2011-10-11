@@ -516,6 +516,7 @@ capitalism to flourish where it was practiced.
 -   [A Quincentenary](http://www.calvin500.org/index.html),
     celebrating 500 years after Calvin's birth (2009)
 -   [D Schneider blog](http://calvinismonline.blogspot.com/)
+-   (Calvin Killed a Man](http://www.thevillagechurch.net/the-village-blog/calvin-killed-a-man/), by Geoff Ashley
 
 ### Online writings by Calvin
 
@@ -544,6 +545,3 @@ capitalism to flourish where it was practiced.
 -   [John Calvin on ‘Before All Ages’](http://tyndalehouse.com/tynbul/library/TynBull_2002_53_1_08_Helm_CalvinBeforeAges.pdf)
     (PDF), by [Paul Helm](Paul_Helm "Paul Helm") *Tyndale Bulletin*
     53.1 (2002): 143-148
-
-
-
