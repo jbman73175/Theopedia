@@ -14,16 +14,6 @@ one thing only – the cause at hand."^[[1]](#note-0)^ A case in
 point would be conservative evangelicals allying with the Roman
 Catholic Church in joint efforts to oppose abortion.
 
-*This article is a **[stub](http://www.theopedia.com/Category:Theopedia_stubs "Category:Theopedia stubs")**. Please edit it to add information.*
-## Contents
-
--   [1 See also](#See_also)
--   [2 Notes](#Notes)
--   [3 External links](#External_links)
-    -   [3.1 Favorable / sympathetic](#Favorable_.2F_sympathetic)
-    -   [3.2 Critical](#Critical)
-
-
 ## See also
 
 -   [Ecumenism](Ecumenism "Ecumenism")
