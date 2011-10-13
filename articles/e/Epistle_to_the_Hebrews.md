@@ -30,6 +30,7 @@
 
 ##Multimedia
 
+-   [Hebrews Recited](http://vimeo.com/30397355), by Joel at Covenant Fellowship Church
 -   [Hebrews Narrated in the ESV](http://www.gnpcb.org/esv/search/?q=hebrews)
     (flash), by Max McLean
 -   [Sermons on Hebrews](http://www.archive.org/audio/audio-details-db.php?collectionid=Hebrews&collection=opensource_audio)
