@@ -72,6 +72,7 @@
     [Trinity School of Apologetics and Theology](http://www.trinitytheology.org/)
 -   [American Theological Inquiry](http://www.atijournal.org/)
 -   [Foundations](http://www.affinity.org.uk/smartweb/resources/foundations)
+-   [Credo](http://www.credomag.com/the-magazine/current-issue/)
 
 ## Other collections
 
