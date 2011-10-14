@@ -78,10 +78,10 @@ significance in the context of the interpreter's community.
 
 ### Constructive works
 
+-   *Pictures at a Biblical Exhibition: Theological Scenes of the Church’s Worship, Witness, and Wisdom*.
+    IVP, forthcoming.
 -   *Remythologizing Theology: Divine Action, Passion, and Authorship*.
     Cambridge University Press, 2010.
--   *Pictures at a Biblical Exhibition: Theological Scenes of the Church’s Worship, Witness, and Wisdom*.
-    IVP, 2010.
 -   *The Drama of Doctrine: A Canonical-linguistic Approach to Christian Theology*.
     Westminster John Knox, 2005.
 -   *First Theology: God, Scripture & Hermeneutics*. IVP, 2002.
