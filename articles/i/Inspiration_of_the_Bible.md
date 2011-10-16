@@ -224,6 +224,4 @@ just such letters (*The Inspiration and Authority of the Bible*).
     by Rick Wade
 -   [A Thorough Study of Inspiration](http://kukis.org/Inspiration/StudyInspiration.htm#Biblical%20Claims%20for%20Inspiration)
     by Gary Kukis
-
-
-
+-   [Is it Legitimate to Compare the Divine/Human Nature of Scripture to the Divine/Human Nature of Christ?](http://dogmadoxa.blogspot.com/2011/10/is-it-legitimate-to-compare-divinehuman.html), by Dane Ortlund (with J.I. Packer quote)
