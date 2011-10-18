@@ -1,5 +1,3 @@
-[![image](images/thumb/f/fc/Footwashing.jpg/180px-Footwashing.jpg)](http://www.theopedia.com/File:Footwashing.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:Footwashing.jpg "Enlarge")
 Membership requires both discipleship and love (cf. John 13:8).
 **Church membership** affiliates an individual believer with a
 specific local congregation. It is often a formalized public
