@@ -2,13 +2,6 @@
 Christian missionary to Ecuador, where he was killed by Huaorani
 Indians.
 
-## Multimedia
-
--   Jim Elliot sermons provided by Wheaton College: Feeding of the
-    Five Thousand & Resurrection
-    [Listen](http://www.wheaton.edu/bgc/archives/docs/elliotsermons.html)(Real
-    Player)
-
 Elliot was born in Portland, Oregon to Fred and Clara Elliot, and
 became a Christian at a young age. He graduated from Wheaton
 College in 1949, with a degree in Greek. He arrived in Ecuador on
@@ -44,6 +37,13 @@ published two books,
 *Shadow of the Almighty : The Life and Testament of Jim Elliot* and
 *Through Gates of Splendor*, which describe the life and death of
 her husband.
+
+## Multimedia
+
+-   Jim Elliot sermons provided by Wheaton College: Feeding of the
+    Five Thousand & Resurrection
+    [Listen](http://www.wheaton.edu/bgc/archives/docs/elliotsermons.html)(Real
+    Player)
 
 ## Quotes
 
