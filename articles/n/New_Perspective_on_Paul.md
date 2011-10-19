@@ -27,7 +27,7 @@ directly affect the [Protestant](Protestant "Protestant") doctrine
 of [Justification](Justification "Justification") by Faith
 ([Sola Fide](Sola_Fide "Sola Fide")).
 
-##Multimedia
+## Multimedia
 
 -   [The New Perspective on Paul](http://deimos3.apple.com/WebObjects/Core.woa/Browse/rts-public.1379649738.01379649741)
     (iTunes Link) (MP3s), by
@@ -82,7 +82,7 @@ Although not every NPP scholar agrees on every point, the following
 may serve as a general outline of core beliefs that remain
 fundamental to the NPP claim(s).
 
-### Grace in first-century Judaism
+### Grace in first-century Judaism ###
 
 A fundamental premise in the NPP is that Judaism was actually a
 religion of grace. Sander's puts it clearly:
@@ -121,7 +121,7 @@ understanding of grace found within the NT and
 Westerholm notes above, this "grace" can be understood very
 differently.
 
-### Pattern of religion: Covenantal Nomism
+### Pattern of religion: Covenantal Nomism ###
 
 [E.P. Sanders](E.P._Sanders "E.P. Sanders") is known for coining
 the term "covenantal nomism." This term is essential to the NPP
@@ -158,7 +158,7 @@ but with "how to remain his covenant people." This has sometimes
 been compared to the issue of "keeping" or "losing one's
 salvation."
 
-### The pre-Christian Saul
+### The pre-Christian Saul ###
 
 Proponents of New Perspectivism usually argue that Paul, before
 [conversion](Conversion "Conversion"), was more of a zealout for
@@ -181,7 +181,7 @@ conversion he *was* changed, but he was still a Jew. Everything he
 knew as "Saul," the Pharisee, did not just go away. It was
 radically changed due to his encounter with Jesus.
 
-### What Paul finds wrong with Judaism
+### What Paul finds wrong with Judaism ###
 
 Supporters of the NPP vary in what they believe Paul found wrong
 with Judaism. [Sanders](E.P._Sanders "E.P. Sanders") writes in his
@@ -226,7 +226,7 @@ in that not all of them agree on what is meant, for example, by
 "works of the law." Some issues, however, *are* more generally
 accepted such as "boundary markers."
 
-### Works of the Law
+### Works of the Law ###
 
 "The key questions involve Paul's view(s) of the law and the
 meaning of the controversy in which Paul was engaged. Paul strongly
@@ -269,7 +269,8 @@ thing, he never understands what I take to be Paul’s fundamental
 covenant theology; for another, his typically protestant
 anti-sacramentalism leads him to miss the point of Romans 6."
 [[3]](http://www.ntwrightpage.com/Wright_New_Perspectives.htm)
-### Boundary Markers
+
+### Boundary Markers ###
 
 Boundary markers are observances such as circumcision, food laws,
 the sabbath etc. that separated the Jews from the Gentiles. One
@@ -285,7 +286,7 @@ the law," he was referring to these "boundary markers" rather than
 a system of works-righteousness, as is presumed in the traditional
 understanding of Paul's arguments.
 
-### The righteousness of God
+### The righteousness of God ###
 
 Proponents of New Perspectivism argue that the righteousness of
 God, spoken of by Paul in Romans, is refering to God's faithfulness
@@ -302,7 +303,8 @@ mean that he or she has tried the case properly or impartially. To
 imagine the defendant somehow receiving the judge's righteousness
 is simply a category mistake. That is not how the language works."
 - [N.T. Wright](http://www.thepaulpage.com/Summary.html)
-### Faith vs. works
+
+### Faith vs. works ###
 
 NPP advocates argue that the traditional dichotomy of faith and
 works isn't present in Paul. Rather present is a dichotomy of
@@ -312,7 +314,7 @@ Gentiles into this convenant).
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
 
-### Boasting in Jewish culture
+### Boasting in Jewish culture ###
 
 [Simon Gathercole](Simon_Gathercole "Simon Gathercole") has written
 a solid book, *Where is Boasting?* (2002), which deals with the
@@ -342,6 +344,7 @@ the Torah even as he claims it as the basis for his confidence
 (2:23). The boast of the Jew, then, is for Paul something very
 different from the boast of the Christians in Romans 5:1-11 (p.
 261).
+
 ## N.T. Wright
 
 As stated above, NPP proponents agree on some things, however not
@@ -355,7 +358,7 @@ wishing to understand the New Perspective should understand and be
 familiar with his writings as he is the most widely read of any NPP
 writer.
 
-### Justification
+### Justification ###
 
 According to Wright, justification isn't merely an *initial means*
 by which someone is right with [God](God "God"), but rather a mark
@@ -393,7 +396,7 @@ historical approach to the issue and criticize opponents as reading
 their view of justification into the text in the same way
 [Luther](Martin_Luther "Martin Luther") did.
 
-### Denial of imputed righteousness
+### Denial of imputed righteousness ###
 
 N.T. Wright reinterprets texts classically used as prooftexts for
 [imputed righteousness](Imputed_righteousness "Imputed righteousness").
@@ -419,7 +422,7 @@ Wright does not believe God's righteousness is anything that he can
 *give* or that can be *transfered* to a believer. The believer is
 simply *declared* righteous because he is now a covenant member.
 
-### Still in Exile?
+### Still in Exile? ###
 
 Wright thinks that the many of the Jews of Jesus' day regarded
 Israel as 'still in exile' and that Messiah's coming would deliver
@@ -438,7 +441,7 @@ Passover Lamb'.
 
 ## Other criticism(s)
 
-### Justification and Variegated Nomism
+### Justification and Variegated Nomism ###
 
 *Justification and Variegated Nomism* is a two-volume work, the
 first being published in 2001, the second in 2004, which deals with
@@ -514,7 +517,7 @@ text.
 
 ## Further reading
 
-### Favorable
+### Favorable ###
 
 -   *Paul and Palestinian Judaism: A Comparison of Patterns of Religion*,
     by E. P. Sanders
@@ -539,7 +542,7 @@ text.
 -   *Paul and the Mosaic Law*, by James D.G. Dunn
     [ISBN 0802844995](http://www.theopedia.com/Special:BookSources/0802844995)
 
-### Critical
+### Critical ###
 
 -   *Getting the Gospel Right: Assessing the Reformation and New Perspectives on Paul*,
     Cornelis P. Venema (2006).
@@ -589,14 +592,14 @@ text.
     Report of Ad Interim Study Committee on Federal Vision, New
     Perspective, and Auburn Avenue Theologies
 
-### Bibliographies
+### Bibliographies ###
 
 -   [Bibliography of Works on the New Perspective on Paul](http://www.tms.edu/tmsj/tmsj16l.pdf)
     (PDF), compiled by Dennis M. Swanson (*TMSJ* 16/2 [Spring 2005]
     317-324)
 -   [The New Perspective on Paul: A Bibliographical Essay](http://www.thepaulpage.com/Bibliography.html)
 
-### Favorable
+### Favorable ###
 
 -   [NT Wright Page](http://ntwrightpage.com)
 -   [Paul's Perspective](http://paulperspective.com)
@@ -608,7 +611,7 @@ text.
 -   [An Interview with N.T. Wright](http://www.hornes.org/theologia/content/travis_tamerius/interview_with_n_t_wright.htm),
     by Travis Tamerius
 
-### Critical
+### Critical ###
 
 -   [The Attractions of the New Perspective(s) on Paul](http://www.alliancenet.org/partner/Article_Display_Page/0,,PTID307086%7CCHID560462%7CCIID1660662,00.html),
     by Ligon Duncan
