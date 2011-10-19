@@ -311,6 +311,7 @@ practices vs. the all-inclusive instrument of faith (which allow
 Gentiles into this convenant).
 
 *This is a **[section stub](http://www.theopedia.com/Category:Theopedia_sectionstubs "Category:Theopedia sectionstubs")**. Please edit it to add information.*
+
 ### Boasting in Jewish culture
 
 [Simon Gathercole](Simon_Gathercole "Simon Gathercole") has written
