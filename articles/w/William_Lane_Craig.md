@@ -61,6 +61,7 @@ and Christian particularism."^[[1]](#note-0)^
 ###Debates
 
 -   [Resurrection; Hoax or History (McGill University Debate, 2009)](http://www.youtube.com/watch?v=IQeh3tT9cY8) (YouTube)
+-   [William Lane Craig vs. Stephen Law: Does God Exist?](http://www.brianauten.com/Apologetics/debate-craig-law.mp3) (MP3) - Westminster Hall on October 17, 2011
 
 ## Notes
 
