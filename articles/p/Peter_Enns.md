@@ -1,13 +1,11 @@
 **Peter Enns** is an American
 [Old Testament](Old_Testament "Old Testament") scholar and was
 Professor of Old Testament and Biblical Hermeneutics at
-[Taught at::Attended seminary::Westminster Theological Seminary](http://www.theopedia.com/index.php?title=Taught_at::Attended_seminary::Westminster_Theological_Seminary&action=edit&redlink=1 "Taught at::Attended seminary::Westminster Theological Seminary (page does not exist)")
-(WTS), Philadelphia until 2008. He has a BA from
-[Attended college::Messiah College](http://www.theopedia.com/index.php?title=Attended_college::Messiah_College&action=edit&redlink=1 "Attended college::Messiah College (page does not exist)")
+Westminster Theological Seminary 
+(WTS), Philadelphia until 2008. He has a BA from Messiah College 
 (1982), an MDiv from Westminster Theological Seminary (1989), and
 MA (1993) and PhD (1994) from
-[Attended university::Harvard University](http://www.theopedia.com/index.php?title=Attended_university::Harvard_University&action=edit&redlink=1 "Attended university::Harvard University (page does not exist)")
-where he also served as a Teaching Fellow from 1990-1994. Enns was
+Harvard University where he also served as a Teaching Fellow from 1990-1994. Enns was
 the editor of the *Westminster Theological Journal* from 2000-2005.
 WTS suspended Enns following the end of the Spring semester, 2008
 due to the theological issues raised in his book
