@@ -15,15 +15,16 @@ history of Tyndale House. He also retains his position as an
 honorary Senior Lecturer in Biblical Studies at the University of
 Aberdeen.
 
-## Multimedia
-
--   [Williams debates Bart Ehrman - Can we trust Scripture?](http://www.brianauten.com/Apologetics/ehrman-williams-unbelievable.mp3)
-    (MP3)
-
 Williams started the Evangelical Textual Criticism Blog in October,
 2005 which has become a highly respected forum for the discussion
 of textual criticism that "is governed by the principles of
 evangelicalism."^[[1]](#note-0)^
+
+## Multimedia
+
+-   [Williams debates Bart Ehrman - Can we trust Scripture?](http://www.brianauten.com/Apologetics/ehrman-williams-unbelievable.mp3)
+    (MP3)
+-   [New Evidences the Gospels were Based on Eyewitness Accounts](http://www.youtube.com/watch?feature=player_embedded&v=r5Ylt1pBMm8) (YouTube)
 
 ## Selected works
 
