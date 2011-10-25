@@ -276,6 +276,4 @@ to relate this to Jesus, or God's Word.
     by George Robinson
 -   [The History of Halloween Revisited](http://blog.marshillchurch.org/2009/10/29/the-history-of-halloween-revisted/),
     by James Harleman
-
-
-
+-   [Christians and Halloween](http://www.gty.org/resources/Articles/A123#.Tqb0SN6Ik9p), by Travis Allen (Grace To You)
