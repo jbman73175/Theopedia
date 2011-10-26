@@ -234,6 +234,7 @@ God."[[5]](http://www.desiringgod.org/resource-library/articles/the-resolutions-
 -   [Christ & Sexual Sin](http://www.ligonier.org/learn/articles/christ-sexual-sin/),
     by John Freeman
 -   [How I Wish the Homosexuality Debate Would Go](http://trevinwax.com/2011/10/18/how-i-wish-the-homosexuality-debate-would-go/), by Trevin Tax
+-   [Can They Do That in My School?](http://www.truetolerance.org/educate-yourself/) (TrueTolerance.org)
 
 ### Favorable
 
