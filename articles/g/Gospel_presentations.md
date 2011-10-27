@@ -46,6 +46,7 @@ become such as I am—except for these chains.' " (Acts 26:28-29)
     Board)
 -   [The Four Spirital Laws](http://www.campuscrusade.com/fourlawsflash.htm)
     (Campus Crusade for Christ)
+-   [Eric Ludy - The Gospel](http://www.youtube.com/watch?v=nPIOkdNL-QQ) (YouTube)
 
 ## Presentations in the New Testament
 
