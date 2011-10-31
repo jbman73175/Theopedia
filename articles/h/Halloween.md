@@ -2,30 +2,6 @@
 usually by children dressing in costumes and going door-to-door
 collecting candy.
 
-## Contents
-
--   [1 History](#History)
--   [2 Arguments for abstaining](#Arguments_for_abstaining)
-    -   [2.1 Pagan origins](#Pagan_origins)
-    -   [2.2 Emphasis on evil and the occult](#Emphasis_on_evil_and_the_occult)
-    -   [2.3 Misappropriation of money](#Misappropriation_of_money)
-
--   [3 Arguments for participating](#Arguments_for_participating)
-    -   [3.1 Reinterpret or give new meaning](#Reinterpret_or_give_new_meaning)
-    -   [3.2 Harmless fun](#Harmless_fun)
-    -   [3.3 'Baptize' the holiday](#.27Baptize.27_the_holiday)
-    -   [3.4 Time with one's kids](#Time_with_one.27s_kids)
-    -   [3.5 Evangelism](#Evangelism)
-
--   [4 Alternative celebrations](#Alternative_celebrations)
-    -   [4.1 Reformation Day](#Reformation_Day)
-    -   [4.2 Costume party](#Costume_party)
-    -   [4.3 Remembrance of departed believers](#Remembrance_of_departed_believers)
-    -   [4.4 Trunk & Treat](#Trunk_.26_Treat)
-
--   [5 Cautions and ideas](#Cautions_and_ideas)
--   [6 External links](#External_links)
-
 ## History
 
 "Originally a Celtic festival, Samhain, the last day of October
@@ -277,3 +253,4 @@ to relate this to Jesus, or God's Word.
 -   [The History of Halloween Revisited](http://blog.marshillchurch.org/2009/10/29/the-history-of-halloween-revisted/),
     by James Harleman
 -   [Christians and Halloween](http://www.gty.org/resources/Articles/A123#.Tqb0SN6Ik9p), by Travis Allen (Grace To You)
+-   [What Christians Should Know about Halloween](http://theresurgence.com/2011/10/31/what-christians-should-know-about-halloween), by Justin Holcomb
