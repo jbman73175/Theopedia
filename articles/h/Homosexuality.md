@@ -18,7 +18,7 @@ the same sex.
     by [Thomas Schreiner](Thomas_Schreiner "Thomas Schreiner")
 -   [Robert Gagnon on Homosexuality and the Bible](http://vimeo.com/2126309?pg=embed&sec=2126309)
     (Vimeo)
--   [Dr. Brown/ Rabbi Shmuley debate](http://askdrbrown.org/index.php?option=com_content&id=210)
+-   [Dr. Brown / Rabbi Shmuley debate](http://askdrbrown.org/index.php?option=com_content&id=210)
     (Vimeo)
 -   [On homosexuality](http://www.youtube.com/watch?v=LTwugmG4hoA#t=8s)
     (YouTube), by
