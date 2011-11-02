@@ -29,7 +29,7 @@ the same sex.
     (YouTube), by [John Piper](John_Piper "John Piper")
 -   [How Do I Balance Disagreeing Yet Still Loving Those Of My Friends Who Are Homosexuals?](http://www.youtube.com/watch?v=b1gMwQT2NsA) (YouTube),
     by Rob Turner
--   [When It Rains http://www.youtube.com/watch?feature=player_embedded&v=yum_UOdT-R8] (avoice)
+-   [When It Rains](http://www.youtube.com/watch?feature=player_embedded&v=yum_UOdT-R8) (avoice)
 
 ## Passages related to Homosexuality
 
