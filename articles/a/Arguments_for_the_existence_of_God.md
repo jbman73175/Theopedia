@@ -236,7 +236,7 @@ others do the same.'" (Lewis, 136-137)^[[1]](#note-0)^
     by W. David Beck
 -   [Evil as Evidence for God](http://theologica.blogspot.com/2005/11/evil-as-evidence-for-god.html),
     by Justin Taylor
--   [The 4 Primary Arguments for God's Existence](http://www.theologicalstudies.citymax.com/page/page/1572404.htm),
+-   [The 4 Primary Arguments for God's Existence](http://theologicalstudies.org/resource-library/philosophy-dictionary/86-4-primary-arguments-for-gods-existence),
     by Michael J. Vlach
 -   [10 Arguments For God's Existence](http://www.reclaimingthemind.org/blog/2008/11/10-arguments-for-gods-existence/),
     by C Michael Patton
