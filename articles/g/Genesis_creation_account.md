@@ -493,6 +493,7 @@ God.
 
 -   [After Adam: Reading Genesis in an Age of Evolutionary Science](http://www.asa3.org/ASA/PSCF/2010/PSCF9-10Harlow.pdf),
     by Daniel C. Harlow
+-   [Talking to Pastors about Adam and Evolution: Options](http://www.patheos.com/blogs/peterenns/2011/11/taking-to-pastors-about-adam-and-evolution-options/), by Peter Enns
 
 ### Other
 
