@@ -231,6 +231,7 @@ one person.
 
 ## External links
 
+-   (Thinking through Christology](http://thegospelcoalition.org/blogs/justintaylor/2011/11/05/christology-2/), by Justin Taylor
 -   [Jesus' Two Natures](http://www.carm.org/doctrine/2natures.htm),
     by Matt Slick
 -   [Hypostatic Union](http://www.newadvent.org/cathen/07610b.htm)
@@ -242,6 +243,3 @@ one person.
     of God and man in Christ
 -   [Communicatio idiomatum](http://en.wikipedia.org/wiki/Communicatio_idiomatum)
     (Wikipedia)
-
-
-
