@@ -1,7 +1,9 @@
 aliases:
 - Hypostatic_union
 - Two_natures_of_Christ
+
 ---
+
 The **two natures of Jesus** refers to the doctrine that the one
 person [Jesus Christ](Jesus_Christ "Jesus Christ") had/has two
 natures, [divine](Deity_of_Jesus "Deity of Jesus") and
