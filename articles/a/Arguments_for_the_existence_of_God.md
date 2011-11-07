@@ -20,13 +20,6 @@ conclusion that [God](God "God") exists.
 
 * [http://www.youtube.com/watch?v=dr36HID62wM&feature=related](http://www.youtube.com/watch?v=dr36HID62wM&feature=related), by William Lane Craig
 
-**ApologeticsPress.org** (RealPlayer)
-
--   The Case for the Existence of God
-    [Part I](http://www.apologeticspress.org/audio/rsf1-l05.rm),
-    [Part II](http://www.apologeticspress.org/audio/rsf1-l06.rm),
-    [Part III](http://www.apologeticspress.org/audio/rsf1-l07.rm)
-
 ## Cosmological arguments
 
 ### Kalam cosmological argument
