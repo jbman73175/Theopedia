@@ -16,55 +16,16 @@ conclusion that [God](God "God") exists.
 -   [Is There a Supreme Being?, or the Existence of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/002_SLJ_69_32K.mp3)
     (MP3), by [S. Lewis Johnson](S._Lewis_Johnson "S. Lewis Johnson")
 
+### Ontological arguments
+
+* [http://www.youtube.com/watch?v=dr36HID62wM&feature=related](http://www.youtube.com/watch?v=dr36HID62wM&feature=related), by William Lane Craig
+
 **ApologeticsPress.org** (RealPlayer)
 
 -   The Case for the Existence of God
     [Part I](http://www.apologeticspress.org/audio/rsf1-l05.rm),
     [Part II](http://www.apologeticspress.org/audio/rsf1-l06.rm),
     [Part III](http://www.apologeticspress.org/audio/rsf1-l07.rm)
-
-Also known as **proofs** for God's existence, these arguments have
-not always come with full acceptance. Those opposed to
-[natural theology](Natural_theology "Natural theology") claim that
-God's existence cannot be proven by human reason or the natural
-world, and that any attempt to do so runs the risk of becoming a
-[God of the Gaps](God_of_the_Gaps "God of the Gaps") argument.
-Viewpoints vary, but responses tend to conclude that God can only
-be known by supernatural
-[revelation](Special_revelation "Special revelation") or
-[Scripture alone](Scripture_alone "Scripture alone").
-[Karl Barth](Karl_Barth "Karl Barth") is a classic example of this
-as he believed that God is exclusively revealed in
-[Jesus Christ](Jesus_Christ "Jesus Christ"), and Jesus is only
-revealed in the [Bible](Bible "Bible"). Proponents of natural
-theology vary as well, but most conclude that the existence of God
-can be known through human reason although it is not salvific (not
-a saving knowledge of God).
-[Thomas Aquinas](Thomas_Aquinas "Thomas Aquinas") is characteristic
-of this view, holding to the understanding that the created world
-reflects aspects of its creator that are apparent to all.
-Nonetheless, arguments for the existence of God have been formed
-throughout [church history](Church_history "Church history") and
-continue to be used today, namely in the area of
-[apologetics](Apologetics "Apologetics").
-
-## Contents
-
--   [1 Cosmological arguments](#Cosmological_arguments)
-    -   [1.1 Kalam cosmological argument](#Kalam_cosmological_argument)
-    -   [1.2 Thomistic cosmological argument](#Thomistic_cosmological_argument)
-    -   [1.3 Leibnizian cosmological argument](#Leibnizian_cosmological_argument)
-
--   [2 Teleological argument](#Teleological_argument)
--   [3 Anthropological argument](#Anthropological_argument)
--   [4 Ontological argument](#Ontological_argument)
-    -   [4.1 Descartes' ontological argument](#Descartes.27_ontological_argument)
-    -   [4.2 Argument from desire](#Argument_from_desire)
-
--   [5 Notes](#Notes)
--   [6 Resources](#Resources)
--   [7 See also](#See_also)
--   [8 External links](#External_links)
 
 ## Cosmological arguments
 
@@ -199,6 +160,31 @@ true country, which I shall not find until after death; I must
 never let it get snowed under or turned aside; I must make it the
 main object of life to press on to that other country and to help
 others do the same.'" (Lewis, 136-137)^[[1]](#note-0)^
+
+Also known as **proofs** for God's existence, these arguments have
+not always come with full acceptance. Those opposed to
+[natural theology](Natural_theology "Natural theology") claim that
+God's existence cannot be proven by human reason or the natural
+world, and that any attempt to do so runs the risk of becoming a
+[God of the Gaps](God_of_the_Gaps "God of the Gaps") argument.
+Viewpoints vary, but responses tend to conclude that God can only
+be known by supernatural
+[revelation](Special_revelation "Special revelation") or
+[Scripture alone](Scripture_alone "Scripture alone").
+[Karl Barth](Karl_Barth "Karl Barth") is a classic example of this
+as he believed that God is exclusively revealed in
+[Jesus Christ](Jesus_Christ "Jesus Christ"), and Jesus is only
+revealed in the [Bible](Bible "Bible"). Proponents of natural
+theology vary as well, but most conclude that the existence of God
+can be known through human reason although it is not salvific (not
+a saving knowledge of God).
+[Thomas Aquinas](Thomas_Aquinas "Thomas Aquinas") is characteristic
+of this view, holding to the understanding that the created world
+reflects aspects of its creator that are apparent to all.
+Nonetheless, arguments for the existence of God have been formed
+throughout [church history](Church_history "Church history") and
+continue to be used today, namely in the area of
+[apologetics](Apologetics "Apologetics").
 
 ## Notes
 
