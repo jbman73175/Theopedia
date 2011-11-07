@@ -19,6 +19,7 @@ conclusion that [God](God "God") exists.
 ### Ontological arguments
 
 * [William Lane Craig on the Ontological Argument](http://www.youtube.com/watch?v=dr36HID62wM&feature=related](http://www.youtube.com/watch?v=dr36HID62wM&feature=related) (YouTube)
+* [More of William Lane Craig on the Ontological Argument](http://www.youtube.com/watch?v=D1-ySbzmrEI&feature=related) (YouTube)
 
 ## Cosmological arguments
 
