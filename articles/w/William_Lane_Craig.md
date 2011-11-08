@@ -58,6 +58,7 @@ and Christian particularism."^[[1]](#note-0)^
 -   [Is One True Religion Possible](http://www.cru.stuorg.iastate.edu/debate/Is%20One%20True%20Religion%20Possible%20by%20Craig.mp3)
     (mp3)
 -   [Closer to Truth Interview](http://www.youtube.com/watch?v=Y4RY_Xhc5m0&feature=related) (YouTube)
+-   [Is God a Delusion?](http://www.youtube.com/watch?feature=player_embedded&v=fP9CwDTRoOE) (YouTube)
 
 ###Debates
 
