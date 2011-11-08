@@ -406,6 +406,7 @@ Holy Spirit are distinct, eternal Persons".
 -   [The Doctrine of The Trinity in LDS and "Catholic" Contexts](http://www.smpt.org/docs/owen_element1-1.html), by Paul Owen
 -   [How Do the Father, Son, and Spirit Differ?](http://philgons.com/2011/04/how-do-the-father-son-and-spirit-differ/),
     by Phil Gons
+-   [Trinity](http://plato.stanford.edu/entries/trinity/) (Stanford Encyclopedia of Philosophy)
 
 ### Social trinitarianism
 
