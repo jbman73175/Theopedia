@@ -4,14 +4,7 @@ Moroney^[[1]](#note-0)^ argues that sin's noetic effects are most
 prominent in our knowledge of God (our "sense of divinity") and
 less prominent in other domains.
 
-
-## Contents
-
--   [1 Calvin](#Calvin)
--   [2 Abraham Kuyper](#Abraham_Kuyper)
--   [3 See also](#See_also)
--   [4 References](#References)
--   [5 Notes](#Notes)
+> "The Fall brought about the perversion of human faculties, but it did not destroy those faculties. Human reasoning abilities are affected but not eliminated. This can be seen in the fact that the writers of Scripture often appeal to the minds of unbelievers by citing evidence on behalf of their claims, using logical inferences in building their case and speaking in the language and thought forms of those outside the faith." (J.P. Moreland and William Lane Craig, _Philosophical Foundations for a Christian worldview_, ch. 1)
 
 ## Calvin
 
