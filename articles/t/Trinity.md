@@ -344,6 +344,7 @@ Holy Spirit are distinct, eternal Persons".
 -   [Damon W. K. So, *The Forgotten Jesus and the Trinity You Never Knew*.](http://www.jesus-trinity.co.uk)
     (Eugene: Wipf and Stock, 2010).
     [ISBN 9781608996315](http://www.theopedia.com/Special:BookSources/9781608996315)
+-   Which Trinity? Whose Monotheism? Philosophical and Systematic Theologians on the Metaphysics of Trinitarian Theology, by Thomas McCall (ISBN 0802862705)
 
 ## See also
 
