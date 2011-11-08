@@ -236,6 +236,7 @@ God."[[5]](http://www.desiringgod.org/resource-library/articles/the-resolutions-
     by John Freeman
 -   [How I Wish the Homosexuality Debate Would Go](http://trevinwax.com/2011/10/18/how-i-wish-the-homosexuality-debate-would-go/), by Trevin Tax
 -   [Can They Do That in My School?](http://www.truetolerance.org/educate-yourself/) (TrueTolerance.org)
+-   [Homosexuality: Know the Truth and Speak it With Compassion](http://www.str.org/site/DocServer/Homosexuality_Know_the_Truth_and_Speak_it_with_Compassio.pdf?docID=4465), by Alan Shlemon
 
 ### Favorable
 
