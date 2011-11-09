@@ -67,6 +67,7 @@ and Christian particularism."^[[1]](#note-0)^
 -   [Resurrection; Hoax or History (McGill University Debate, 2009)](http://www.youtube.com/watch?v=IQeh3tT9cY8) (YouTube)
 -   [William Lane Craig vs. Stephen Law: Does God Exist?](http://www.brianauten.com/Apologetics/debate-craig-law.mp3) (MP3) - Westminster Hall on October 17, 2011
 -   [William Lane Craig vs. Michael Tooley: Is God Real?](http://j.mp/Apologetics315-DebateCraigTooley) - March 24, 2010
+-   [Does God Exist?: William Lane Craig vs Antony Flew](http://www.youtube.com/watch?v=NixhL0CoH2s) (YouTube) - 1998
 
 ## Notes
 
