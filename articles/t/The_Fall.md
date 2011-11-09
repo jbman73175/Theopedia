@@ -21,14 +21,6 @@ humanity has been affected by it ever since. This came about
 because Adam and Eve disobeyed God's commandment not to eat of the
 "tree of knowledge of good and evil."
 
-## Contents
-
--   [1 Before the Fall](#Before_the_Fall)
--   [2 After the Fall](#After_the_Fall)
--   [3 Why God allowed the Fall](#Why_God_allowed_the_Fall)
--   [4 See also](#See_also)
--   [5 External links](#External_links)
-
 ## Before the Fall
 
 Before sin and death entered this world, man reflected the image of
