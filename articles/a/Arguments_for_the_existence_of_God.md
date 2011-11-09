@@ -15,6 +15,7 @@ conclusion that [God](God "God") exists.
     The Veritas Forum
 -   [Is There a Supreme Being?, or the Existence of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/002_SLJ_69_32K.mp3)
     (MP3), by [S. Lewis Johnson](S._Lewis_Johnson "S. Lewis Johnson")
+-   [Good Without God? A Christian Philosopher Probes the Foundation for Ethics](http://vimeo.com/24595212), by Oliver O'Donovan
 
 ### Ontological arguments
 
