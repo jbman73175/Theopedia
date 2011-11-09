@@ -11,25 +11,6 @@ Part of the series on
 -   [Death](Death "Death")
 -   [Common grace](Common_grace "Common grace")
 
-Part of the series on  
-**Beginnings**
--   [Genesis](Genesis "Genesis")
-    -   [Genesis 1](Genesis_1 "Genesis 1")
-    -   [Genesis 2](Genesis_2 "Genesis 2")
-
--   [Creation](Creation "Creation")
--   [Creation out of nothing](Creation_out_of_nothing "Creation out of nothing")
--   [Genesis creation account](Genesis_creation_account "Genesis creation account")
-    -   [Gap theory](Gap_theory "Gap theory")
-    -   [Raqiya (Hebrew)](Raqiya_(Hebrew) "Raqiya (Hebrew)")
-
--   [Intelligent design](Intelligent_design "Intelligent design")
--   [Evolution](Evolution "Evolution")
--   **The Fall**
--   [Nephilim](Nephilim "Nephilim")
--   [Great Flood](Great_Flood "Great Flood")
--   [Tower of Babel](Tower_of_Babel "Tower of Babel")
-
 **The Fall** is the traditional term referring to the first sin of
 Adam and Eve which brought judgment upon both nature and mankind.
 Genesis 3:1-24 gives the account of *the Fall* of humanity.
@@ -91,10 +72,7 @@ of the Cross and the Gospel."
 ## External links
 
 -   [Holman Bible Dictionary - Fall](http://www.studylight.org/dic/hbd/view.cgi?number=T2005)
--   Sproul, R. C.,
-    [Adam's Fall and Mine](http://www.graceonlinelibrary.org/etc/printer-friendly.asp?ID=250)
+-   [Adam's Fall and Mine](http://www.the-highway.com/fall_Sproul.html), by R.C. Sproul
 -   [Did Eve Fall or Was She Pushed?](http://fontes.lstc.edu/~rklein/Documents/did_eve_fall_or_was_she_pushed.htm),
     by Susan L. Greiner - *Bible Review* August, 1999
-
-
 
