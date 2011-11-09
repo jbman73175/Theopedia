@@ -59,6 +59,7 @@ and Christian particularism."^[[1]](#note-0)^
     (mp3)
 -   [Closer to Truth Interview](http://www.youtube.com/watch?v=Y4RY_Xhc5m0&feature=related) (YouTube)
 -   [Is God a Delusion?](http://www.youtube.com/watch?feature=player_embedded&v=fP9CwDTRoOE) (YouTube)
+-   [7 Reasons God Exists and 3 Reasons It Makes A Difference](http://vimeo.com/12208081) (Vimeo)
 
 ###Debates
 
