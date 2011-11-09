@@ -528,4 +528,6 @@ Section 62, 1995
     by Clifford E. Bajema (book)
 
 
+### Other
 
+-   [Abortion](http://www.utm.edu/staff/jfieser/class/160/5-abortion.htm), by James Fieser (from _Moral Issues that Divide Us_)
