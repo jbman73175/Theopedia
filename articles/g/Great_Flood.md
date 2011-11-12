@@ -1,24 +1,7 @@
 blocks:
 - Beginnings
+
 ---
-Part of the series on  
-**Beginnings**
--   [Genesis](Genesis "Genesis")
-    -   [Genesis 1](Genesis_1 "Genesis 1")
-    -   [Genesis 2](Genesis_2 "Genesis 2")
-
--   [Creation](Creation "Creation")
--   [Creation out of nothing](Creation_out_of_nothing "Creation out of nothing")
--   [Genesis creation account](Genesis_creation_account "Genesis creation account")
-    -   [Gap theory](Gap_theory "Gap theory")
-    -   [Raqiya (Hebrew)](Raqiya_(Hebrew) "Raqiya (Hebrew)")
-
--   [Intelligent design](Intelligent_design "Intelligent design")
--   [Evolution](Evolution "Evolution")
--   [The Fall](The_Fall "The Fall")
--   [Nephilim](Nephilim "Nephilim")
--   **Great Flood**
--   [Tower of Babel](Tower_of_Babel "Tower of Babel")
 
 The **Great Flood** refers to the deluge described in
 [Genesis](Genesis "Genesis") chapters 6 through 8 as God's judgment
@@ -31,6 +14,7 @@ on mankind and the account of [Noah](Noah "Noah") and the
     by Fazale Rana (Flash video)
 -   [No Global Flood?](http://www.youtube.com/watch?v=aLmdwZHWIPg&feature=feedu)
     (YouTube), by [Greg Koukl](Greg_Koukl "Greg Koukl")
+-   (Seeing the Flood Story Through an Ancient Israelite Lens](http://biologos.org/blog/saturday-sermon-the-flood) (BioLogos video)
 
 ## Purpose of the flood
 
@@ -189,6 +173,3 @@ If the Flood was local...
     by Carol A. Hill - "It is argued that the universal language of
     Gen. 6- 8 was meant to cover the whole known world of that time
     (third millennium BC), not the entire planet Earth"
-
-
-
