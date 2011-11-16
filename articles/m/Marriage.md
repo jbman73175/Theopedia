@@ -12,6 +12,7 @@ children, intended by God as a blessing (Genesis 1:28).
 -   [Is Same-sex Marriage About Equality?](http://www.youtube.com/watch?v=46fWQk21kUQ),
     by Greg Koukl - Is marriage something in particular or is it
     whatever you want it to be? Does it have a natural teleology?
+-   (Cultivating a Healthy Marriage](http://sermons2.redeemer.com/sermons/cultivating-healthy-marriage) (MP3), by Timothy and Kathy Keller
 
 ## Contents
 
