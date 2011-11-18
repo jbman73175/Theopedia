@@ -204,6 +204,6 @@ words to the depth that we are experiencing.'" ^[[2]](#note-1)^
     by Andy Naselli
 -   [Rob Bell's "Feminine Images" for God: A Review of Rob Bell, NOOMA: "She."](http://www.cbmw.org/Journal/Vol-14-No-1/Rob-Bell-s-Feminine-Images-for-God),
     by Christopher W. Cowan
-
+-   [Why Do We Love C.S. Lewis and Hate Rob Bell?](http://www.reclaimingthemind.org/blog/2011/11/why-do-we-love-c-s-lewis-and-hate-rob-bell/), by C. Michael Patton
 
 
