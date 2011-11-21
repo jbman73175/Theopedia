@@ -16,6 +16,7 @@ conclusion that [God](God "God") exists.
 -   [Is There a Supreme Being?, or the Existence of God](http://www.believerschapeldallas.org/audio/slj-69_systematic-theology/002_SLJ_69_32K.mp3)
     (MP3), by [S. Lewis Johnson](S._Lewis_Johnson "S. Lewis Johnson")
 -   [Good Without God? A Christian Philosopher Probes the Foundation for Ethics](http://vimeo.com/24595212), by Oliver O'Donovan
+-   [Christopher Hitchens vs. Douglas Wilson - Collision Of Lives (The Documentary)](http://www.youtube.com/watch?v=yU0Ue-Ki-mU&feature=player_embedded)
 
 ### Ontological arguments
 
