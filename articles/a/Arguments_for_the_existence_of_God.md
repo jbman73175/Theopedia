@@ -222,6 +222,5 @@ continue to be used today, namely in the area of
     by Michael J. Vlach
 -   [10 Arguments For God's Existence](http://www.reclaimingthemind.org/blog/2008/11/10-arguments-for-gods-existence/),
     by C Michael Patton
-
-
+-   [J.P. Moreland Responds to Criticisms of the Argument from Consciousness](http://www.youtube.com/watch?v=uCaWiDrLmdY)
 
