@@ -15,6 +15,7 @@ were [inerrant](Inerrancy "Inerrancy").
 
 ## Multimedia
 
+-   [An Introduction to Biblical Theology](http://www.providence-bc.com/files/1234/Audio/ZOOM0001%285%29.MP3) (MP3), by Jim Hamilton
 -   [Goldsworthy at Southern Seminary on Biblical Theology](http://theologica.blogspot.com/2008/03/goldsworthy-at-southern-seminary-on.html)
 -   [Old Testament Theology](http://biblicaltraining.org/class/ot190),
     by Paul House
