@@ -57,13 +57,11 @@
 
 ## External links
 
--   [The Message of Ecclesiastes](http://www.dbts.edu/dbts/journals/1996_1/ECCLES.PDF)
+-   [The Message of Ecclesiastes](http://www.dbts.edu/journals/1996_1/ECCLES.PDF)
     (PDF), by Robert V. McCabe
 -   [An Introduction to Ecclesiastes](http://basictheology.com/articles/Ecclesiastes_Intro/)
     (basictheology.com) - "Ecclesiastes takes the reader through the
     highs and lows of life on this earth, from hedonism to nihilism,
     finally arriving at a conclusion that is perfectly at home within
     Old Testament theology: fear God and keep His commandments."
-
-
-
+-   [Ecclesiastes Through the Centuries](http://www.e-reading.org.ua/bookreader.php/134820/Ecclesiastes_Through_the_Centuries.pdf), by Eric S. Christianson
