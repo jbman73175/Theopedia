@@ -501,14 +501,10 @@ God.
     by Eugenie C. Scott - National Center for Science Education -
     "Defending the teaching of evolution in public schools"
 -   [Indian creation myths - remarkable similarity to Genesis creation account](http://creation.com/indian-creation-myths)
-
 -   [Why More than One View of Creationism is Biblically Possible](http://www.michaelsheiser.com/Videos/Gen1clauses/Gen1clauses.html),
     by
     [Michael Heiser](index.php?title=Michael_Heiser&action=edit&redlink=1 "Michael Heiser (page does not exist)")
-
 -   [on Hugh Rossites falsehoods 1](http://creation.com/dr-humphreys-responds-to-criticism-of-his-book-starlight-and-time)]
     [2](http://www.trueorigin.org/ca_rh_03.asp)]
     [3](http://www.trueorigin.org/ca_rh_02.asp)]
-
-
-
+-   [Genesis 1.1-3, Hebrew Grammar, and Translation](http://ancienthebrewgrammar.wordpress.com/2011/11/11/genesis-1-hebrew-grammar-translation/), by Rober T Holmstedt
