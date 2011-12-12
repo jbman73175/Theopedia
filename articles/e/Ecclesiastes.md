@@ -40,20 +40,6 @@
 -   [Malachi](Book_of_Malachi "Book of Malachi")
 
 [New Testament](New_Testament "New Testament")
-## Chapters
-
-[1](index.php?title=Ecclesiastes_1&action=edit&redlink=1 "Ecclesiastes 1 (page does not exist)"),
-[2](index.php?title=Ecclesiastes_2&action=edit&redlink=1 "Ecclesiastes 2 (page does not exist)"),
-[3](index.php?title=Ecclesiastes_3&action=edit&redlink=1 "Ecclesiastes 3 (page does not exist)"),
-[4](index.php?title=Ecclesiastes_4&action=edit&redlink=1 "Ecclesiastes 4 (page does not exist)"),
-[5](index.php?title=Ecclesiastes_5&action=edit&redlink=1 "Ecclesiastes 5 (page does not exist)"),
-[6](index.php?title=Ecclesiastes_6&action=edit&redlink=1 "Ecclesiastes 6 (page does not exist)"),
-[7](index.php?title=Ecclesiastes_7&action=edit&redlink=1 "Ecclesiastes 7 (page does not exist)"),
-[8](index.php?title=Ecclesiastes_8&action=edit&redlink=1 "Ecclesiastes 8 (page does not exist)"),
-[9](index.php?title=Ecclesiastes_9&action=edit&redlink=1 "Ecclesiastes 9 (page does not exist)"),
-[10](index.php?title=Ecclesiastes_10&action=edit&redlink=1 "Ecclesiastes 10 (page does not exist)"),
-[11](index.php?title=Ecclesiastes_11&action=edit&redlink=1 "Ecclesiastes 11 (page does not exist)"),
-[12](index.php?title=Ecclesiastes_12&action=edit&redlink=1 "Ecclesiastes 12 (page does not exist)")
 
 ## External links
 
@@ -65,3 +51,4 @@
     finally arriving at a conclusion that is perfectly at home within
     Old Testament theology: fear God and keep His commandments."
 -   [Ecclesiastes Through the Centuries](http://www.e-reading.org.ua/bookreader.php/134820/Ecclesiastes_Through_the_Centuries.pdf), by Eric S. Christianson
+-   (Survey of Ecclesiastes](http://www.biblicaltraining.org/ecclesiastes/old-testament-survey), by Douglas Stuart
