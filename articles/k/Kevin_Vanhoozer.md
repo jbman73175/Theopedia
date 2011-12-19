@@ -1,5 +1,5 @@
 <img src="http://www.wheaton.edu/~/media/Images/Faculty%20Images/V/vanhoozer-kevin-fprof.jpg?&mw=168" style="float: right; margin-left: 8px;width: 168px;height:136px;" />
-**Kevin J. Vanhoozer** (b. 1957) is the Blanchard Professor of
+**Kevin J. Vanhoozer** (b. 1957) is an American Reformed evangelical and Blanchard Professor of
 Theology at Wheaton College Graduate School. He was previously
 Research Professor of
 [Systematic Theology](Systematic_Theology "Systematic Theology") at
