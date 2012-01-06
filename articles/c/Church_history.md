@@ -437,6 +437,7 @@ Think!).^[[6]](#note-Enlghtnmnt)^
 
 ### General works
 
+-   Bruce Shelley, *Church History in Plain Language*. 3rd edition. Thomas Nelson, 2008.
 -   James E. Bradley and
     [Richard Muller](Richard_Muller "Richard Muller"),
     *Church History: An Introduction to Research, Reference Works, and Methods*.
@@ -459,8 +460,8 @@ Think!).^[[6]](#note-Enlghtnmnt)^
 -   [Donald McKim](Donald_McKim "Donald McKim"),
     *Theological Turning Points*. WJK, 1988.
 -   [Mark Noll](Mark_Noll "Mark Noll"),
-    *Turning Points: Decisive Moments in the History of Christianity*.
-    Baker Academic, 2001.
+    *Turning Points: Decisive Moments in the History of Christianity*. 3rd edition.
+    Baker Academic, 2012.
 
 ### Early church
 
@@ -502,6 +503,7 @@ Think!).^[[6]](#note-Enlghtnmnt)^
 
 ### Reformation and post-Reformation
 
+-   Richard Muller, *Post-Reformation Reformed Dogmatics*, 4 volumes; 2nd edition. Baker Academic, 2003.
 -   Justo L. Gonzalez,
     *A History of Christian Thought: Volume 3: From the Protestant Reformation to the Twentieth Century*.
     2nd edition; Abingdon, 1987.
@@ -530,7 +532,7 @@ Think!).^[[6]](#note-Enlghtnmnt)^
     [ISBN 063120685X](http://www.theopedia.com/Special:BookSources/063120685X)
 -   David Ford, ed.
     *Modern Theologians: An Introduction to Christian Theology since 1918*.
-    3rd edition, Wiley-Blackwell, 2005.
+    3rd edition. Wiley-Blackwell, 2005.
     [ISBN 1405102772](http://www.theopedia.com/Special:BookSources/1405102772)
 -   James C. Livingston, et al. *Modern Christian Thought*. 2 vols.
     Fortress, 2006.
@@ -548,7 +550,6 @@ Think!).^[[6]](#note-Enlghtnmnt)^
 -   [Early church fathers](Early_church_fathers "Early church fathers")
 -   [Reformation](Reformation "Reformation")
 -   [Historical theology](Historical_theology "Historical theology")
--   [Category:Church history](http://www.theopedia.com/Category:Church_history "Category:Church history")
 
 ## External links
 
