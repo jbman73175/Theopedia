@@ -1,6 +1,3 @@
-[![image](images/thumb/6/6d/N.T._Wright.jpg/200px-N.T._Wright.jpg)](http://www.theopedia.com/File:N.T._Wright.jpg)
-[![image](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAAA8AAAALCAAAAACFLIiAAAAAAnRSTlMA/1uRIrUAAABPSURBVAjXY/j///+5vXDwjAHIr26ZAgXZe8H8a/+hoIcw/9nevdVL9+79DuPvzQYZFPUezu8BMZLXgkExnD8HAu6hqv//n+HZVjD4DuUDAKlChD3fj6aPAAAAAElFTkSuQmCC)](http://www.theopedia.com/File:N.T._Wright.jpg "Enlarge")
-N. T. Wright
 **Nicholas Tom Wright** (b. 1948) is an
 [Anglican](Anglican "Anglican") theologian and Professor of New
 Testament and Early Christianity at the University of St Andrews,
