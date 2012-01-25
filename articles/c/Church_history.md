@@ -253,7 +253,7 @@ periods:^[[4]](#note-SchaffH4c1)^
 **Important events/documents/movements**:
 
 -   [Crusades](Crusades "Crusades")
--   [Great schism](Great_schism "Great schism")
+-   [Great Schism](Great_schism "Great schism")
     -   [Filioque clause](Filioque_clause "Filioque clause")
 
 -   [Scholasticism](Scholasticism "Scholasticism")
