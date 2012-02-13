@@ -22,6 +22,7 @@ Westminster (Philadelphia) and Director of Mercy Ministries for the
     Redeemer Presbyterian Church Sermons
 -   [Redeemer Core Values](http://sermons.redeemer.com/store/index.cfm?fuseaction=category.display&category_ID=23),
     Redeemer Presbyterian Church Sermons
+-   [Tim Keller Talks on Encountering Jesus at Oxford University](http://thegospelcoalition.org/blogs/justintaylor/2012/02/13/tim-keller-talks-on-encountering-jesus-at-oxford-university/) (YouTube videos)
 
 ## Publications
 
