@@ -44,8 +44,7 @@ years old.
 
 ## External links
 
--   [Evangelicals Question The Existence Of Adam And Eve](http://www.npr.org/2011/08/09/138957812/evangelicals-question-the-existence-of-adam-and-eve?sc=tw&cc=share)
-    (NPR)
-
-
-
+-   [Evangelicals Question The Existence Of Adam And Eve](http://www.npr.org/2011/08/09/138957812/evangelicals-question-the-existence-of-adam-and-eve?sc=tw&cc=share) (NPR)
+-   [Ten Really Bad Reasons to Believe in a Historical Adam)[http://www.patheos.com/blogs/exploringourmatrix/2012/02/ten-really-bad-reasons-to-believe-in-a-historical-adam.html], by James F. McGrath
+-   [10 Reasons to Believe in a Historical Adam](http://thegospelcoalition.org/blogs/kevindeyoung/2012/02/07/reasons-to-believe-in-a-historical-adam/?comments#comments), by Kevin DeYoung
+-   [Thoughts on Kevin DeYoung’s Restless Comments on the Historical Adam](http://www.patheos.com/blogs/peterenns/2012/02/thoughts-on-kevin-deyoungs-restless-comments-on-the-historical-adam/), by Peter Enns
