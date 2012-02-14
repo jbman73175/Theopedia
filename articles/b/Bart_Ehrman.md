@@ -9,13 +9,6 @@ for his writings on early
 [church history](Church_history "Church history") and the
 [development of the New Testament canon](Development_of_the_NT_canon "Development of the NT canon").
 
-## Multimedia
-
--   [Interview and Critique of Bart Ehrman's Forgery Theory MP3](http://www.brianauten.com/Apologetics/wilken-ehrman-montgomery-forged.mp3)
-    (MP3) - Issues, Etc radio program
--   [Responding to Bart Ehrman's New Testament Forgery Theory](http://www.youtube.com/watch?v=Is7QjsOwZI4&feature=feedf)
-    (YouTube), by John Warwick Montgomery
-
 Ehrman received his B.A. at Wheaton College in 1978, and later
 attended Princeton Theological Seminary where he received an M.Div.
 (1981) and a Ph.D. (1985). Having studied under
@@ -30,6 +23,15 @@ Ehrman now considers himself an [agnostic](Agnostic "Agnostic").
 Ehrman is a popularizer of the idea that the New Testament is
 significantly corrupted, beyond reliability and is the author of
 *[Misquoting Jesus: The Story Behind Who Changed the Bible and Why](http://www.theopedia.com/Misquoting_Jesus:_The_Story_Behind_Who_Changed_the_Bible_and_Why "Misquoting Jesus: The Story Behind Who Changed the Bible and Why")*.
+
+
+## Multimedia
+
+-   [Interview and Critique of Bart Ehrman's Forgery Theory MP3](http://www.brianauten.com/Apologetics/wilken-ehrman-montgomery-forged.mp3)
+    (MP3) - Issues, Etc radio program
+-   [Responding to Bart Ehrman's New Testament Forgery Theory](http://www.youtube.com/watch?v=Is7QjsOwZI4&feature=feedf)
+    (YouTube), by John Warwick Montgomery
+-   [Bart Ehrman visits Google Cambridge on April 7, 2011 to discuss his new book, _Forged_](http://www.youtube.com/watch?v=PF3nu4cYC78) (YouTube)
 
 ## Publications
 
