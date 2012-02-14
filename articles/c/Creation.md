@@ -90,3 +90,4 @@ to Darwinian [evolution theory](Evolution "Evolution").
 -   ["In the Beginning..."](http://www.sbts.edu/pdf/sbjt/SBJT_2007Spring6.pdf)
     (The SBJT Forum)
 -   [A Rough Guide to Creation & Evolution](http://www.epsociety.org/library/articles.asp?pid=52&mode=detail), by Peter S. Williams
+-   [Notes for a Doctrine of Creation](http://www.scriptoriumdaily.com/2012/02/14/notes-for-a-doctrine-of-creation/), by Fred Sanders 
