@@ -246,6 +246,7 @@ obey
 
 #### Study aids
 
+-   [Summary of Basics of Biblical Greek](http://www.teknia.com/public/pdf/Summary.pdf) (PDF), by William D. Mounce
 -   [Flashcard for Bill Mounce's _Basics of Biblical Greek Grammar_](http://quizlet.com/subject/mounce-bbg/)
 -   [Flashcards for Fuller NW Greek 2011-2012](http://quizlet.com/group/158488/)
 -   [Flashcards for Jkrans NT Koine Greek](http://quizlet.com/group/57741/)
