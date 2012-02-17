@@ -526,6 +526,7 @@ Section 62, 1995
     by Scott Klusendorf
 -   [Abortion and the Meaning of Personhood](http://www.ccel.us/personhood.toc.html),
     by Clifford E. Bajema (book)
+-   [Nobis, Beckwith & Abortion](http://www.abort73.com/blog/nobis_beckwith_abortion/#When:20:53:27Z), by Mike Spielman
 
 
 ### Other
