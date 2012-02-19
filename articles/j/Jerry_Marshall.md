@@ -4,10 +4,7 @@ Church in the St. Louis, MO metropolitan area. He holds degrees
 from the Moody Bible Institute and Trinity International
 University.^[[1]](#note-0)^ He can be heard on the weekly radio
 program "Cutting it Straight" on KSIV radio in St.
-Louis^[[2]](#note-1)^ and WAFG radio in Ft. Lauderdale,
-FL.^[[3]](#note-2)^ He has several forthcoming books, including a
-discipleship manual, an exposition of Malachi and an exposition of
-the first few chapters of 1 Corinthians.
+Louis^[[2]](#note-1)^. He has two published works: Fundamental Truths for a Disciple of Christ and The Oracle of Malachi.
 
 
 
